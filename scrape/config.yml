@@ -1,0 +1,18 @@
+username: ""
+password: ""
+influencers:
+  # - profile_url: "https://www.instagram.com/mbakluluknurhamidah/"
+  #   num_posts: -1  # Number of posts to scrape (-1 for all posts)
+    
+  # - profile_url: "https://www.instagram.com/pdiperjuanganjatim/"
+  #   num_posts: -1  # Number of posts to scrape (-1 for all posts)
+
+  # - profile_url: "https://www.instagram.com/lukmanology/"
+  #   num_posts: -1  # Number of posts to scrape (-1 for all posts)
+
+  # - profile_url: "https://www.instagram.com/khofifah.ip/"
+  #   num_posts: -1  # Number of posts to scrape (-1 for all posts)
+
+  - profile_url: "https://www.instagram.com/emildardak/"
+    num_posts: -1  # Number of posts to scrape (-1 for all posts)
+

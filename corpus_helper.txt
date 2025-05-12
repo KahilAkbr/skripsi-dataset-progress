@@ -1,0 +1,15 @@
+Ini Adalah Corpus Helper untuk Kebutuhan menerjemahkan bahasa tidak baku menjadi bahasa baku. Perlu diketahui bahwa ini adalah dataset yang membahas 6 pasangan calon gubernur jawa timur 2024 yaitu
+Khofifah Indar Parawansa - Emil Dardak
+Tri Rismaharini - Gus Hans
+Luluk Nur Hamidah - Lukmanul Khakim
+
+Jadi jika ada kata kata yang menyebutkan mirip dengan pasangan calon ini benarkan
+
+Corpus List:
+wagub = wakil gubernur
+paslon = pasangan calon
+yra = ya rabbal alamin
+sampeyan = kamu / anda
+jatim = jawa timur
+pilkada = pemilihan kepala daerah
+pemilu = pemilihan umum
