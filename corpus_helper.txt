@@ -13,3 +13,6 @@ sampeyan = kamu / anda
 jatim = jawa timur
 pilkada = pemilihan kepala daerah
 pemilu = pemilihan umum
+ridho = rida
+jaman = zaman
+ijin = izin
