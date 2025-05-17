@@ -1099,7 +1099,7 @@ Cocok jadi ibu PKK Jawa Timur, muda, cantik, terkenal seluruh Indonesia, kalau k
 Bangga punya ibu PKK secantik ini, mana terulang lagi, ayo pilih Mas Emil wakil gubernur Jawa Timur xemoticonx xemoticonx
 Pasangan oke sekali
 Mbak Arumi kenapa pasar saja ya yang dikunjungi, lah aku kapan dikunjungi Mbak Arumi xemoticonx xemoticonx
-lo itu dekat rumah saya Pak Emil dan Mbak Arumi, sayang kemarin hari kerja jadi tidak ke pasar xemoticonx
+Lo itu dekat rumah saya Pak Emil dan Mbak Arumi, sayang kemarin hari kerja jadi tidak ke pasar xemoticonx
 Mbak Arumi mohon maaf sebelumnya, boleh minta cara penutup kepalanya
 Kapan ke pasar Soponyono Surabaya kak
 Nomor dua ya
@@ -3975,7 +3975,7 @@ Kita sama maunya kerupuk. xemoticonx
 Ditumis juga enak pakis xemoticonx xemoticonx
 Martabak, kue bandung, cilok, somay, bakso, jagung bakar. Jangan bunga ah tidak mau, tidak bisa dimakan. Itu setelah menikah 10 tahun lebih ya, baru sadar. xemoticonx xemoticonx
 xmentionx hidup kerupuk xemoticonx xemoticonx xemoticonx xemoticonx
-masyaallah sama kita Bu pecinta kerupuk sekali, kalau ndak ada kerupuk ya nunggu beli dulu xemoticonx xemoticonx
+Masyaallah sama kita Bu pecinta kerupuk sekali, kalau ndak ada kerupuk ya nunggu beli dulu xemoticonx xemoticonx
 Kriuknya sampai sini
 Mbak xmentionx. Kalau di Palembang banyak aneka kerupuk yok kaen kaplang.
 Mbak xmentionx coba cicip kerupuk bangka tapi asli langsung dari bangka ya. Dijamin enak dan pasti ketagihan
@@ -4630,154 +4630,154 @@ Tatapan Pak Emil sama seperti suami saya cuma bedanya kalau suami saya sambil di
 Mau Bu Arumi kerupuknya xemoticonx
 Sama Mbak Arumi kami juga pecinta gulai pakis
 xmentionx istrinya cantik sekali pak xemoticonx xemoticonx
-jajanan kalau aku mah wkwk
-pak Emil selalu dengan tatapan penuh cinta sangat manis xemoticonx xemoticonx
-cintanya berlebihan ini pak Emil xemoticonx xemoticonx
-bunga tidak bisa dimakan ya mbak Arumi xemoticonx xemoticonx xemoticonx
-pecinta bakso juga tidak sih bu Arumi, di bogor enak rasanya xemoticonx
-habis lihat ini aku langsung ke dapur dan ambil kerupuk wkwk
-cokelat mbak
-cinta untuk kalian berdua xemoticonx
-sama dong ibu Arumi makan kesukaan aku yaitu kerupuk xemoticonx
-semua cowok itu romantis kalau ada dananya xemoticonx
-kerupuk itu memang separuh jiwa sekali
+Jajanan kalau aku mah wkwk
+Pak Emil selalu dengan tatapan penuh cinta sangat manis xemoticonx xemoticonx
+Cintanya berlebihan ini pak Emil xemoticonx xemoticonx
+Bunga tidak bisa dimakan ya mbak Arumi xemoticonx xemoticonx xemoticonx
+Pecinta bakso juga tidak sih bu Arumi, di bogor enak rasanya xemoticonx
+Habis lihat ini aku langsung ke dapur dan ambil kerupuk wkwk
+Cokelat mbak
+Cinta untuk kalian berdua xemoticonx
+Sama dong ibu Arumi makan kesukaan aku yaitu kerupuk xemoticonx
+Semua cowok itu romantis kalau ada dananya xemoticonx
+Kerupuk itu memang separuh jiwa sekali
 xemoticonx xemoticonx enak
-apa saja mbak yang penting dibawakan sudah syukur alhamdulillah
-kerupuk bisa dimakan bunga tidak bisa
-romantisme ala mas pejabat, tidak penting wangi yang penting tepat sasaran xemoticonx
-sama kak, saya juga suka kerupuk xemoticonx
-enaknya makan kerupuk pakai gado-gado dan bakso mi sup xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-suamiku kalau pulang bawa nasi kotak dapat dari rapat xemoticonx xemoticonx pasti lebih memilih dibawa pulang xemoticonx
-kalau saya tiap pulang kerja bawa kotak bekal makan siang yang sudah kosong, besok begitu lagi dan lagi, karena paling enak bawa bekal masakan istri xemoticonx
-lihat pak Emil kok mirip mantanku ya bi? xemoticonx xemoticonx xemoticonx xmentionx
-kerupuk lah bunga tidak bisa dimakan xemoticonx xemoticonx xemoticonx
-bismillah punya suami spesifikasi cintanya berlebihan pak Emil
-sederhana tapi bermanfaat untuk menjaga kestabilan perut xemoticonx xemoticonx xemoticonx
-inilah kesederhanaan ibu Arumi dan suami xemoticonx xemoticonx xemoticonx
-enak itu dicocol saus
-aku juga suka kerupuk cap dua onta xemoticonx xemoticonx
-wah enaknya sayur pakis
-pokoknya dibawakan yang namanya makanan sudah senang sekali deh xemoticonx xemoticonx
-keluarga idolaku xemoticonx
-kerupuk xemoticonx
-mbak Arumi mau juga ya sayur pakis enak disayur masak pakai santan dicampur sama petai mantap mbak xemoticonx xemoticonx xemoticonx
-suka sama pasangan ini cocok sekali romantis, bahagia selalu kakak
-suka sekali lihat mereka senyum bahagia terus ya masyaallah deh semoga sampai tua langgeng
-wah mantap, suami yang setia tahu kesukaan istri kerupuk uyel kalau istilah trenggalek, mantap sekali mbak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-sama xemoticonx xemoticonx xemoticonx
-bawa duit xemoticonx
-tetap xemoticonx xemoticonx xemoticonx
-terima kasih pak Emil teman xemoticonx masuk video xemoticonx xemoticonx xemoticonx
-bapak ekspor ke kanada pak
-pak Emil insyaallah kami sekeluarga besok pilih duet bu Khofifah dan pak Emil lagi xemoticonx
-pak saya kerja di singapura satu bungkus kerupuk harganya 12 ribu setiap libur pasti bawa koper pulang-pulang bawa kerupuk, kata bosku kamu tidak bisa hidup tanpa kerupuk ya mbak xemoticonx asalkan ada kerupuk makan apa pun dijamin enak xemoticonx salam dari anak rantau pak Emil semoga dikirim kerupuknya xemoticonx xemoticonx
-lanjut pak Emil
-beli kerupuknya di mana ya mau aku belikan ibu di lampung
-kerupuk favorit ini xemoticonx xemoticonx
-suatu saat orang ini jadi presiden RI
+Apa saja mbak yang penting dibawakan sudah syukur alhamdulillah
+Kerupuk bisa dimakan bunga tidak bisa
+Romantisme ala mas pejabat, tidak penting wangi yang penting tepat sasaran xemoticonx
+Sama kak, saya juga suka kerupuk xemoticonx
+Enaknya makan kerupuk pakai gado-gado dan bakso mi sup xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Suamiku kalau pulang bawa nasi kotak dapat dari rapat xemoticonx xemoticonx pasti lebih memilih dibawa pulang xemoticonx
+Kalau saya tiap pulang kerja bawa kotak bekal makan siang yang sudah kosong, besok begitu lagi dan lagi, karena paling enak bawa bekal masakan istri xemoticonx
+Lihat pak Emil kok mirip mantanku ya bi? xemoticonx xemoticonx xemoticonx xmentionx
+Kerupuk lah bunga tidak bisa dimakan xemoticonx xemoticonx xemoticonx
+Bismillah punya suami spesifikasi cintanya berlebihan pak Emil
+Sederhana tapi bermanfaat untuk menjaga kestabilan perut xemoticonx xemoticonx xemoticonx
+Inilah kesederhanaan ibu Arumi dan suami xemoticonx xemoticonx xemoticonx
+Enak itu dicocol saus
+Aku juga suka kerupuk cap dua onta xemoticonx xemoticonx
+Wah enaknya sayur pakis
+Pokoknya dibawakan yang namanya makanan sudah senang sekali deh xemoticonx xemoticonx
+Keluarga idolaku xemoticonx
+Kerupuk xemoticonx
+Mbak Arumi mau juga ya sayur pakis enak disayur masak pakai santan dicampur sama petai mantap mbak xemoticonx xemoticonx xemoticonx
+Suka sama pasangan ini cocok sekali romantis, bahagia selalu kakak
+Suka sekali lihat mereka senyum bahagia terus ya masyaallah deh semoga sampai tua langgeng
+Wah mantap, suami yang setia tahu kesukaan istri kerupuk uyel kalau istilah trenggalek, mantap sekali mbak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Sama xemoticonx xemoticonx xemoticonx
+Bawa duit xemoticonx
+Tetap xemoticonx xemoticonx xemoticonx
+Terima kasih pak Emil teman xemoticonx masuk video xemoticonx xemoticonx xemoticonx
+Bapak ekspor ke kanada pak
+Pak Emil insyaallah kami sekeluarga besok pilih duet bu Khofifah dan pak Emil lagi xemoticonx
+Pak saya kerja di singapura satu bungkus kerupuk harganya 12 ribu setiap libur pasti bawa koper pulang-pulang bawa kerupuk, kata bosku kamu tidak bisa hidup tanpa kerupuk ya mbak xemoticonx asalkan ada kerupuk makan apa pun dijamin enak xemoticonx salam dari anak rantau pak Emil semoga dikirim kerupuknya xemoticonx xemoticonx
+Lanjut pak Emil
+Beli kerupuknya di mana ya mau aku belikan ibu di lampung
+Kerupuk favorit ini xemoticonx xemoticonx
+Suatu saat orang ini jadi presiden RI
 Jawa Timur bagian dua xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-terima kasih pak Emil, sudah pakai suara xmentionx xemoticonx xemoticonx
-mampir ke warung saya pak, di depan pujasera lapangan waruberon pak Warbat xemoticonx xmentionx xmentionx
+Terima kasih pak Emil, sudah pakai suara xmentionx xemoticonx xemoticonx
+Mampir ke warung saya pak, di depan pujasera lapangan waruberon pak Warbat xemoticonx xmentionx xmentionx
 xmentionx pak Emil sudah di Krian silakan mampir ke Tropodo biar tahu indahnya desa Tropodo xemoticonx xemoticonx
-diseblak kerupuk itu enak sekali pak
-lanjut bagian dua pak
-tapi memang beda kerupuk dari merek dua onta ini memang enak sekali rasanya daripada merek lainnya sudah coba beberapa varian dari kerupuk dua onta ini xemoticonx xemoticonx xemoticonx
-mas wakil gubernur, saya mau jual tanah area Bangkalan siapa tahu minat hehe buat biaya operasi pak xemoticonx
-saya pedagang kerupuk mentah di pasar blitar bapak xmentionx xemoticonx xemoticonx kapan anda ke kota blitar pak? xemoticonx
-selanjutnya Jakarta ya pak
-baru kali ini saya lihat pak Emil asmr kerupuk pakai senyum masyaallah
-pak xmentionx dan bu xmentionx silakan kalau pas ke Kediri mampir ke tempat produksi kerupuk uyel kami
-pak Emil, tolong dong ditinjau jalan-jalan ke daerah Trenggalek ke desa-desanya sebenarnya hasil petani di pegunungan banyak, karena akses jalan yang sulit jadi harga panen merosot
-waktu menjabat kemarin ke mana pak kok tidak kelihatan turun ke masyarakat bawah xemoticonx
-wah jadi nih label merek Arumi xemoticonx xemoticonx
-kerupuk kesukaan aku nih xemoticonx
-waduh kesukaanku pak enaknya
-enaknya renyah
-enak pak pakai nasi hangat
-mas Emil hayo ke Fema IPB
-orang Jawa Timur makan apa saja wajib pakai kerupuk xemoticonx kesukaanku mas xmentionx xemoticonx bismillah 2024-2029 xmentionx xmentionx xmentionx lanjut Jawa Timur satu Jawa Timur dua amin ya rabbal alamin
-tarif ojek daring xemoticonx taksi daring masih belum sesuai peraturan gubernur mohon bantu tindak tegas ke aplikator biar mengikuti peraturan gubernur
+Diseblak kerupuk itu enak sekali pak
+Lanjut bagian dua pak
+Tapi memang beda kerupuk dari merek dua onta ini memang enak sekali rasanya daripada merek lainnya sudah coba beberapa varian dari kerupuk dua onta ini xemoticonx xemoticonx xemoticonx
+Mas wakil gubernur, saya mau jual tanah area Bangkalan siapa tahu minat hehe buat biaya operasi pak xemoticonx
+Saya pedagang kerupuk mentah di pasar blitar bapak xmentionx xemoticonx xemoticonx kapan anda ke kota blitar pak? xemoticonx
+Selanjutnya Jakarta ya pak
+Baru kali ini saya lihat pak Emil asmr kerupuk pakai senyum masyaallah
+Pak xmentionx dan bu xmentionx silakan kalau pas ke Kediri mampir ke tempat produksi kerupuk uyel kami
+Pak Emil, tolong dong ditinjau jalan-jalan ke daerah Trenggalek ke desa-desanya sebenarnya hasil petani di pegunungan banyak, karena akses jalan yang sulit jadi harga panen merosot
+Waktu menjabat kemarin ke mana pak kok tidak kelihatan turun ke masyarakat bawah xemoticonx
+Wah jadi nih label merek Arumi xemoticonx xemoticonx
+Kerupuk kesukaan aku nih xemoticonx
+Waduh kesukaanku pak enaknya
+Enaknya renyah
+Enak pak pakai nasi hangat
+Mas Emil hayo ke Fema IPB
+Orang Jawa Timur makan apa saja wajib pakai kerupuk xemoticonx kesukaanku mas xmentionx xemoticonx bismillah 2024-2029 xmentionx xmentionx xmentionx lanjut Jawa Timur satu Jawa Timur dua amin ya rabbal alamin
+Tarif ojek daring xemoticonx taksi daring masih belum sesuai peraturan gubernur mohon bantu tindak tegas ke aplikator biar mengikuti peraturan gubernur
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat selalu pak Emil sekeluarga dan ibu Khofifah sekeluarga amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-sayang istri sayang istri ayo borong kerupuknya pak xemoticonx xemoticonx
-yang begini cocok jadi calon presiden akan datang, amin
-tetap keluarga besar saya mendukung mas Emil lanjut nomor dua pasti terbaik
-calon presiden RI pak xmentionx saya selalu berdoa untuk anda
-kerupuk kebutuhan pokok kalau tidak ada kerupuk hambar rasanya xemoticonx xemoticonx
-usul xmentionx coba di Trenggalek dibuka usaha pabrik kerupuk biar kotanya tidak sepi ya biar buat tambahan pencaharian sehari xemoticonx biar pasar pon Trenggalek ramai kayak dulu, Trenggalek kan banyak pantai banyak ikan udang yang bisa diolah menjadi kerupuk, lagian orang Trenggalek paling suka makan kerupuk termasuk saya xemoticonx xemoticonx
-kerupuk favorit pak xemoticonx xemoticonx
-mantap pak Emil dardak itu kerupuknya
-kami dari gresik ikut kalau bisa kerja sama semoga berkah amin
-sama saya juga suka kerupuk yang ada warna oranyenya itu enak terasa ikannya kalau di tempatku namanya kerupuk elek xemoticonx kerupuk jelek xemoticonx xemoticonx
-sudah ganteng baik bisa menyanyi wah Arumi beruntung sekali
-enak ini kerupuknya xemoticonx
-bapak kok tidak mampir rumah saya hehe
+Sayang istri sayang istri ayo borong kerupuknya pak xemoticonx xemoticonx
+Yang begini cocok jadi calon presiden akan datang, amin
+Tetap keluarga besar saya mendukung mas Emil lanjut nomor dua pasti terbaik
+Calon presiden RI pak xmentionx saya selalu berdoa untuk anda
+Kerupuk kebutuhan pokok kalau tidak ada kerupuk hambar rasanya xemoticonx xemoticonx
+Usul xmentionx coba di Trenggalek dibuka usaha pabrik kerupuk biar kotanya tidak sepi ya biar buat tambahan pencaharian sehari xemoticonx biar pasar pon Trenggalek ramai kayak dulu, Trenggalek kan banyak pantai banyak ikan udang yang bisa diolah menjadi kerupuk, lagian orang Trenggalek paling suka makan kerupuk termasuk saya xemoticonx xemoticonx
+Kerupuk favorit pak xemoticonx xemoticonx
+Mantap pak Emil dardak itu kerupuknya
+Kami dari gresik ikut kalau bisa kerja sama semoga berkah amin
+Sama saya juga suka kerupuk yang ada warna oranyenya itu enak terasa ikannya kalau di tempatku namanya kerupuk elek xemoticonx kerupuk jelek xemoticonx xemoticonx
+Sudah ganteng baik bisa menyanyi wah Arumi beruntung sekali
+Enak ini kerupuknya xemoticonx
+Bapak kok tidak mampir rumah saya hehe
 xmentionx pak Emil kapan mampir ke malang, bisa mampir ke pabrik kami, pabrik die casting lokal yang produk-produknya berkualitas internasional kami sudah TKDN dan punya sertifikat CSR kami tunggu kabar baik untuk kedatangannya ya pak semoga sukses, maju Jawa Timurku bersama ibu Khofifah dan bapak Emil
-wah sama dong mbak Arumi sama saya, saya kalau makan tanpa kerupuk sepi xemoticonx tapi kerupuknya dijual daring tidak sih? saya cari di toko oranye kok tidak ada merek ini
-ini kalau mau beli ke mana ya? di toko oranye ada tidak?
-saya mau milih bapak tapi KTP saya bukan Jawa Timur lagi xemoticonx
-alhamdulillah bapak memperhatikan UMKM
-coba wakil presiden mas Emil dardak, cerdas, muda, berwawasan pintar, rendah hati serasi berpasangan dengan pak Prabowo xemoticonx
-terima kasih bapak, Trenggalek maju ada di bapak. Prasasti Jenderal Sudirman mohon diperjuangkan ya pak dibuat semaksimal mungkin hingga pantai selatan kelihatan dan untuk wisata seperti monas, bapak semoga bapak Emil dardak presiden masa depan harapan kami dan membawa membesarkan kota Trenggalek xemoticonx xemoticonx xemoticonx
-mantap memang kerupuk xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat selalu bapak
-pak Emil di Krian tidak mampir rumahku pak saya beri mangga xemoticonx
-mantap pak Emil xemoticonx xemoticonx harus menang lagi pak xemoticonx xemoticonx
-saya selalu dukung bapak Emil
-suamiku ini nikmat sekali jalani hidup, semua oke saja
-di jambangan Sidoarjo juga ada kerupuk aneka rasa pabriknya ada tiga
-pak ini alamatnya di mana sih pak aku harus ke sini tapi menyasar terus padahal ya dekat rumah xemoticonx
-suka bu Arumi yang penuh zikir pas suami tampil xemoticonx
-masyaallah semangatnya luar biasa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-senang sekali lihat senyum ibu Khofifah, berasa adem lihatnya xemoticonx
-salah fokus sama setrikanya, ternyata bukan setrika yang mewah walaupun pejabat itu menjadikan saya tambah kagum sama bu Arumi xemoticonx
-bu Arumi, setrikaan kita sama xemoticonx xemoticonx
-serius tanya sarung bapak Emil beli di mana ya bu? bagus xemoticonx
-masyaallah, sukses selalu karena sudah cantik xemoticonx tidak sombong berkah kak xemoticonx xemoticonx
-tenang saja bu Khofifah sama pak Emil kan orang pintar dan hebat ya xemoticonx
+Wah sama dong mbak Arumi sama saya, saya kalau makan tanpa kerupuk sepi xemoticonx tapi kerupuknya dijual daring tidak sih? saya cari di toko oranye kok tidak ada merek ini
+Ini kalau mau beli ke mana ya? di toko oranye ada tidak?
+Saya mau milih bapak tapi KTP saya bukan Jawa Timur lagi xemoticonx
+Alhamdulillah bapak memperhatikan UMKM
+Coba wakil presiden mas Emil dardak, cerdas, muda, berwawasan pintar, rendah hati serasi berpasangan dengan pak Prabowo xemoticonx
+Terima kasih bapak, Trenggalek maju ada di bapak. Prasasti Jenderal Sudirman mohon diperjuangkan ya pak dibuat semaksimal mungkin hingga pantai selatan kelihatan dan untuk wisata seperti monas, bapak semoga bapak Emil dardak presiden masa depan harapan kami dan membawa membesarkan kota Trenggalek xemoticonx xemoticonx xemoticonx
+Mantap memang kerupuk xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat selalu bapak
+Pak Emil di Krian tidak mampir rumahku pak saya beri mangga xemoticonx
+Mantap pak Emil xemoticonx xemoticonx harus menang lagi pak xemoticonx xemoticonx
+Saya selalu dukung bapak Emil
+Suamiku ini nikmat sekali jalani hidup, semua oke saja
+Di jambangan Sidoarjo juga ada kerupuk aneka rasa pabriknya ada tiga
+Pak ini alamatnya di mana sih pak aku harus ke sini tapi menyasar terus padahal ya dekat rumah xemoticonx
+Suka bu Arumi yang penuh zikir pas suami tampil xemoticonx
+Masyaallah semangatnya luar biasa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Senang sekali lihat senyum ibu Khofifah, berasa adem lihatnya xemoticonx
+Salah fokus sama setrikanya, ternyata bukan setrika yang mewah walaupun pejabat itu menjadikan saya tambah kagum sama bu Arumi xemoticonx
+Bu Arumi, setrikaan kita sama xemoticonx xemoticonx
+Serius tanya sarung bapak Emil beli di mana ya bu? bagus xemoticonx
+Masyaallah, sukses selalu karena sudah cantik xemoticonx tidak sombong berkah kak xemoticonx xemoticonx
+Tenang saja bu Khofifah sama pak Emil kan orang pintar dan hebat ya xemoticonx
 Arumi kok tidak bilang xemoticonx ternyata menyetrika itu menyenangkan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-cantiknya luar biasa xemoticonx xemoticonx
-salam dari Sidoarjo Jawa Timur xemoticonx
-yang saya suka sampai saat ini bu Arumi selalu rendah hati murah senyum pantas awet muda xemoticonx xemoticonx xemoticonx
-cantiknya xemoticonx xemoticonx
-keren kak xmentionx jujur menyetrika jas mending taruh penatu, takut tidak benar dan rapi xemoticonx xemoticonx
-pakai setrika uap bu Arumi cantik xmentionx bisa sambil digantung xemoticonx di hanger insyaallah lebih rapi xemoticonx licin xemoticonx
+Cantiknya luar biasa xemoticonx xemoticonx
+Salam dari Sidoarjo Jawa Timur xemoticonx
+Yang saya suka sampai saat ini bu Arumi selalu rendah hati murah senyum pantas awet muda xemoticonx xemoticonx xemoticonx
+Cantiknya xemoticonx xemoticonx
+Keren kak xmentionx jujur menyetrika jas mending taruh penatu, takut tidak benar dan rapi xemoticonx xemoticonx
+Pakai setrika uap bu Arumi cantik xmentionx bisa sambil digantung xemoticonx di hanger insyaallah lebih rapi xemoticonx licin xemoticonx
 Arumi nanti lama-lama suami bakal jadi presiden di periode selanjutnya ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-keren kakak xmentionx
-figur idola, suaminya ganteng, istrinya cantik, keduanya pintar, sempurna sekali sehat selalu ya sehat selalu untuk keduanya
-bu xmentionx selalu dukung pak xmentionx semoga menang 02 pemimpin teruji yang mengayomi amin xemoticonx
-bu Arumi pakai baju sederhana saja tetap kelihatan mewah karena cantiknya alami luar dalam
-jangan khawatir bunda Arumi, bagaimana kiprah pak Emil dalam membantu waktu debat wakil presiden gibran sudah terbukti, insyaallah semoga Allah swt meridai dan memberi kelancaran, amin xemoticonx xemoticonx
-masyaallah tabarakallah keluarga ini xemoticonx
-perlu belajar dari Nikita Willy bu Arumi xemoticonx
-saking senangnya sejak SMA anak saya namanya ada aruminya xemoticonx
-tidak usah debat tidak apa-apa bu Arumi, bapak pasti menang kok xemoticonx xemoticonx xemoticonx xemoticonx
-wajahnya xmentionx mahal sekali ya xemoticonx xemoticonx
-semangat
-hehe xemoticonx
-tidak apa-apa bu Arumi, menyetrika baju-baju bahan itu memang agak sulit dan harus hati-hati saya saja suka emosi kok kalau setrika bahan itu xemoticonx
+Keren kakak xmentionx
+Figur idola, suaminya ganteng, istrinya cantik, keduanya pintar, sempurna sekali sehat selalu ya sehat selalu untuk keduanya
+Bu xmentionx selalu dukung pak xmentionx semoga menang 02 pemimpin teruji yang mengayomi amin xemoticonx
+Bu Arumi pakai baju sederhana saja tetap kelihatan mewah karena cantiknya alami luar dalam
+Jangan khawatir bunda Arumi, bagaimana kiprah pak Emil dalam membantu waktu debat wakil presiden gibran sudah terbukti, insyaallah semoga Allah swt meridai dan memberi kelancaran, amin xemoticonx xemoticonx
+Masyaallah tabarakallah keluarga ini xemoticonx
+Perlu belajar dari Nikita Willy bu Arumi xemoticonx
+Saking senangnya sejak SMA anak saya namanya ada aruminya xemoticonx
+Tidak usah debat tidak apa-apa bu Arumi, bapak pasti menang kok xemoticonx xemoticonx xemoticonx xemoticonx
+Wajahnya xmentionx mahal sekali ya xemoticonx xemoticonx
+Semangat
+Hehe xemoticonx
+Tidak apa-apa bu Arumi, menyetrika baju-baju bahan itu memang agak sulit dan harus hati-hati saya saja suka emosi kok kalau setrika bahan itu xemoticonx
 xemoticonx ah tidak xemoticonx xemoticonx
-tambah cantik ibu kalau muka cemberut begitu ya, gemas xemoticonx xemoticonx
-gagal fokus sama jari xemoticonx masnya kayak jarinya bu Siska xemoticonx
-senang aku itu kalau lihat mbak Arumi, tidak sombong dan seperti rakyat biasa walaupun istri pejabat semoga pak Emil bisa menyusul kayak pak Jokowi
-cantik sekali sih bu xemoticonx
-masyaallah cantiknya xemoticonx xemoticonx xemoticonx xemoticonx
-masyaallah menyala sekali bu xmentionx
+Tambah cantik ibu kalau muka cemberut begitu ya, gemas xemoticonx xemoticonx
+Gagal fokus sama jari xemoticonx masnya kayak jarinya bu Siska xemoticonx
+Senang aku itu kalau lihat mbak Arumi, tidak sombong dan seperti rakyat biasa walaupun istri pejabat semoga pak Emil bisa menyusul kayak pak Jokowi
+Cantik sekali sih bu xemoticonx
+Masyaallah cantiknya xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah menyala sekali bu xmentionx
 xemoticonx Jawa Timurku xemoticonx
-idolaku sejak dulu masyaallah bu Arumi makin cantik saja xemoticonx
-cantiknya luar biasa xemoticonx
-bismillah saya ikut mendoakan semoga menang ya walau saya bukan penduduk Jawa Timur saya Jawa Tengah bu xmentionx
-ya Allah cantiknya pakai formalin ya xemoticonx xemoticonx
-cantik sekali ibu xemoticonx xemoticonx xemoticonx
-setrikaannya kita sama bu Arumi xemoticonx xemoticonx
-salut sama bu Arumi yang serba bisa, dan tidak mengeluh menyetrika baju itu xemoticonx bukan keahlianku, tidak hobi xemoticonx xemoticonx xemoticonx
+Idolaku sejak dulu masyaallah bu Arumi makin cantik saja xemoticonx
+Cantiknya luar biasa xemoticonx
+Bismillah saya ikut mendoakan semoga menang ya walau saya bukan penduduk Jawa Timur saya Jawa Tengah bu xmentionx
+Ya Allah cantiknya pakai formalin ya xemoticonx xemoticonx
+Cantik sekali ibu xemoticonx xemoticonx xemoticonx
+Setrikaannya kita sama bu Arumi xemoticonx xemoticonx
+Salut sama bu Arumi yang serba bisa, dan tidak mengeluh menyetrika baju itu xemoticonx bukan keahlianku, tidak hobi xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx cantik sekali sih
-lancar dan sukses buat anda semoga hajat dimudahkan Allah amin
-masyaallah Arumi, cantik dan rendah hati
-berharap mas Emil yang dipanggil ke kursi kementerian tapi apa daya tidak dipanggil, padahal pintar sekali lulusan luar negeri baik, santun
-ditekan bu bukan digosok xemoticonx
-semoga menang xemoticonx pilihan terbaik xemoticonx xemoticonx xemoticonx xemoticonx
-pakai setrika uap jadi bagus hasilnya bu Arumi xemoticonx xemoticonx xemoticonx
-assalamualaikum ibu Arumi dan bapak Emil, semoga Allah selalu memberikan kesehatan dan lancar selalu dalam tugas
-logat Jawanya sudah terlihat xemoticonx
+Lancar dan sukses buat anda semoga hajat dimudahkan Allah amin
+Masyaallah Arumi, cantik dan rendah hati
+Berharap mas Emil yang dipanggil ke kursi kementerian tapi apa daya tidak dipanggil, padahal pintar sekali lulusan luar negeri baik, santun
+Ditekan bu bukan digosok xemoticonx
+Semoga menang xemoticonx pilihan terbaik xemoticonx xemoticonx xemoticonx xemoticonx
+Pakai setrika uap jadi bagus hasilnya bu Arumi xemoticonx xemoticonx xemoticonx
+Assalamualaikum ibu Arumi dan bapak Emil, semoga Allah selalu memberikan kesehatan dan lancar selalu dalam tugas
+Logat Jawanya sudah terlihat xemoticonx
 Yakin aku kalau Bu Khofifah xemoticonx
 Sekelas Bu Arumi menyetrika xemoticonx jahit sendiri xemoticonx xemoticonx
 Semoga sukses selalu amin ya rabbal alamin
