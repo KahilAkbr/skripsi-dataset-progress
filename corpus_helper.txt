@@ -3,7 +3,7 @@ Khofifah Indar Parawansa - Emil Dardak
 Tri Rismaharini - Gus Hans
 Luluk Nur Hamidah - Lukmanul Khakim
 
-Jadi jika ada kata kata yang menyebutkan mirip dengan pasangan calon ini benarkan
+Jadi jika ada kata kata yang menyebutkan mirip dengan pasangan calon ini benarkan dan pastikan namanya diawali huruf kapital
 
 Corpus List:
 wagub = wakil gubernur
@@ -36,3 +36,7 @@ kk = kakak / kak
 lebay = lebai
 mie = mi
 yuk = yuk
+loh / lho = lo
+pintar = pintar
+gais = teman-teman
+wih = weh
