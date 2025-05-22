@@ -1,1 +1,7 @@
 Rules
+1. Pastikan kata ada di KBBI dan tidak sebagai ragam takbaku (cak), kecuali untuk kata pelengkap seperti dong, ih, eh, duh, dll
+2. Ubah angka di bawah 10 menjadi huruf (e.g. 2 -> dua, 3 -> tiga, dst)
+3. Pastikan kata asing, bahasa jawa, dan atau bahasa lain diartikan ke bahasa indonesia dan pastikan kalimat keseluruhan masih terdengar masuk akal
+4. Hilangkan huruf dan tanda baca yang dobel (e.g. yanggg -> yang, coblos!! -> coblos!)
+4. Jangan ubah xemoticonx, xhashtagx, xmentionx
+5. Tambahkan awalan, akhiran, atau sisipan sesuai dengna konteks kalimatnya. Awalan (ber-, me-, di-, tambahkan jika ada yang lain). Akhiran (-i, tambahkan jika ada yang lain). Sisipan(di-..-an, tambahkan jika ada yang lain)

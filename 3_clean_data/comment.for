@@ -9892,7 +9892,7 @@ Lanjutkan bu xemoticonx xemoticonx xemoticonx xemoticonx
 Sudah saya pilih saya coblos tadi bunda
 Kesayangan xemoticonx
 Jadi potongan proyek bakalan tetap atau naik bu?
-GBT BAU KAN KARENA IBU SENDIRI KOK MALAH MENYALAHKAN ORANG LAIN!!
+GBT BAU KAN KARENA IBU SENDIRI KOK MALAH MENYALAHKAN ORANG LAIN!
 Maaf bu, butuh saya butuh bantuan paket data untuk melanjutkan komentar di akun lawan bu
 Bagi sembako tuh, bukannya itu juga money politic ya bu?
 Lah bahas money politic sedangkan ibu masih minta persenan uang proyek
@@ -9902,7 +9902,7 @@ Soto Lamongan memang the best
 Bu Khofifah selalu di hati
 Soto Solo itu memang segar sekali
 Makan soto disandingkan dengan kerupuk makin nikmat itu xemoticonx
-Kunjungan yang luar biasa dari bu Khofifah, terus dukung budaya lokal!!!
+Kunjungan yang luar biasa dari bu Khofifah, terus dukung budaya lokal!
 Masyaallah sederhana sekali, Sehat selalu Bunda xemoticonx xemoticonx
 Kekayaan daerah Jawa Timur yang sangat luar biasa terutama makanannya enak sekali
 Sotonya pasti segar itu
@@ -10169,7 +10169,7 @@ Semoga acara salawat di Genggong menjadi pemicu semangat masyarakat untuk selalu
 Adem melihatnya xemoticonx
 Semoga bisa terpilih lagi ya bu xemoticonx xemoticonx
 Sehat selalu Bu Khofifah. Lanjutkan dan Tuntaskan
-Salam dua periode, lanjutkan!!
+Salam dua periode, lanjutkan!
 Semoga mendapat syafaat dan keberkahan saudara xemoticonx xemoticonx
 Bu Khofifah top xemoticonx xemoticonx xemoticonx
 Semoga bisa lanjut dua periode
@@ -10383,7 +10383,7 @@ Mari kita antar Khofifah Emil menuju amanah lima tahun mendatang
 Bersama Khofifah-Emil, Jawa Timur pasti lebih maju dan sejahtera
 Khofifah-Emil, pemimpin yang siap membangun Jawa Timur! Kami mendukung sepenuh hati
 Saya tim Khofifah-Emil
-Makan donat di tengah sawah, donat bulat topingnya merah... ucapan selamat pada Bu Khofifah, dukungan kaum Muslimat melimpah ruah
+Makan donat di tengah sawah, donat bulat topingnya merah. ucapan selamat pada Bu Khofifah, dukungan kaum Muslimat melimpah ruah
 Mantap Ibu Khofifah. Kami doakan dua periode. Sehat selalu Ibu Khofifah
 Gas saudara xemoticonx xemoticonx
 Mantap membangun Jawa Timur bersama Bunda Khofifah xemoticonx xemoticonx
@@ -10436,7 +10436,7 @@ bismillah Jawa Timur semakin maju bersama Bu Khofifah
 Bersama masyarakat, Bu Khofifah terus semangat memajukan Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semangat Bu insyaallah menang memimpin Jawa Timur. Amin
 Berjuang terus demi kemakmuran rakyat xemoticonx xemoticonx
-Terima kasih Bu sudah ke PT Integra... Tapi saya tetap 03
+Terima kasih Bu sudah ke PT Integra. Tapi saya tetap 03
 Bu xmentionx menang amin xemoticonx
 Luar biasa didukung oleh banyak golongan, menyala Bu
 Jawa Timur makin maju dipimpin Ibu!
@@ -10471,7 +10471,7 @@ Kami Muslimat Jawa Timur siap menangkan Khofifah Emil
 Pemimpin yang selalu mengutamakan nilai spiritual, luar biasa
 Idola xemoticonx xemoticonx
 bismillah dua periode saudara
-Gas... Konkret Bu Khofifah xemoticonx xemoticonx
+Gas. Konkret Bu Khofifah xemoticonx xemoticonx
 Saya doakan dua periode Bu
 Lanjutkan Bu Khofifah, dua periode
 Jawa Timur satu Bu Khofifah xemoticonx xemoticonx xemoticonx
@@ -10520,7 +10520,7 @@ xemoticonx xemoticonx xemoticonx semoga Allah SWT memberkahi Ibu Khofifah dan Ma
 BERSALAWAT TAPI KORUPSI DANA HIBAH 7,8 T
 Wow
 Cirebon hadir
-Ini itu yang kemarin menerobos Car Free Day terus minta maaf... melihat... banyak contohnya teman
+Ini itu yang kemarin menerobos Car Free Day terus minta maaf. melihat. banyak contohnya teman
 Subhanallah, sungguh bahagianya Ibu Gubernur xemoticonx xemoticonx xmentionx semoga dilanjutkan Jawa Timur
 Wajib xemoticonx harus dua periode Jawa Timur satu xemoticonx xemoticonx
 Bu Khofifah ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -10780,7 +10780,7 @@ Usaha sudah doa dari seluruh elemen masyarakat juga sudah, sudah optimis menang 
 Khofifah Menang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Amin ya rabbal alamin Alfatihah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Kunfayakun xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx gas xmentionx
 xemoticonx Sehat Selalu xemoticonx . . Ada pengikut permanen
-Car free Day woi... hobi melanggar aturan seperti Joko Mulyono
+Car free Day woi. hobi melanggar aturan seperti Joko Mulyono
 Salut sama ibu
 Layak dua periode
 Masyarakat sudah mendukung dengan teriak lanjutkan xemoticonx
@@ -10821,7 +10821,7 @@ LANJUTKAN 02 xmentionx xmentionx
 Ibu video melanggar car free day tidak diupload juga? xemoticonx xemoticonx
 bismillah semoga ibu yang terpilih jadi Gubernur Jawa Timur lagi Amin, semangat ibu xemoticonx xemoticonx
 Sehat selalu ibu
-Bunda xmentionx selalu mendampingi Ibu xmentionx Semoga Sukses selalu Bunda.. Ibu xmentionx pasti jadi Ibu Gubernur Jawa Timur Kembali.. Cinta Anda Nyonya..
+Bunda xmentionx selalu mendampingi Ibu xmentionx Semoga Sukses selalu Bunda. Ibu xmentionx pasti jadi Ibu Gubernur Jawa Timur Kembali. Cinta Anda Nyonya.
 Pemimpin yang merakyat dan tulus
 Pilihan yang tepat untuk memimpin Jawa Timur
 Merangkul semua kalangan masyarakat
@@ -10833,7 +10833,7 @@ Terus berkarya, Al Irsyad! 110 tahun penuh dedikasi dalam memajukan umat, semoga
 Milad ke-110 ini adalah bukti nyata dari peran penting Al Irsyad dalam membangun Indonesia yang lebih sejahtera. Teruskan semangat dan kontribusinya!
 Semoga menang bu di Jawa Timur
 Salam dua jari xemoticonx xemoticonx xemoticonx xemoticonx
-Apa sih prestasinya limat tahun?, apa yang tersandra kepentingan karena ...
+Apa sih prestasinya limat tahun?, apa yang tersandra kepentingan karena.
 Yakin deh ini pilihanku
 Gubernurnya Khofifah - Emil Bupatinya Gus Barra - Rizal
 Selamat Milad ke-112, Muhammadiyah! Terus menjadi pilar kekuatan umat dan bangsa yang tidak hanya mengedepankan pendidikan, tapi juga kesejahteraan sosial.
@@ -10868,7 +10868,7 @@ Terima kasih Bu xemoticonx xemoticonx
 Amin, Muhammadiyah turut berperan penting dalam proses generasi muda
 Terima kasih Bu, semoga selalu diberikan kelancaran untuk menciptakan Jawa Timur yang lebih baik dan berdaya
 Terima kasih atas ucapannya Ibu Khofifah
-Tahu artinya CFD tidak mbak?? Hobi kok melanggar aturan seperti si Mulyono
+Tahu artinya CFD tidak mbak? Hobi kok melanggar aturan seperti si Mulyono
 tim buzzer like nya tetap di kisaran 20 ribu xemoticonx xemoticonx xemoticonx
 Selamat milad muhammadiyah xemoticonx xemoticonx
 Sehat selalu bunda, salam hangat kami dari generasi pencerah untuk Jawa Timur yang selalu mencerahkan xemoticonx mencerdaskan kehidupan bangsa
@@ -10906,10 +10906,10 @@ Pasar mingguan penuh kebahagiaan. Semoga semua selalu dalam lindungan Allah.
 Semoga Allah senantiasa memberikan keberkahan dan kemudahan dalam setiap langkah Ibu Khofifah. Terus semangat untuk kemajuan Jawa Timur
 Terima kasih atas perhatian dan kepedulian kepada masyarakat. Anda luar biasa
 Gerak cepat
-Ibu Khofifah... Lanjutkan perjuanganmu dalam membangun Jawa Timur menjadi lebih baik lagi
-Selalu menjadi yang terdepan untuk memajukan Jawa Timur menjadi lebih baik. Lanjutkan!!
+Ibu Khofifah. Lanjutkan perjuanganmu dalam membangun Jawa Timur menjadi lebih baik lagi
+Selalu menjadi yang terdepan untuk memajukan Jawa Timur menjadi lebih baik. Lanjutkan!
 Saya orang kabupaten Malang dukung Ibu Khofifah karena kinerja jelas dan dekat dengan masyarakat serta tidak marah-marah di depan umum.
-Ibu Khofifah... Jangan pernah menyerah untuk memajukan Jawa Timur xemoticonx
+Ibu Khofifah. Jangan pernah menyerah untuk memajukan Jawa Timur xemoticonx
 Selalu menjadi pendukung untuk Ibu Khofifah karena kerjanya nyata xemoticonx xemoticonx
 Ibu Khofifah benar-benar top deh
 xmentionx yang terakhir itu siapa mbak wkwk xemoticonx
@@ -11017,12 +11017,12 @@ Semoga selalu menjadi idola masyarakat Jawa Timur.
 Warga tahu mana yang tulus.
 Pabean mendukung penuh! Semoga harapan mereka untuk Khofifah-Emil membawa kebaikan bagi Jawa Timur.
 Top memang xemoticonx
-Bukan kaleng-kaleng Bu Khofifah... Lanjutkan.
+Bukan kaleng-kaleng Bu Khofifah. Lanjutkan.
 Masyarakat Jawa Timur memang sangat mendukung Ibu Khofifah. Teruskan perjuangan untuk kesejahteraan rakyat.
 Semoga silaturahmi ini membawa berkah untuk masyarakat dan kemenangan bagi Khofifah-Emil. Amin!
 Terima kasih sudah berkunjung xemoticonx xemoticonx
 Lanjutkan.
-Bu Khofifah Gubernur Kita!!
+Bu Khofifah Gubernur Kita
 Pasti menang nomor dua.
 Jawa Timur Maju bersama Bu Khofifah.
 Ramah, peduli masyarakat xemoticonx xemoticonx
@@ -11034,14 +11034,14 @@ Lanjutkan terus.
 Maju terus bu xemoticonx xemoticonx xemoticonx
 Sepakat dengan para pedagang xemoticonx
 Semoga terpilih ya bu.
-Kesejahteraan guru-guru juga ditingkatkan Bu... xemoticonx
+Kesejahteraan guru-guru juga ditingkatkan Bu. xemoticonx
 Alhamdulillah bu xemoticonx xemoticonx xemoticonx
 Luar biasa antusias masyarakatnya xemoticonx xemoticonx
 Masyaallah bu xemoticonx
 Top bu xemoticonx
 Langsung saja datang ke TPS coblos 02 xemoticonx
 Semangat dukung Bu Khofifah.
-Bagaimana ya... Sudah jelas menang begini... wkwkwk... dua xemoticonx
+Bagaimana ya. Sudah jelas menang begini. wkwkwk. dua xemoticonx
 Konkrit sekali masyarakat Jawa Timur dukung Bu Khofifah.
 Alhamdulillah, semoga doa dan harapan masyarakat Jawa Timur agar Ibu Khofifah diterima oleh Allah, dan Jawa Timur semakin maju di tangan beliau.
 Sudah semua Bu Khofifah.
@@ -11560,7 +11560,7 @@ Masyaallah xemoticonx xemoticonx
 Kok mirip pohon juwet?
 Budi sebut, xemoticonx, uhui.
 Ini di rumah temanku di Blitar katanya anggur pohon, rasanya asam-asam manis.
-Berdayakan pertanian lokal!! xemoticonx
+Berdayakan pertanian lokal! xemoticonx
 Anggurnya sepertinya enak xemoticonx xemoticonx
 Mau satu saja di rumah.
 Boleh minta tidak? Sepertinya bagus kalau sekalian jadi tanaman hias xemoticonx xemoticonx
@@ -12302,7 +12302,7 @@ Tetap nomor dua ya bu
 Selalu hadir dalam masyarakat
 Merakyat dan peduli masyarakat, itulah Bu Khofifah
 Kurang hebat apa lagi Bu Khofifah
-Orangnya pintar, baik, dan ramah... Ya Bu Khofifah orangnya
+Orangnya pintar, baik, dan ramah. Ya Bu Khofifah orangnya
 Sudah saatnya Bu Khofifah dua periode xemoticonx xemoticonx
 Tidak pernah lelah untuk membantu masyarakat
 Kalau sudah seperti ini, lanjut atau tidak? Ya lanjutlah
