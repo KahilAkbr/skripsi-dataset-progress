@@ -1,6 +1,6 @@
-Gas pol xemoticonx xemoticonx
+Gas penuh xemoticonx xemoticonx
 Amin ya rabbal alamin
-Muda, cerdas, dan saleh
+Muda, cerdas, saleh
 Amin ya rabbal alamin xemoticonx
 Semoga selalu menjadi pilihan warga Jawa Timur. Bismillah menang, amin xemoticonx
 Semoga hasil survei di dua lembaga survei yang selama ini sangat tinggi dan jauh dari pasangan calon lain sesuai pada kenyataan di tanggal 27 November ini membawa kemenangan. Semangat 02, pemimpin yang mengayomi Jawa Timur, maju, guyub, rukun
@@ -17,7 +17,7 @@ Bismillah. 02 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bismillah melanjutkan kesuksesan bangsa di Jawa Timur
 Amin, bismillah semoga sukses memimpin. Kami dukung doa dari Balikpapan, amin
 Semangat, Pak. Semoga terus amanah dalam mengemban tugas
-Amin xemoticonx sukses buat Bapak Emil xemoticonx xemoticonx xemoticonx
+Amin xemoticonx sukses untuk Bapak Emil xemoticonx xemoticonx xemoticonx
 xemoticonx Amin, sukses selalu
 Semoga menjadi pemenangnya, Mas
 Sudah berjalan sejauh ini xemoticonx xemoticonx
@@ -41,13 +41,13 @@ Bismillah xemoticonx xemoticonx
 Amin xemoticonx xemoticonx xemoticonx
 Bismillah, sukses Mas wakil gubernur xmentionx xemoticonx xemoticonx
 Terharu sekali saya xemoticonx. Selalu menonton dari awal kampanye sampai akhir debat ketiga. Semoga selalu diberkahi Ibu xmentionx dan Pak xmentionx xemoticonx xemoticonx
-Amin. Gas pol Mas xmentionx. Tuhan memberkati. Salam dari Flores, Nusa Tenggara Timur xemoticonx xemoticonx
+Amin. Gas penuh Mas xmentionx. Tuhan memberkati. Salam dari Flores, Nusa Tenggara Timur xemoticonx xemoticonx
 Bismillah, selamat berjuang. Semoga Allah melimpahkan kesehatan dan kemudahan dalam segala urusannya
 Amin ya rabbal alamin xemoticonx
 Bismillah, sukses dunia akhirat untuk keluarga Mas Emil xemoticonx xemoticonx
 Bismillahirrahmanirrahim. Selalu amanah
 Bismillah, Jawa Timur maju dan berprestasi
-xmentionx xmentionx ya ini yang selama ini menjadi pilihan serta harapan untuk terus menjadi pemimpin, tetapi sayangnya kenapa hanya menjadi wakil. Semoga selalu sehat dan panjang umur, serta dilancarkan rezekinya dan dimudahkan dalam segala urusan. xemoticonx mantap dan gas pol selalu Pak Wakil Gubernur Jawa Timur saya xemoticonx xemoticonx xemoticonx xemoticonx
+xmentionx xmentionx ya ini yang selama ini menjadi pilihan serta harapan untuk terus menjadi pemimpin, tetapi sayangnya kenapa hanya menjadi wakil. Semoga selalu sehat dan panjang umur, serta dilancarkan rezekinya dan dimudahkan dalam segala urusan. xemoticonx mantap dan gas penuh selalu Pak Wakil Gubernur Jawa Timur saya xemoticonx xemoticonx xemoticonx xemoticonx
 Amin. xemoticonx
 Mantap, Bang
 Amin ya rabbal alamin. Semoga Allah SWT mewujudkannya
@@ -57,7 +57,7 @@ Amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx rahayu
 Mudah-mudahan menang xemoticonx
 Keren Mas Emil, pasti saya pilih xemoticonx xemoticonx xemoticonx
 Bismillah, kami mendukung Kang Emil menjadi Wakil Gubernur Jawa Timur. Semoga Allah mengabulkan xemoticonx
-Kenapa bisa ya ada orang sesempurna ini xemoticonx
+Kok bisa ya ada orang sesempurna ini xemoticonx
 Amin, sukses untuk Bapak Emil Dardak xemoticonx
 Bu Khofifah dan Mas Emil insyaallah lanjut. Tolong kalau jadi lagi, berikan lapangan kerja untuk para pemuda Jawa Timur agar tidak banyak pengangguran. Kalau banyak pengangguran sudah pasti banyak kejahatan
 Semoga sukses dalam pemilihan kepala daerah Jawa Timur, lanjutkan
@@ -102,18 +102,18 @@ Ustad Zainul, Karangsono, Wonorejo xemoticonx xemoticonx
 Bismillah
 Bismillah 02
 Salam dari Tengger, Mas wakil gubernur xemoticonx xemoticonx
-Orang Trenggalek coblos Kang Emil
+Coblos orang Trenggalek, Kang Emil
 Menang, menang, menang. Lanjutkan dua periode
 Surabaya Barat coblos nomor dua
 Probolinggo nomor dua
-Suaranya memang bagus. Dulu pernah lihat waktu menyanyi di pernikahannya Kahiyang, kalau tidak salah
+Suaranya memang bagus. Dulu pernah melihat waktu menyanyi di pernikahannya Kahiyang, kalau tidak salah
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sudi sekali untuk mendukung Bapak ganteng dua periode memimpin Jawa Timur dong xemoticonx xemoticonx amin
 Ternyata bagus juga suara Pak Emil
 Saya tahu Mas Emil penyanyi dan turun ke dunia politik xemoticonx suka suaranya, adem orangnya xemoticonx
 Suara bagusnya Dek Emil juga didukung otaknya cerdas dan pintar. Semoga bisa mengemban amanah dari rakyat dan menjadi Wakil Gubernur lagi periode yang akan datang xemoticonx
 Meleleh dengarnya. Apalagi istrinya, dinyanyikan seperti ini
 Sukses dan menang insyaallah Mbak Khofifah dan Mas Emil xemoticonx xemoticonx
-Wah keren sekali suaranya Pak Emil xemoticonx xemoticonx
+Wo keren sekali suaranya Pak Emil xemoticonx xemoticonx
 Santun, baik hati, dan bersuara bagus xemoticonx xemoticonx insyaallah bisa melanjutkan Jawa Timur yang lebih baik xemoticonx xemoticonx xemoticonx
 Enaknya. Suaranya bagus, keren
 Keren, suaranya bagus ternyata Pak Emil xemoticonx
@@ -125,7 +125,7 @@ Ketika Bapak menyanyikan lagu ini, seketika jadi mudah dipahami xemoticonx xemot
 Keren suaranya Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Mbak xmentionx
 Calon wakil gubernur terbaik dan terkeren saat ini. Insyaallah makin jaya Pak xmentionx xemoticonx xemoticonx
 Aku kira tadi Once karena suaranya mirip sekali sama Once xemoticonx xemoticonx
-Bukan warga Jawa Timur, tapi kalau lihat postingan Mbak Arumi dan Mas Emil kenapa tidak ada bosan-bosannya xemoticonx
+Bukan warga Jawa Timur, tapi kalau melihat postingan Mbak Arumi dan Mas Emil kenapa tidak ada bosan-bosannya xemoticonx
 Pejabat idola saya. Sudah pintar, ganteng, suaranya bagus, istrinya juga cantik dan rendah hati xemoticonx xemoticonx
 Wow xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pak, saya penggemar. Ya Allah, sebelum Ibu dan Bapak jadi video klip yang menggemaskan, masyaallah xemoticonx
@@ -143,7 +143,7 @@ Kalau penyanyi beneran memang beda ya suaranya dengan yang asal menyanyi xemotic
 Jadi jatuh cinta dengan suaranya Pak xmentionx
 Masyaallah, terima kasih sudah menghibur masyarakat Jawa Timur khususnya dan seluruh Indonesia bisa menikmati suara emas Pak Emil. Bakatnya tidak main-main xemoticonx xemoticonx, cerdas, berpendidikan, dan bertalenta. Bismillah atas rida Allah, pantas sekali dua periode bersama Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
 Muda dan cerdas. Pokoknya lengkap semua ada pada Mas Emil
-Aduh, Mas Emil ini idaman setiap wanita. Jadi halu kalau punya suami seperti Mas Emil, rasanya bagaimana ya wkwkwk sadar, sadar
+Duh, Mas Emil ini idaman setiap wanita. Jadi halu kalau punya suami seperti Mas Emil, rasanya bagaimana ya wkwkwk sadar, sadar
 Ih kaget, suaranya sebagus itu ternyata Bang Emil xemoticonx xemoticonx xemoticonx
 Pak, tolong bantu saya untuk berobat ke Surabaya agar dipermudah. Kasihan kondisi istri saya. Seandainya uang saya banyak seperti Bapak, mungkin hari ini saya bawa ke rumah sakit yang bagus agar cepat ditangani
 Aduh, suaranya xemoticonx
@@ -152,14 +152,14 @@ Selalu menyala suaranya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Wah, semangat xmentionx xemoticonx xemoticonx
 Dulu saya sempat berpikir kalau beliau adalah Elo xemoticonx xemoticonx
 Suaranya bagus xemoticonx xemoticonx
-Mantap, gas pol. Pak Emil dan Bu Khofifah xemoticonx xemoticonx
+Mantap, gas penuh. Pak Emil dan Bu Khofifah xemoticonx xemoticonx
 Wah, suaranya bagus Pak Emil xemoticonx xemoticonx xemoticonx
 Coba lagu daerah Palembang, duet sama istrinya xmentionx
 Sudah ganteng, suaranya bagus, penuh cinta pula sama istri xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga Allah selalu melindungi pernikahan xmentionx dan Pak xmentionx. Amin xemoticonx xemoticonx
 Baru ingat kalau Pak Emil itu penyanyi. Sukses selalu, Bapak dan Ibu xemoticonx
 Bismillah, menang dua periode. Lanjutkan Bapak xmentionx xemoticonx xemoticonx xemoticonx
-Senang sekali melihat pasangan idola saya yang keren ini. Muda, cantik, ganteng, cerdas, dan murah senyum. Sehat, bahagia xemoticonx, semakin sukses. Mas Emil suaranya oke. Aku yes! xemoticonx xemoticonx xemoticonx
+Senang sekali melihat pasangan idola saya yang keren ini. Muda, cantik, ganteng, cerdas, dan murah senyum. Sehat, bahagia xemoticonx, semakin sukses. Mas Emil suaranya oke. Aku ya! xemoticonx xemoticonx xemoticonx
 Mbak xmentionx, saya warga Kediri siap mendukung Bu xmentionx dan Pak xmentionx lagi
 Memang yang terbaik untuk Jawa Timur tetap Pak xmentionx xemoticonx xemoticonx
 Suka suara dan lagunya, keren xemoticonx xemoticonx xemoticonx xemoticonx
@@ -202,7 +202,7 @@ Harusnya yang jadi gubernurnya Pak Emil deh xemoticonx
 Enak sekali suaranya, Pak xemoticonx xemoticonx xemoticonx
 Cocok menjadi artis
 Mudah didengar sekali suaranya
-xemoticonx xemoticonx xemoticonx sukses buat Pak Emil
+xemoticonx xemoticonx xemoticonx sukses untuk Pak Emil
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Surabaya hadir
 Suaranya bikin teduh xemoticonx
 Keren sekali Pak Wakil Gubernur
@@ -211,7 +211,7 @@ Keren xemoticonx
 Tidak rekaman lagi ya Mas Emil xemoticonx
 Lanjutkan Pak Emil xemoticonx xemoticonx
 Masyaallah keren
-Aduh jadi meleleh deh karena suara Pak Emil xemoticonx
+Duh jadi meleleh deh karena suara Pak Emil xemoticonx
 Wah suaranya bagus xemoticonx xemoticonx xemoticonx
 Tidak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mantan penyanyi xemoticonx
@@ -230,24 +230,24 @@ Aduh xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sehat selalu ya Mbak Arumi cantik xemoticonx xemoticonx
 Sehat selalu xemoticonx
 Suaranya xemoticonx merdu xemoticonx xemoticonx
-Wah keren oi
+Wow keren woi
 Pak Emil dan Bu Arumi dari kecil memang sudah memiliki energi positif dan makin bertumbuh terus menerus energi positifnya. Masyaallah dahsyat, Pak
 Keren xemoticonx xemoticonx tapi lebih cocok menyanyi sama Kahitna xemoticonx ayo bisa ayo gabung Kahitna Pak xmentionx ya kan Bu? xmentionx xemoticonx
 Lo lo Mas Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bagus suaranya dan lebih baik dari penyanyinya
 Ih keren xemoticonx xemoticonx xemoticonx
-Wah xemoticonx xemoticonx
+Wow xemoticonx xemoticonx
 Keren sekali Pak Emil
 Enak lo suaranya, keren sekali xemoticonx xemoticonx
-Kenapa keren suaranya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Kok keren suaranya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mantap xemoticonx
-Suka sekali lihat pasangan satu ini xemoticonx Pak Emil dan Bu Arumi. Semoga Allah menyatukan kalian hingga surga-Nya. Amin
+Suka sekali melihat pasangan satu ini xemoticonx Pak Emil dan Bu Arumi. Semoga Allah menyatukan kalian hingga surga-Nya. Amin
 Masyaallah bagusnya suara Pak Emil bernyanyi, keren sekali dan semoga Pak Emil sukses
 Terpesona xemoticonx xemoticonx xemoticonx
 Dan aku benar-benar jatuh cinta padamu, Mas. Maaf ya Mbak Arumi. Cuma cinta tanpa ingin memiliki xemoticonx xemoticonx xemoticonx xemoticonx
 Bagus suaranya
 Hebat Mas Emil. Zaman masih tinggal Kompleks Bina Marga jiwa musisinya sudah kelihatan dari kecil. Salam sama Mama ya, Mas
-Keren, ya xemoticonx xemoticonx xemoticonx
+Keren xemoticonx xemoticonx xemoticonx
 Keren xemoticonx
 Keren xemoticonx
 Paket komplet ya Bu xmentionx xemoticonx xemoticonx sukses selalu untuk Pak Emil
@@ -255,7 +255,7 @@ Lumajang hadir xemoticonx
 Masyaallah Bapak Wakil Gubernur saya keren sekali suaranya Bapak Emil xemoticonx xemoticonx xemoticonx
 Keren Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Keren
-bagaimana rasanya punya suami multitalenta seperti Pak Emil ini Mbak Arumi? Semoga sakinah mawadah warahmah sampai surga
+Yuh bagaimana rasanya punya suami multitalenta seperti Pak Emil ini Mbak Arumi? Semoga sakinah mawadah warahmah sampai surga
 Bagus
 Suaranya mirip vokalis Hello Band
 xmentionx wah tidak bahayakah xemoticonx xemoticonx
@@ -263,11 +263,11 @@ Keren calon wakil gubernur kita xmentionx
 Keren xemoticonx
 Makin terpikat deh warga Jawa Timur xemoticonx
 Keren, semangat sukses selalu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Wah mantap suaranya merdu sekali xemoticonx xemoticonx xemoticonx xemoticonx
+Wow mantap suaranya merdu sekali xemoticonx xemoticonx xemoticonx xemoticonx
 Aman Bu xmentionx
 Ya Allah suaranya bagus sekali xemoticonx
-Wah melengking xemoticonx xemoticonx
-Kenapa kalau begini mirip Raffi Ahmad ya xemoticonx
+Wow melengking xemoticonx xemoticonx
+Kok kalau begini mirip Raffi Ahmad ya xemoticonx
 Masyaallah suaranya keren sekali Pak Emil xemoticonx
 Harusnya Mas Emil yang jadi wakil presiden xemoticonx
 Keren idola saya xemoticonx Mas Emil
@@ -289,7 +289,7 @@ Masyaallah ternyata suara Pak Emil keren sekali xemoticonx sukses selalu Pak Emi
 Memang multitalenta sekali kalau Mas Emil xemoticonx xemoticonx xemoticonx xemoticonx
 Ternyata sebagus itu suaranya Pak Emil xemoticonx xemoticonx
 Menyala Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx. Asli asyik vokalnya. Bisa jadi alternatif vokalis band Dewa nih. Hehehehe
-Wah
+Wow
 Masyaallah xemoticonx xemoticonx
 Keren pejabat yang ganteng, ramah, sayang istrinya yang cantik, sayang anak, dan sayang pada rakyatnya. Masyaallah keluarga yang sakinah, mawadah, warahmah. Sukses dunia akhirat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah tabarakallah, Pak Emil suaranya merdu sekali
@@ -302,13 +302,13 @@ Masyaallah, kerennya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemo
 Keren xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah keren sekali suaranya, Pak
 Bagus suaranya
-Aduh, Dewa bisa geser nih xemoticonx
+Waduh, Dewa bisa geser nih xemoticonx
 Kerennya xemoticonx xemoticonx
 Suaranya Pak Emil bagus sekali xemoticonx xemoticonx
 02 ya
 Keren, sukses selalu Pak Emil xemoticonx xemoticonx xemoticonx
 Ah bagus xemoticonx
-Yang seperti ini satu dong buat saya xemoticonx xemoticonx
+Yang seperti ini satu dong untuk saya xemoticonx xemoticonx
 Masyaallah Mbak xmentionx suaminya tr xemoticonx
 Keren, bagus sekali
 Tidak kalah sama Judika xemoticonx
@@ -343,7 +343,7 @@ Wakil gubernur terbaik pokoknya xemoticonx Jawa Timur oke di tangan Bapak. Semog
 Wah keren
 Masyaallah
 Ya ampun, orang ini apa ya kekurangannya? xemoticonx xemoticonx xemoticonx xemoticonx
-Wah 100, keren sekali, menyala xemoticonx
+Wow 100, keren sekali, menyala xemoticonx
 Masyaallah keren suaranya Pak Emil, tidak menyangka lo xemoticonx xemoticonx xemoticonx
 Emil xemoticonx xemoticonx Khofifah xemoticonx
 Suaranya keren xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -354,7 +354,7 @@ Keren sekali ih xemoticonx xemoticonx xemoticonx
 Keren, bagus sekali suara Pak Emil xemoticonx xemoticonx
 Keren sekali Mas Wakil Gubernur. Bangga. Ayo kebudayaan Jawa Timur dimajukan
 Masyaallah ternyata jago menyanyi juga. Keren nih wakil gubernur saya xemoticonx xemoticonx xemoticonx
-Keren pol Pak Emil, sudah tidak ada tandingannya xemoticonx
+Keren sekali Pak Emil, sudah tidak ada tandingannya xemoticonx
 Pak Emil, saya dari Kota Jambi terus terang sudah jatuh cinta dengan keluarga Bapak dan mengidolakan kalian sebagai paket komplet. Masyaallah tabarakallah Allahumma barik xmentionx xmentionx
 Pak Emil suaranya xemoticonx xemoticonx xemoticonx xemoticonx
 Keren pintar xemoticonx xemoticonx suara enak xemoticonx
@@ -364,7 +364,7 @@ xemoticonx xemoticonx bagus suaranya
 Bawa Dewa ke Trenggalek ya, Om
 Izin bagikan, Bunda xmentionx boleh kan karena ini bagus sekali xemoticonx
 Bagus sekali suaranya, Pak xemoticonx xemoticonx
-Wah versi Mas Emil enak sekali suaranya, lagunya keren
+Wow versi Mas Emil enak sekali suaranya, lagunya keren
 Aduh jadi ingat masa SMA Pak Emil xemoticonx
 xemoticonx pacar khayalanku
 Apakah dulu Pak Emil mantan vokalis xemoticonx
@@ -373,15 +373,15 @@ Wah, tidak kalah sama Indonesian Idol nih. Keren xemoticonx xemoticonx xemoticon
 Pantas saja Bu Arumi terpanah xemoticonx
 Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bagus sekali suara Pak Emil, sampai merinding dengarnya xemoticonx xemoticonx xemoticonx xemoticonx
-Buat yang tidak tahu, dulu itu beliau penyanyi ya teman-teman, jadi suaranya memang tidak diragukan lagi xemoticonx
+Untuk yang tidak tahu, dulu itu beliau penyanyi ya teman-teman, jadi suaranya memang tidak diragukan lagi xemoticonx
 Paket komplet Mas Emil, keren, cocoknya jadi presiden yang akan datang
 Paket lengkap memang Mas Emil. Beruntung sekali Mbak Arumi, tapi sama-sama beruntung sih
 Mirip suara Ello
 Bagus suaranya dan rendah hati orangnya xemoticonx
 Suaranya bagus sekali xemoticonx
-Wah keren
+Wow keren
 Mantap keren suaranya xemoticonx xemoticonx
-Wah gila suaranya xemoticonx xemoticonx semoga menang ya, Pak xemoticonx xemoticonx
+Weh gila suaranya xemoticonx xemoticonx semoga menang ya, Pak xemoticonx xemoticonx
 Suaranya bagus
 Selamat jadi wakil gubernur lagi Pak Emil. Masyarakat Jawa Timur insyaallah tidak salah pilih xemoticonx xemoticonx xemoticonx
 Keren
@@ -420,11 +420,11 @@ xmentionx tolong xmentionx dikontrak
 Boleh juga suaranya. Rehat dari wakil gubernur bisa jadi vokalis Dewa
 Lah Mas Emil suaranya keren ya! Sukses Mas Emil
 Keren xemoticonx Pak Emil. Wah xemoticonx xemoticonx
-Selamat bertugas, Pak xemoticonx xemoticonx xemoticonx xemoticonx
+Aduh aduh aduh, Selamat bertugas, Pak xemoticonx xemoticonx xemoticonx xemoticonx
 Keren Mas Emil xemoticonx xemoticonx xemoticonx xemoticonx
-bagaimana Bu xmentionx tidak terpesona coba, sudah pintar, sayang keluarga, romantis lagi
+Bagaimana Bu xmentionx tidak terpesona coba, sudah pintar, sayang keluarga, romantis lagi
 Ini di studionya Mas Ahmad Dhani ya
-Bu apakah liriknya ada yang salah? xemoticonx selamat buat Pak Emil
+Bu apakah liriknya ada yang salah? xemoticonx selamat untuk Pak Emil
 Keren, Kang
 Ya Allah ternyata suaranya cetar ya Pak Emil. Suka deh
 Terpantau ada perubahan lirik ya Pak xmentionx hehe
@@ -451,7 +451,7 @@ Sampah banyak
 xemoticonx xemoticonx xemoticonx sehat selalu, Pak
 Mudah-mudahan berhasil baik ya, Pak Emil. Salam dari Banda Aceh untuk Ibu Arumi
 Semoga lancar dan semakin sukses, cemerlang kariernya. Amin
-Menyala, gas pol xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Menyala, gas penuh xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Menyala 02 lanjutkan
 Mas hari ini saya ke Jawa Timur Expo ingin bertemu Mas Emil
 Pak Emil kalau sudah menang ingat buruh pabrik diperhatikan, Pak xemoticonx xemoticonx
@@ -466,7 +466,7 @@ Jawa Timur sekarang makin maju dan berprestasi, semua berkat kepemimpinan Mas Em
 Mas Emil xemoticonx xemoticonx xemoticonx
 Mas Emil tetap pilihan saya
 Mas Emil dan Mbak Arumi, pemenang sejati untuk Jawa Timur. Teruslah berbuat yang terbaik
-Tidak ada bosan-bosannya lihat pasangan Bapak dan Ibu ini. Selamat xemoticonx xemoticonx xemoticonx
+Tidak ada bosan-bosannya melihat pasangan Bapak dan Ibu ini. Selamat xemoticonx xemoticonx xemoticonx
 Selamat atas kemenangan Jawa Timur Maju Berprestasi. Semoga terus sukses, Mas Emil dan Mbak Arumi
 Pasti bangga sekali bisa mendukung Mas Emil dan Mbak Arumi, Jawa Timur Maju Berprestasi. Ayo terus semangat
 Aduh, gemas sekali sih xemoticonx xemoticonx xemoticonx
@@ -481,7 +481,7 @@ Ramai sekali hari ini di DBL, tapi sayangnya tidak dapat tiket padahal kantor sa
 Mas Emil dan Mbak Arumi sudah memberi teladan untuk kita semua. Jawa Timur sekarang jadi provinsi paling maju
 27 November 2024 untuk Khofifah-Emil xemoticonx xemoticonx xemoticonx
 Cantik sekali Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx bismillah ya Bu xemoticonx xemoticonx
-Di tempat saya juga lagi bersholawat untuk kemenangan nomor dua Bu xmentionx. Gubernur nomor dua, Bupati nomor dua xemoticonx xemoticonx
+Di tempat saya juga lagi bersalawat untuk kemenangan nomor dua Bu xmentionx. Gubernur nomor dua, Bupati nomor dua xemoticonx xemoticonx
 Yang selalu setia menemani Bapak calon wakil gubernur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Aku orang Malang tetap memilih orang ini
 Kemenangan Jawa Timur Maju Berprestasi tidak hanya prestasi, tetapi sebagai bukti nyata kerja keras Mas Emil dan Mbak Arumi
@@ -491,7 +491,7 @@ Ayo semua warga Jawa Timur, kita harus terus dukung Mas Emil dan Mbak Arumi supa
 Konser tidak jelas sekali. Yang tidak punya tiket boleh masuk karena datang cepat, sedangkan yang punya tiket tidak boleh masuk karena terlambat. Kalau memang konsernya dikhususkan untuk pengangguran karena yang kerja, sekolah, kuliah tidak dianggap, tidak jelas sekali
 Mbak Arumi xemoticonx
 Alhamdulillah tidak sia-sia tetap Mas Emil
-Semoga serentak Jawa Timur memilih Khofifah Emil xemoticonx xemoticonx lanjut gas pol
+Semoga serentak Jawa Timur memilih Khofifah Emil xemoticonx xemoticonx lanjut gas penuh
 Sukses selalu xemoticonx
 Eh ada kita xmentionx
 Kiya besar ini sih masyaallah miripnya xemoticonx xemoticonx xemoticonx
@@ -516,7 +516,7 @@ Satu-satunya kepala daerah yang saya idolakan bapak ini, ganteng, keren, dan tid
 Ganteng dan cantik, pintar, baik hati, selalu mesra, semoga lanjut ya mas dan mbak xemoticonx
 Semangat Bu Arumi xemoticonx xemoticonx
 Pasangan idaman xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Gas pol xemoticonx
+Gas penuh xemoticonx
 Lanjutkan nomor dua pilihanku
 Semangat ya, semoga sukses xemoticonx
 Bismillah ibu xemoticonx semangat bapak xemoticonx xemoticonx
@@ -532,7 +532,7 @@ Sehat selalu Bapak xemoticonx Ibu xemoticonx xemoticonx xemoticonx xemoticonx xe
 Semoga bisa kembali memimpin provinsi Jawa Timur lagi, amin
 Sehat selalu bapak mantan bupatiku Trenggalek xemoticonx xemoticonx
 Pokoknya Mas Emil xemoticonx
-Aduh Nganjuk tidak pernah dikunjungi sama pak wakil ini
+Wah Nganjuk tidak pernah dikunjungi sama pak wakil ini
 2024 Jawa Timur, 2029 Jakarta
 Semangat Pak Emil
 Ayo tidak ayo
@@ -579,7 +579,7 @@ Selamat ya mbak jadi Ketua PKK Jawa Timur lagi tahun depan xemoticonx
 Bismillah, semoga Allah meridai Ibu Khofifah dan Bapak Emil menjadi gubernur Jawa Timur, amin
 Desanya kesulitan air pak xemoticonx xemoticonx xemoticonx
 Pak Emil jangan lupa buruh pabrik diperhatikan lagi Pak Emil xemoticonx xemoticonx
-Lihat xemoticonx orang desa, jangan cuma di pasar saja xemoticonx UMKM saja
+melihat xemoticonx orang desa, jangan cuma di pasar saja xemoticonx UMKM saja
 Mas xmentionx insyaallah pasti menang untuk Jawa Timur xmentionx xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mohon diperjuangkan para tenaga kesehatan bapak xmentionx gaji kami sangat minim sekali xemoticonx
 Bismillah dua periode
@@ -598,10 +598,10 @@ Semoga dilancarkan ya pak xmentionx dijauhkan dari apa pun yang menghalangi perj
 Pasti dong bu xemoticonx
 Bismillah Probolinggo lanjutkan xemoticonx
 Kang Emil kenapa manis banget xemoticonx
-Aduh lihat postingan pasangan sejoli ini bikin senyum xemoticonx sendiri. Selalu tampil apa adanya. Romantisnya natural banget xemoticonx xemoticonx xemoticonx sehat xemoticonx selalu xemoticonx xemoticonx xemoticonx xemoticonx
+Aduh melihat postingan pasangan sejoli ini bikin senyum xemoticonx sendiri. Selalu tampil apa adanya. Romantisnya natural banget xemoticonx xemoticonx xemoticonx sehat xemoticonx selalu xemoticonx xemoticonx xemoticonx xemoticonx
 Mendukung penuh Pak Emil, selalu mendukung. Semoga besok lima tahun ke depan menjadi Pak Gubernur. Sukses selalu Pak Emil
 xemoticonx menyala untuk Jawa Timur nomor dua
-Aku membayangkan yang mensyuting apa tidak tertawa ya tahu kelakuannya Bu Arumi xemoticonx. Aku saja lihat videonya masih tertawa sendiri xemoticonx xemoticonx xemoticonx
+Aku membayangkan yang mensyuting apa tidak tertawa ya tahu kelakuannya Bu Arumi xemoticonx. Aku saja melihat videonya masih tertawa sendiri xemoticonx xemoticonx xemoticonx
 Air bersih Pak, khususnya daerah Kalirejo xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx coblos Khofifah Emil xemoticonx xemoticonx xemoticonx xemoticonx semoga Jawa Timur seluruhnya memilih xemoticonx xemoticonx xemoticonx menang menang
 Harusnya berani mencalonkan gubernur, nama lebih tenar dibanding Khofifah
@@ -637,7 +637,7 @@ Tuhan memberkati xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemotico
 Nomor dua idola saya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mbak xmentionx mau saya kirimkan madu mongso tidak? xemoticonx xemoticonx Asli resep warisan mertua saya
 Pasti jadilah orang pintar yang memimpin Jawa Timur. Bu Khofifah dan Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx gas pol, coblos wajah ganteng Mas Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx gas penuh, coblos wajah ganteng Mas Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Suka banget sama xmentionx gayanya yang natural. Kalau menurut saya Bu xmentionx gayanya selalu meniru Bu Arumi dari gaya berkerudung, gaya mesra-mesranya sama suami xemoticonx xemoticonx maaf cuma pengamat tidak niat hujat, tapi suka juga sih sama Bu Novi
 Yang penting 02 xemoticonx xemoticonx
 02 menang menang ya Bu Arumi
@@ -660,7 +660,7 @@ Gas 02
 Tetap Bu Khofifah Pak Emil xemoticonx
 Pak Emil kapan mencalonkan gubernur
 Keren menyala xemoticonx xemoticonx xemoticonx
-Masyaallah, baru kapan hari lihat langsung Bu Arumi waktu tayangan perdananya film Bila Esok Ibu Tiada di XXI TP 1, satu eskalator padahal tapi tidak sadar kalau Bu Arumi di belakang karena terkejut lihat cantiknya tidak nyata banget kayak boneka. Mau nyapa dan minta foto takut xemoticonx segan. Pas sampai bioskop baru menyesal kenapa tidak minta foto waktu satu eskalator xemoticonx
+Masyaallah, baru kapan hari melihat langsung Bu Arumi waktu tayangan perdananya film Bila Esok Ibu Tiada di XXI TP satu, satu eskalator padahal tapi tidak sadar kalau Bu Arumi di belakang karena terkejut melihat cantiknya tidak nyata banget kayak boneka. Mau nyapa dan minta foto takut xemoticonx segan. Waktu sampai bioskop baru menyesal kenapa tidak minta foto waktu satu eskalator xemoticonx
 Bismillah Mas Ipin, terus lanjut pimpin Trenggalek ya
 Dulu pembaruan Trenggalek ketika Bapak di sana
 Manis sekali xemoticonx
@@ -698,7 +698,7 @@ Silaturahmi yang seperti ini harus terus dijaga. Mas Emil sudah memberikan conto
 Kehadiran Mas Emil di Dusun Poleng menambah suasana adem. Semoga tali persaudaraan makin kuat
 Masyaallah Mas Emil patut diacungi jempol
 Lanjutkan Pak Emil
-Adem lihat Bapak Emil ini, teduh banget orangnya, sukses, maju terus Pak xemoticonx xemoticonx
+Adem melihat Bapak Emil ini, teduh banget orangnya, sukses, maju terus Pak xemoticonx xemoticonx
 Singkat padat tuntaskan xemoticonx xemoticonx xemoticonx xemoticonx
 Lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx
 Salam dua periode xemoticonx xemoticonx xemoticonx
@@ -715,7 +715,7 @@ Menang pasti menang xemoticonx xemoticonx xemoticonx xemoticonx
 Lanjutkan xemoticonx xemoticonx xemoticonx
 Semoga menang satu putaran xemoticonx xemoticonx xemoticonx
 Bismillah menang satu putaran xemoticonx
-GAS POL xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+GAS penuh xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Saya mau tanya, sekolah katanya sudah tidak bayar, tapi masih ada sekolah yang ditarik bulanan uang gedung. Tolong deh Pak seandainya bisa jadi lagi, tolong dipantau wilayah Malang Selatan
 Bismillah semoga Mas Emil menang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Program pembangunan infrastruktur di Jawa Timur saat ini sudah semakin berkemajuan dan membangun interkoneksitas tidak hanya antar daerah di Jawa Timur tetapi juga antara Indonesia Barat dan Indonesia Timur xemoticonx xemoticonx xemoticonx xemoticonx menuju Gerbang Baru Nusantara xemoticonx xemoticonx Indonesia Emas 2045
@@ -751,9 +751,9 @@ Keren banget Mas Emil dan Mbak Arumi! Pemimpin yang tidak takut turun langsung k
 Sukses terus Mas Emil dan Mbak Arumi, jalan pagi bareng tetangga itu langkah kecil yang berarti
 Aku orang kamu Mas Emil xemoticonx
 Wah pasangan yang sangat kompak dan kreatif ini xemoticonx
-Salut Mas Emil dan Mbak Arumi! Mereka selalu ada buat masyarakat, jalan pagi bareng-bareng warga begini
+Salut Mas Emil dan Mbak Arumi! Mereka selalu ada untuk masyarakat, jalan pagi bareng-bareng warga begini
 Benar-benar aura pemimpin idaman xemoticonx
-Wah keren banget Mas Emil dan Mbak Arumi, mereka selalu meluangkan waktu buat bareng warga
+Wah keren banget Mas Emil dan Mbak Arumi, mereka selalu meluangkan waktu untuk bareng warga
 Masyaallah berkah berkah Bapak xmentionx xemoticonx
 Pasangan ini di mana pun tetap kompak xemoticonx
 Salut sama Mas Emil dan Mbak Arumi, selalu dekat dengan warga
@@ -771,13 +771,13 @@ Tidak hanya kata-kata, Mas Emil dan Mbak Arumi buktikan lewat jalan pagi bareng 
 Mas Emil dan Mbak Arumi memang pantas jadi pemimpin yang dekat dengan rakyat
 Memang penyejuk hati, bisa merangkul semua kalangan, semua terlahir ke xemoticonx ketulusan hati. Semoga Ya Malik menganugerahkan kesehatan, keselamatan, kebahagiaan, dan hajatnya dimudahkan Allah. Amin
 Kapan Mas Emil ke Rungkut Barata? Banyak lo yang mengidolakan xemoticonx
-Lihat debat semalam, Mas Emil kelasnya sudah bukan calon wakil gubernur tapi minimal calon gubernur bahkan sudah cocok jadi menteri. Kalau punya KTP Jawa Timur pasti coblos pasangan calon ini sih. Ayo teman-teman di Jawa Timur tanggal 27 coblos nomor xemoticonx xemoticonx xemoticonx ya
+melihat debat semalam, Mas Emil kelasnya sudah bukan calon wakil gubernur tapi minimal calon gubernur bahkan sudah cocok jadi menteri. Kalau punya KTP Jawa Timur pasti coblos pasangan calon ini sih. Ayo teman-teman di Jawa Timur tanggal 27 coblos nomor xemoticonx xemoticonx xemoticonx ya
 Pak xemoticonx xemoticonx xemoticonx xemoticonx
 Menyala Mas Emil xemoticonx xemoticonx xemoticonx xemoticonx
 Mantap dan keren dari segala sisi. Lanjutkan dua periode xemoticonx xemoticonx
 Bapak Emil paket lengkap sebagai calon wakil gubernur xemoticonx
 Menyala Bapak Emil xemoticonx xemoticonx xemoticonx
-Sering lihat kampanye 02 selalu xemoticonx sejuk xemoticonx santun dan terlihat riang gembira. 02 terbaik
+Sering melihat kampanye 02 selalu xemoticonx sejuk xemoticonx santun dan terlihat riang gembira. 02 terbaik
 Mau dong Pak seperti ini diadakan di Malang
 Menyala xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx salam dua periode
 Terbaik. Wakil gubernur idamannya anak-anak Trenggalek xemoticonx
@@ -798,7 +798,7 @@ Gokil sih jadi vokalis HIVI xemoticonx xemoticonx
 Gagah Mas Wakil Gubernur
 Amin xemoticonx xemoticonx Terima kasih banyak Pak Wakil Gubernur, semoga ikhtiar dilancarkan xemoticonx xemoticonx
 Lingkungan saya tercemar udaranya karena pabrik penggergajian serbuk kayu belakang blok rumah Pak. Serbuk kayunya ditaruh di ruang terbuka. Mohon bantuannya Bapak agar segera dapat teratasi
-Semoga sehat lancar sukses buat Bu Khofifah xemoticonx Pak Emil. Amin
+Semoga sehat lancar sukses untuk Bu Khofifah xemoticonx Pak Emil. Amin
 Pak Emil, saya warga Green Hill, Sekarkurung, Gresik
 Monggo lanjutkan xemoticonx xemoticonx
 Pak Emil belum ada tim sukses yang mengunjungi wilayah kami Desa Gempol Kabupaten Pasuruan, justru tim sukses dari pasangan calon 01 semalam sudah bergerak Pak Emil, mohon jangan kalah mulai
@@ -809,21 +809,21 @@ Semoga lancar Bapak Emil. Semoga menang lagi. Tetap santun beretika saling horma
 Bismillah, sukses Pak Emil xemoticonx xemoticonx
 xmentionx kenal tidak
 Sepuluh hari lagi xemoticonx xemoticonx
-Mengakulah siapa yang pada ikutan senyum di sini kita lihat Pak Emil xemoticonx Bu Arumi, gemas banget xemoticonx xemoticonx xemoticonx
-Ya Allah Bu Arumi mengidam ini banget dari bulan lalu. Mencari xemoticonx di daerah saya tidak ketemu xemoticonx xemoticonx
-Masyaallah tetap rendah hati, negara ini membutuhkan pemimpin yang merakyat, sehat xemoticonx buat semua
+Mengakulah siapa yang pada ikutan senyum di sini kita melihat Pak Emil xemoticonx Bu Arumi, gemas banget xemoticonx xemoticonx xemoticonx
+Ya Allah Bu Arumi mengidam ini banget dari bulan lalu. Mencari xemoticonx di daerah saya tidak ditemukan xemoticonx xemoticonx
+Masyaallah tetap rendah hati, negara ini membutuhkan pemimpin yang merakyat, sehat xemoticonx untuk semua
 Masyaallah romantisnya xemoticonx
 Demi apa coba. Main makan saja apa yang kamu suapin. Asam atau pahit pun tetap aku lakukan. Iya karena di dalamnya tetap ada manisnya dirimu duhai istriku xemoticonx xemoticonx
 Juwet. Buah buruan waktu kecil xemoticonx
 Aduh asem itu xemoticonx
 Tidak apa-apa yang penting yang ngasih istri yang manis xemoticonx
-Kasihan lihat ekspresinya Pak Emil xemoticonx xemoticonx xemoticonx
+Kasihan melihat ekspresinya Pak Emil xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx mau dibuang tidak enak sama penjualnya, ajudannya pun ikut menertawakan
-Suka banget lihat pasangan ini, insyaallah bakal dukung Pak Emil
-Waduh juwet, kalau makan dicampur garam jadi manis kayak Ibu Wakil Gubernur xemoticonx xemoticonx
-Ih Mbak Arumi mengerjai Mas Emil ya xemoticonx xemoticonx xemoticonx aku jadi ketawa sendiri
+Suka banget melihat pasangan ini, insyaallah bakal dukung Pak Emil
+Aduh juwet, kalau makan dicampur garam jadi manis kayak Ibu Wakil Gubernur xemoticonx xemoticonx
+Ih Mbak Arumi mengerjai Mas Emil ya xemoticonx xemoticonx xemoticonx aku jadi tertawa sendiri
 Haha ada-ada saja Bu xmentionx xemoticonx
-Gemas lihat Bu Arumi masyaallah, cantik, lucu, apa adanya. Semoga langgeng dan bahagia hingga surga-Nya ya dengan Pak Emil. Amin ya rab xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Gemas melihat Bu Arumi masyaallah, cantik, lucu, apa adanya. Semoga langgeng dan bahagia hingga surga-Nya ya dengan Pak Emil. Amin ya rab xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah. Bu Arumi bisa saja. Targetnya juga pasrah xemoticonx. Sehat dan sukses selalu Pak Emil Bu Arumi
 Lama tidak makan duwet
 xemoticonx xemoticonx xemoticonx maaf Pak Ibu saya tertawa xemoticonx xemoticonx xemoticonx xemoticonx
@@ -833,17 +833,17 @@ xemoticonx xemoticonx asam
 Juwet. Mau
 Sudah langka sekarang susah banget di sini menemukan buah juwet, masih ingat
 Kulihat berulang-ulang dan tertawa terus. Bu Arumi cantik jail sekali xemoticonx xemoticonx
-Asam Pak itu obatnya di depan Bapak persis manis pol xemoticonx istrinya sendiri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Asam Pak itu obatnya di depan Bapak persis manis sekali xemoticonx istrinya sendiri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ingin. Di Jakarta di mana ya yang jual xemoticonx
 Mbak Arumi jadi ingin deh makan juwet
-Itu juwet, enak banget, sayangnya sekarang tinggal di Bandung tidak ketemu itu buah juwet, jarang ada
+Itu juwet, enak banget, sayangnya sekarang tinggal di Bandung tidak ditemukan itu buah juwet, jarang ada
 Padahal Bapak Wakil Gubernur manis kayak gula jawa dikasih pula yang asam sama Bu Wakil Gubernur xemoticonx xemoticonx xemoticonx
 Dikocok pakai garam enak
 Itu juwet adalah makanan khas yang mulai jarang ditemukan di perkotaan padahal zaman waktu masih kecil dulu the juwet adalah populer kegemaran di zamannya xemoticonx xemoticonx xemoticonx xemoticonx
-Tertawa lihat ekspresi Pak Emil xemoticonx xemoticonx xemoticonx
+Tertawa melihat ekspresi Pak Emil xemoticonx xemoticonx xemoticonx
 BSD Serpong sini banyak. Baru kemarin beli 20.000 xemoticonx Bekasi xemoticonx
 Anggur jowo. Kalau di Solo sebutannya DUWET. Pohonnya kebanyakan ada di kuburan xemoticonx pemakaman xemoticonx. Dimakannya dicocoli garam xemoticonx enak xemoticonx. Tapi buah ini di Solo sudah langka
-Tadi pagi waktu ke pasar ketemu ada orang jual anggur Jawa ini xemoticonx juwet
+Tadi pagi waktu ke pasar bertemu ada orang jual anggur Jawa ini xemoticonx juwet
 Lo enaknya juwet. Mau xemoticonx
 Anggur jowo lo itu xemoticonx xemoticonx
 Berani iseng usil ya untung suami tercinta saja sesimpel itu dia tersenyum xemoticonx xemoticonx xemoticonx
@@ -870,7 +870,7 @@ Ekspresi Mas Emil xemoticonx xemoticonx xemoticonx untung istrinya cantik. Jadi 
 Besok-besok gantian mengerjai istri ya Bang xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Saya suka pasangan Pak Emil dan Bu Arumi. Pak Emil kepribadiannya sangat menghormati begitu. Disuguhi apa saja dimakan. Menghargai tanpa menolak. Itu baru mantap
 Pak Emil sangat menjaga etika, kalau orang lain pasti langsung terkena muntahan penuh drama
-Xixi ikut senyum-senyum sendiri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx lihat dua pasangan idola saya yang satu cantik pol sederhana apa adanya yang satu ganteng tidak sombong dan sayang banget istri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Xixi ikut senyum-senyum sendiri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx melihat dua pasangan idola saya yang satu cantik sekali sederhana apa adanya yang satu ganteng tidak sombong dan sayang banget istri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx wah pasar dekat rumah tapi tidak tahu ada Ibu xmentionx xemoticonx xemoticonx xemoticonx
 Yang sabar ya Pak Emil xemoticonx
 Ada-ada saja Neng Arumi ini xemoticonx
@@ -886,13 +886,13 @@ Calon pemimpin bangsa xemoticonx xemoticonx
 Makannya dikocok sama gula
 Aku ikutan senyum lo xemoticonx
 Kalau di tempat saya Semarang duwet namanya. Rasanya sepet-sepet kecut xemoticonx
-Masyaallah. Di Purwosari Bu Khofifah di pasar Lawang. Kenapa waktu saya ke pasar ya xemoticonx xemoticonx. Ingin ketemu Mbak Arumi xemoticonx xemoticonx
+Masyaallah. Di Purwosari Bu Khofifah di pasar Lawang. Kenapa waktu saya ke pasar ya xemoticonx xemoticonx. Ingin bertemu Mbak Arumi xemoticonx xemoticonx
 Dikocok pakai garam. Buah masa kecil
 Djuwet xemoticonx jamblang xemoticonx Jakarta
 xemoticonx xemoticonx xemoticonx xemoticonx semoga selalu sehat sekeluarga dan banyak rezekinya. Amin ya rabbal alamin
 Semangat sehat xemoticonx bahagia dan sukses terus xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx manis banget sih
-Aduh mulut saya bisa buat berenang kuman-kuman gigi nih xemoticonx banyak air ludahnya lihat yang asam-asam
+Aduh mulut saya bisa untuk berenang kuman-kuman gigi nih xemoticonx banyak air ludahnya melihat yang asam-asam
 Salah satu buah kesukaan saya xemoticonx xemoticonx xemoticonx
 Makan juwetnya sambil memandangi Bu Arumi Pak, pasti juwetnya rasanya manis
 Pak Emil yang makan, aku yang berkucur ludah membayangkan asamnya xemoticonx
@@ -904,7 +904,7 @@ Ingin juwet ya ampun, jarang sekali di sini cari juwet
 xemoticonx xemoticonx xemoticonx lucunya xemoticonx
 Wah nakal ya xemoticonx
 Juwet dikocok sama garam enak sekali
-Lihat ibu Arumi cantik sekali pakai kerudung warna putih, kalau aku yang pakai kucel xemoticonx anti kerudung warna putih xemoticonx
+melihat ibu Arumi cantik sekali pakai kerudung warna putih, kalau aku yang pakai kucel xemoticonx anti kerudung warna putih xemoticonx
 Pasar langganan saya dulu waktu di Malang itu bu xmentionx xemoticonx
 Tim yang ikut senyum-senyum sendiri xemoticonx xemoticonx xemoticonx
 Padahal dalam hati mbak Arumi, aduh nanti di rumah si suami marah tidak ya xemoticonx xemoticonx xemoticonx xhashtagx seru mengerjai suami di depan umum xemoticonx xemoticonx xemoticonx
@@ -917,7 +917,7 @@ Mbak Arumi iseng saja xemoticonx xemoticonx xemoticonx
 Itu di pasar mana bu arumibachsin_94 ada penjual juwet, buah yang langka
 Gemas
 Juwet, wah pasar Lawang kadang suka ada, kadang susah, karena buah langka. Enak sekali itu bu xemoticonx
-Dua orang ini aduh gemas sekali pasangan hebat buat berdua xemoticonx xemoticonx xemoticonx xemoticonx
+Dua orang ini aduh gemas sekali aku cinta kamu untuk berdua xemoticonx xemoticonx xemoticonx xemoticonx
 Bu calon wakil gubernur cantiknya xemoticonx xemoticonx xemoticonx xemoticonx
 Kalau makan kocok sama garam mbak xemoticonx ada sebagian orang ditambah gula juga
 Anggur Jawa xemoticonx xemoticonx
@@ -925,10 +925,10 @@ Ada yang manis kok
 Isinya ditelankah xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx semoga langgeng selamanya pasangan ini
 Terasa asamnya sampai sini bu Arumi xemoticonx
-Senangnya lihat keluarga kakak bahagia selalu kakak
-Menyindir xemoticonx
+Senangnya melihat keluarga kakak bahagia selalu kakak
+Iri xemoticonx
 Benar bun
-Kasihan ajudannya mau ketawa ditahan xemoticonx xemoticonx
+Kasihan ajudannya mau tertawa ditahan xemoticonx xemoticonx
 Barakallah fii umrik anak ganteng, saleh dan berbakti selalu untuk kedua orang tua
 Selamat merayakan hari lahir Alqeinan. Semoga kelak nanti bisa jadi anak yang berguna untuk kita semua xemoticonx xemoticonx selamat ulang tahun
 Barakallah fii umrik xemoticonx xemoticonx xemoticonx
@@ -944,10 +944,10 @@ Selamat milad Al Qeinan
 Selamat ulang tahun mas Qeinan semoga sehat selalu menjadi anak yang saleh tambah pintar sekolahnya cita-citanya bisa tercapai dan bisa menjadi matahari di dalam keluarga, amin xemoticonx xemoticonx xemoticonx xemoticonx xmentionx xmentionx
 Selamat ulang tahun mas Qeinan semoga jadi anak yang saleh dan membanggakan orang tua, amin ya rabbal alamin
 Selamat ulang tahun Qeinan sayang xemoticonx xemoticonx xemoticonx
-Selamat ulang tahun kak Arumi xemoticonx kang Emil buat anaknya xemoticonx xemoticonx xemoticonx xemoticonx
-Barakallahu fii umrik Alqeinan semoga selalu diberikan kesehatan, umur yang berkah, menjadi anak yang saleh, baik dan pintar, berbakti kepada kedua orang tua, semoga bisa menjadi anak yang membanggakan dan sukses, amin ya rabbal alamin xemoticonx xemoticonx xemoticonx semoga di hari bahagiamu tante dapat jajan buat beli cilok xemoticonx xemoticonx
-Selamat ulang tahun buat anaknya ibu Arumi, sukses sehat bahagia selalu ya xemoticonx xemoticonx
-Selamat ulang tahun buat Al Qeinan sehat selalu ya
+Selamat ulang tahun kak Arumi xemoticonx kang Emil untuk anaknya xemoticonx xemoticonx xemoticonx xemoticonx
+Barakallahu fii umrik Alqeinan semoga selalu diberikan kesehatan, umur yang berkah, menjadi anak yang saleh, baik dan pintar, berbakti kepada kedua orang tua, semoga bisa menjadi anak yang membanggakan dan sukses, amin ya rabbal alamin xemoticonx xemoticonx xemoticonx semoga di hari bahagiamu tante dapat jajan untuk beli cilok xemoticonx xemoticonx
+Selamat ulang tahun untuk anaknya ibu Arumi, sukses sehat bahagia selalu ya xemoticonx xemoticonx
+Selamat ulang tahun untuk Al Qeinan sehat selalu ya
 Selamat ulang tahun Al Qeinan xemoticonx
 Selamat ulang tahun xemoticonx xemoticonx xemoticonx xemoticonx
 Doa terbaik untuk Al Qeinan xemoticonx xemoticonx
@@ -963,7 +963,7 @@ Barakallah fii umrik Al Qeinan sayang semoga sehat selalu panjang umur dan menja
 Selamat ulang tahun anak ganteng xemoticonx
 Selamat ulang tahun ganteng, barakallah fii umrik sehat, tambah saleh, sukses dan berbakti untuk keluarga menjadi kebanggaan orang tua, amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Barakallah fii umrik Qeinan ganteng semoga menjadi anak saleh, tambah pintar, panjang umur sehat selalu dan sukses dunia akhirat. Amin xemoticonx xemoticonx xemoticonx
-Doa terbaik buat anak saleh pintar Alqeinan. Amin
+Doa terbaik untuk anak saleh pintar Alqeinan. Amin
 Barakallah fii umrik Alqeinan semoga sehat selalu dan dalam lindungan Allah SWT. Amin xemoticonx xemoticonx
 Kenapa sama dengan saya bu
 Selamat ulang tahun Qeinan, semoga selalu diberkahi Allah. xemoticonx xemoticonx xemoticonx xemoticonx omong-omong ini yang pintar berbahasa Prancis ya? Joyeux Anniversaire chéri xemoticonx
@@ -983,7 +983,7 @@ Selamat ulang tahun Alqeinan tambah besar tambah pintar dan tambah ganteng tetap
 Assalamualaikum. Semoga di usia yang kesembilan tahun ini dan seterusnya, Alqeinan semakin cerdas, sehat walafiat, serta semoga selalu sukses dan selamat dalam lindungan Tuhan. Amin ya rabbal alamin. Selamat ulang tahun Qeinan, yaumul milad. Semoga beruntung. xemoticonx xemoticonx xemoticonx xemoticonx
 Selamat ulang tahun anak gantengnya papa Emil dan mama Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Barakallah fii umrik abang Al barakallah fii rizki
-Amin, doa terbaik buat mas Alqeinan berkah usianya sukses dunia akhiratnya xemoticonx xemoticonx
+Amin, doa terbaik untuk mas Alqeinan berkah usianya sukses dunia akhiratnya xemoticonx xemoticonx
 Barakallah Qeinan xemoticonx
 Keluarga rupawan xemoticonx xemoticonx
 Selamat ulang tahun anak pintar anak saleh xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1018,7 +1018,7 @@ Tidak ada kata bosan kalau diskusi bareng Mas Emil, selalu membuat suasana jadi 
 Senang sekali bisa ikut diskusi bareng Mas Emil, banyak ilmu yang bisa didapat
 Mas Emil bisa nyambung sekali dengan komunitas pemuda Jember, setiap diskusi jadi berharga
 Pak Emil tadi tidak ikut Bu Khofifah di pabrik Sampoerna xemoticonx xemoticonx
-Senang sekali lihat Mas Emil mengobrol bareng pemuda Jember, suasana jadi penuh energi positif
+Senang sekali melihat Mas Emil mengobrol bareng pemuda Jember, suasana jadi penuh energi positif
 Diskusi santai bersama Mas Emil, serasa mengobrol sama teman dekat, tapi tetap dapat ilmu
 Lo, kenapa aku tidak mengerti pak kalau ada di kafe tebing Jember
 Mengobrol bareng Mas Emil, rasanya seperti mendapat pencerahan dan semangat baru untuk terus berkarya
@@ -1059,7 +1059,7 @@ Semoga jadi gubernur Jawa Timur xemoticonx
 Pemimpin selain karakternya baik, kepemimpinan juga baik, merangkul semua elemen, bisa meredam emosi, 02 xemoticonx
 Aku orangmu Mas Emil xemoticonx
 Terima kasih Mas Emil dan Mbak Arumi, acara Pesta Kampung jalan santai ini jadi tambah seru dengan kehadiranmu
-Ya seru acaranya, untung aku ikut xemoticonx
+Benar-benar seru acaranya, untung aku ikut xemoticonx
 Wah ini yang di Jember ini xemoticonx xemoticonx xemoticonx xemoticonx menyala xemoticonx xemoticonx
 Ya masyarakat Jawa Timur semua pilih Khofifah-Emil dijamin ibu PKK Jawa Timur cantik, ramah, terkenal di Indonesia, siapa sih yang tidak kenal Mbak Arumi? Pasti dong, ayo jangan lupa pilih xemoticonx xemoticonx xemoticonx xemoticonx
 Mantap Mas Emil! Ayo terus jadi pemimpin yang dekat dengan masyarakat
@@ -1068,7 +1068,7 @@ Semoga terpilih untuk Jawa Timur Pak Emil dan Ibu Khofifah, sehat selalu untuk I
 Ini baru keren
 Mantap sekali Mas Emil dan Mbak Arumi, bisa langsung menyapa rakyat
 Ada yang pernah dipojokkan sama mertua sendiri? Suka membandingkan aku sama perempuan lain yang punya badan impian xemoticonx tidak tepos seperti aku
-Bu bisakah bantu saya ketemu sama Bapak Emil? xemoticonx xemoticonx xemoticonx
+Bu bisakah bantu saya bertemu sama Bapak Emil? xemoticonx xemoticonx xemoticonx
 Pak kapan jadwalnya ke Trenggalek?
 Jangan bawa-bawa Bonek untuk politik Anda Mas Emil!
 Coblos nomor dua untuk Jawa Timur xemoticonx xemoticonx
@@ -1106,14 +1106,14 @@ Nomor dua ya
 Bapak xmentionx dan Ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ke Pasar Pakis Surabaya dong Pak Emil. Pasar yang sering disiarkan radio SS karena masalah sampahnya. Dan tolong solusinya dari xmentionx xemoticonx
 Masyaallah suami setia, penyayang dan penuh perhatian, semoga sehat selalu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Hmm pagi-pagi sudah membuat iri xemoticonx xemoticonx xemoticonx bahagia selalu Bapak dan Ibu xemoticonx xemoticonx
+hem pagi-pagi sudah membuat iri xemoticonx xemoticonx xemoticonx bahagia selalu Bapak dan Ibu xemoticonx xemoticonx
 Bismillah, Allahumma sholi ala sayyidina Muhammad wa alaa alihi sayyidina Muhammad, ya rab semoga anak saya mendapatkan suami seperti Pak Emil Dardak yang sangat sayang dan mencintai istri dengan tulus, amin xemoticonx
 Suamiku kalau menyuapi segunung sendok Bu, panas pula xemoticonx Tapi ya masih mending mau menyuapi xemoticonx xemoticonx xemoticonx
-Senang sekali lihat pasangan ini, semoga langgeng sampai akhir ya
+Senang sekali melihat pasangan ini, semoga langgeng sampai akhir ya
 Selamat pagi Bapak Ibu idola xemoticonx xemoticonx
 Mengganggu istri makan itu rasanya enak sekali xemoticonx entah kita tidak beli dengan alasan diet dan ini itu, tapi ketika istri mulai makan, jadi ingin makanannya istri xemoticonx xemoticonx xemoticonx xemoticonx
 Wah manis sekali, jadi panutan xemoticonx xemoticonx xemoticonx
-Meleleh kalau lihat pasangan ini, romantis, saling sayang, pokoknya paket lengkap xemoticonx xemoticonx xemoticonx xemoticonx
+Meleleh kalau melihat pasangan ini, romantis, saling sayang, pokoknya paket lengkap xemoticonx xemoticonx xemoticonx xemoticonx
 Manis sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Rawon Klakah memang cocok untuk sarapan, apalagi bareng Mas Emil dan Mbak Arumi yang selalu membawa semangat
 Suami istri panutanku xemoticonx xemoticonx xemoticonx
@@ -1158,16 +1158,16 @@ Memang enak rawon di Klakah
 Bismillah jangan lupa Bu Arumi
 Cantiknya dan gantengnya xemoticonx salam sukses
 Selamat pagi Bapak Emil dan Ibu Arumi, sehat-sehat selalu ya xemoticonx xemoticonx
-Pagi-pagi lihat beginian ayo pindah planet saja xemoticonx xemoticonx xemoticonx
+Pagi-pagi melihat beginian ayo pindah planet saja xemoticonx xemoticonx xemoticonx
 Masih seperti yang dulu tidak ada yang berubah, Mas Emil tenang sekali ya?
-Kebagian senyumnya saja aku xemoticonx xemoticonx lihat keromantisan pasangan ini xemoticonx xemoticonx
+Kebagian senyumnya saja aku xemoticonx xemoticonx melihat keromantisan pasangan ini xemoticonx xemoticonx
 Lumajang hadir
 Wakil gubernur paling top
 Wah saya orang Lumajang, ini sari rawonkah?
 Aduh Pak Emil selalu bikin meleleh bikin iri
 Pasangan idola saya orang Lumajang tapi di kota kejauhan kalau di rawon Klakah bu. Di Lumajang ada rawon Bu Katun
 Masyaallah romantis sekali Bapak dan Ibu Arumi xemoticonx
-Haha ikut bahagia xemoticonx berbunga-bunga ketika lihat pasangan ini xemoticonx xemoticonx
+Haha ikut bahagia xemoticonx berbunga-bunga ketika melihat pasangan ini xemoticonx xemoticonx
 Rawon Klakah salah satu depot favorit keluarga kami Bu
 Sepiring berdua
 Ini habis dari Jember ya xemoticonx xemoticonx
@@ -1187,7 +1187,7 @@ Saya asli orang Lumajang Bu xmentionx
 Ibu Arumi saya berdoa semoga kelak Bapak bisa jadi presiden RI, pasti menyenangkan punya pemimpin yang dekat dengan rakyat dan cinta kuliner Indonesia, qobul du'a ya rabb, amin
 xemoticonx kasihan kepanasan, jadi ingin rawon xemoticonx xemoticonx
 Yang memvideo hanya bisa senyum-senyum xemoticonx
-Mantan bupati saya, pokoknya paling keren pol
+Mantan bupati saya, pokoknya paling keren sekali
 Saya Lumajang tapi tepatnya desa Candipuro Bu xmentionx suami orang Klakah xemoticonx xemoticonx xemoticonx
 Saya Lumajang kak, asli tanpa campuran xemoticonx
 Aku ikutan hah lo Mbak xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1201,9 +1201,9 @@ Kampung mbahku tercinta xemoticonx kangen sudah lama tidak ke Lumajang xemoticon
 Lucu xemoticonx xemoticonx mengayomi sekali Pak Emil
 Masyaallah semoga selalu sehat sekeluarga dan banyak rezekinya, amin ya rabbal alamin
 Masyaallah maaf xemoticonx masih panas xemoticonx
-Aduh sedikit sekali nasinya xemoticonx
+Buset, sedikit sekali nasinya xemoticonx
 Pernah ke situ xemoticonx
-Masyaallah, lihat Ibu Arumi selalu bisa terkena transfer energi positif, sehat-sehat selalu ya Ibu xmentionx dan keluarga xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah, melihat Ibu Arumi selalu bisa terkena transfer energi positif, sehat-sehat selalu ya Ibu xmentionx dan keluarga xemoticonx xemoticonx xemoticonx xemoticonx
 Saya sudah coba dong, enak xemoticonx
 Saya sama suami setiap ke Jember selalu mampir ke situ Bu xmentionx rasanya mantap, lalu dagingnya empuk
 Tim tersenyum-senyum xemoticonx
@@ -1226,18 +1226,18 @@ Masyaallah indah sekali kebersamaan Pak wakil gubernur bersama istri tercinta xe
 Rawon Klakah sudah jadi langganan setiap mau mudik ke Banyuwangi, sehat selalu xmentionx semoga selalu disayang Pak xmentionx
 Enaknya menikah sama Bu Arumi xemoticonx
 Ya Allah ya Allah pakai disuapi lagi xemoticonx xemoticonx jadi tambah xemoticonx lihatnya
-Bahagia sekali lihat keluarga ini, bahagia selalu ya sayang sampai ke surga-Nya Allah xemoticonx
+Bahagia sekali melihat keluarga ini, bahagia selalu ya sayang sampai ke surga-Nya Allah xemoticonx
 Alhamdulillah adem lihatnya, sakinah mawadah warahmah terus ya
-Senang lihat pasangan ini xemoticonx
+Senang melihat pasangan ini xemoticonx
 Kalau liburan, mudik ke Lumajang mampir beli karena anak-anak dan ponakan doyan rawon xemoticonx xemoticonx xemoticonx
-Aduh adem ya padahal di Samarinda xemoticonx lihat postingannya langsung adem, langgeng ya untuk Bapak dan Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx
+Aduh adem ya padahal di Samarinda xemoticonx melihat postingannya langsung adem, langgeng ya untuk Bapak dan Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Ya Allah mau dilihat sama disuapi begini, salawat dulu
 Ibu tidak coba sop buntutnya di situ enak sekali, langganan keluarga saya kalau lagi keluar kota Lumajang lewat Klakah xemoticonx
 Dekat sekali sama rumahku kak, rawon Klakah itu xemoticonx
 Aku jadi lapar, kira-kira pak suami mau menyuapi tidak ya xemoticonx
 Hadir dari Lumajang. Rawon Klakah tempat mampir sarapan saat dari stasiun Klakah
-Suka lihat manjanya si cantik ini, suaminya juga sayang sekali xemoticonx
-Selalu ikut bahagia lihat pasangan ini, semoga sukses selalu untuk Pak Emil
+Suka melihat manjanya si cantik ini, suaminya juga sayang sekali xemoticonx
+Selalu ikut bahagia melihat pasangan ini, semoga sukses selalu untuk Pak Emil
 Wah ini yang mensyuting pasti ambil gambar sambil tersenyum imut xemoticonx
 Masyaallah manis sekali Mas Emil ke Mbak Arumi xemoticonx
 Rawon ramona ya
@@ -1250,7 +1250,7 @@ Romantis
 Senang sekali lihatnya, terus seperti itu ya Bun
 Ini Bu warga Lumajang xmentionx
 Dia yang disuapi, aku yang mangap
-Dia mangap-mangap kepanasan saja tetap cantik xemoticonx masya Allah
+Dia mangap-mangap kepanasan saja tetap cantik xemoticonx masyaallah
 Suami yang memuliakan istri
 Saya senang lihatnya xemoticonx
 Suka kacamatanya xemoticonx
@@ -1273,7 +1273,7 @@ Klakah sebelah mana ya?
 Buahnya jangan lupa Pak Emil xemoticonx
 Saya warga Lumajang Bu xmentionx xemoticonx
 Aku Lumajang xemoticonx
-Masyaallah senang sekali ya Allah kalau sudah lihat pasangan ini
+Masyaallah senang sekali ya Allah kalau sudah melihat pasangan ini
 Setiap ada suami yang begitu perhatian terhadap istrinya aku selalu bergumam ternyata ada ya laki-laki begitu. Masyaallah
 Insyaallah keluarga sakinah mawadah warahmah ya, amin yaitu ya rabbal alamin xemoticonx xemoticonx
 Kacamata kita sama Bu xemoticonx
@@ -1282,11 +1282,11 @@ Sangat manis sekali, bahagia sekali melihat mereka berdua. Semoga jadi keluarga 
 Semoga Mas Emil menjadi presiden RI di masa yang akan datang
 Usia muda pintar punya etika yang bagus pekerja keras hidup sederhana
 Insyaallah pilihan Bunda adalah yang terbaik. Sakinah mawadah warahmah selalu Mbak dan Masnya
-Suka sekali lihat pasangan Kang Emil dan Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Suka sekali melihat pasangan Kang Emil dan Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx rawonnya di situ enak dan lezat
-Senang lo kalau lihat pasangan ini, rasanya bahagia sekali, selalu mesra xemoticonx bisa buat contoh pasangan muda yang lainnya xemoticonx xemoticonx xemoticonx xemoticonx
+Senang lo kalau melihat pasangan ini, rasanya bahagia sekali, selalu mesra xemoticonx bisa untuk contoh pasangan muda yang lainnya xemoticonx xemoticonx xemoticonx xemoticonx
 Sehat selalu ya Kak Arumi dan Bapak Emil xemoticonx xemoticonx
-Aku orang Lumajang Ka Arumi xemoticonx xemoticonx xemoticonx xemoticonx
+Aku orang Lumajang Kak Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Masih panas itu tidak ditiup dulu Pak hehe
 Bismillah dulu Bu xemoticonx xemoticonx
 Kampung suami saya xemoticonx xemoticonx rawonnya enak alhamdulillah diajari masak juga sama pak suami
@@ -1295,13 +1295,13 @@ Aku senang sekali, pasangan suami istri, begitu romantis, jadi contoh semua oran
 Ya ini lo keromantisan yang hakiki, sama seperti aku kalau lagi malas makan, minta nebeng makan sedikit saja, alhasil ya disuapin juga xemoticonx xemoticonx xemoticonx alasan kenapa? Ingin disayang saja xemoticonx xemoticonx xemoticonx sehat selalu Mas Emil dan Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ibu kepanasan, kenapa tidak ditiup dulu rawonnya, masih berasap itu Pak
 Pak Emil budak cinta terus xemoticonx xemoticonx xemoticonx
-Sangat suka lihat konten pasangan suami istri ini ganteng-cantik, ramah, setia jadi panutan pasangan suami istri yang lain xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Sangat suka melihat konten pasangan suami istri ini ganteng-cantik, ramah, setia jadi panutan pasangan suami istri yang lain xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bu Arumi yang disuapi, saya yang ah. ikutan mangap xemoticonx xemoticonx xemoticonx xemoticonx
-Senang lihat pasangan ini selalu harmonis, langgeng selalu xemoticonx xemoticonx xemoticonx
-Senang sekali lihat kalian bahagia
+Senang melihat pasangan ini selalu harmonis, langgeng selalu xemoticonx xemoticonx xemoticonx
+Senang sekali melihat kalian bahagia
 Sangat bangga Lumajang didatangi calon wakil gubernur, sebagai warga Lumajang semoga sukses Bapak Emil dan Bu Arumi xemoticonx
 Saya kapan bisa seperti itu ya xmentionx xemoticonx
-Paling senang lihat pasangan ini xemoticonx xemoticonx
+Paling senang melihat pasangan ini xemoticonx xemoticonx
 Amin
 Masih panas Pak xemoticonx xemoticonx xemoticonx
 Aduh aku jadi rindu pulang ke sana, kalau pulang naik kereta dijemput sama almarhum bapak, pasti mampir makan rawon di sana xemoticonx xemoticonx xemoticonx
@@ -1315,7 +1315,7 @@ Aku orang Lumajang
 Enak di restoran Nguling semua makanannya tepat mantap
 Mbak Arumi yang disuapi Mas Emil, aku yang mangap xemoticonx manis sekali xemoticonx
 Izin repost Kak xemoticonx
-Masya Allah, cinta lelaki luar biasa, pejabat tapi mau suapi istrinya di tempat umum lagi xemoticonx xemoticonx xemoticonx
+Masyaallah, cinta lelaki luar biasa, pejabat tapi mau suapi istrinya di tempat umum lagi xemoticonx xemoticonx xemoticonx
 Panas ya, sepanas hati saya yang melihatnya xemoticonx xemoticonx xemoticonx bercanda Pak Bu xemoticonx xemoticonx
 Bismillahirrahmanirrahim xemoticonx
 Enak sekali tahu rawonnya di situ
@@ -1335,7 +1335,7 @@ Gas
 Nomor dua pokoknya
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx nomor dua untuk dua periode
 Keren nih inovasi untuk mendukung perkembangan UMKM-nya! Lancar terus xemoticonx xemoticonx
-Cakep Kak!! xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bagus Kak! xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Dua periode ya Pak xemoticonx xemoticonx xemoticonx
 Lanjutkan Bapak xemoticonx xemoticonx xemoticonx xemoticonx
 Salut untuk Bapak Emil, merangkul dan memberi wadah untuk anak-anak muda untuk berkarya dan berkreativitas melalui UMKM xemoticonx
@@ -1424,7 +1424,7 @@ Pilihanku terbuka ya ini tidak ada lagi, menurutku orang dua ini orang yang tida
 02 maju
 Ruwet
 Maju xemoticonx
-Kenapa saya lihat ini merinding ya, bismillahirrahmanirrahim Ibu Khofifah dan wakilnya menang. Jadi gubernur Jawa Timur
+Kenapa saya melihat ini merinding ya, bismillahirrahmanirrahim Ibu Khofifah dan wakilnya menang. Jadi gubernur Jawa Timur
 Semoga dua periode Bu Khofifah dan Mas Emil xemoticonx xemoticonx
 Mohon maaf
 Pasti menang xemoticonx xemoticonx
@@ -1442,7 +1442,7 @@ Kuputar ulang terus biar malunya tidak selesai-selesai xemoticonx xemoticonx. Un
 Yang menonton ikutan bahagia xemoticonx
 Kenapa jadi ikut senyum-senyum ya saya xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga kalian berdua senantiasa dalam lindungan Allah, dijauhkan dari segala keburukan, sukses terus untuk Pak Emil dan Bu Arumi
-Hmm salah tingkahnya gandengan ya Bu xemoticonx xemoticonx
+Hem salah tingkahnya gandengan ya Bu xemoticonx xemoticonx
 Malu-malunya bikin bahagia xemoticonx xemoticonx xemoticonx
 Ini pertanyaannya apa sih kenapa membuat Arumi malu-malu, tapi malu-malu saja tetap cantik dan lucu xemoticonx
 Senyuman Bapak dan Ibu mirip lagi hehe xemoticonx
@@ -1451,7 +1451,7 @@ Maaf Bu aku ulang-ulang videonya xemoticonx
 Suka sekali sama tatapan Mas Emil, dia hanya bisa lirik istri sendiri setulus itu, beda sama pria-pria pada umumnya xemoticonx
 xemoticonx xemoticonx xemoticonx untung cantik dan ganteng
 Aku ulang-ulang terus karena gemasnya, langgeng terus ya Kak Arumi dan Mas Emil, bahagia selalu
-Eh apaan deh kagetnya langsung meluk xemoticonx
+Ih apaan deh kagetnya langsung meluk xemoticonx
 Bu Arumi kenapa lucu sekali Bu xemoticonx xemoticonx xemoticonx xemoticonx
 Apaan sih
 Ya pilih wakil gubernur Jawa Timur sudah orangnya keren cantik dan ganteng, kapan lagi pilih Mas Emil dan Mbak Arumi, bangga punya istri wakil gubernur Jawa Timur artis cantik jadi tambah keren Jawa Timur
@@ -1467,7 +1467,7 @@ Tidak jelas
 Apa ini
 Serasi sekali
 Mbak Arumi kalau dilihat hampir mirip sama Iris Bella sama-sama cantik
-Maaf Bu Arumi, aku ketawa sedikit
+Maaf Bu Arumi, aku tertawa sedikit
 Ini pasti kontributornya pakai hp
 Kenapa aku yang salah tingkah xemoticonx
 Masyaallah tabarakallah
@@ -1478,14 +1478,14 @@ Sekilas Bapak calon gubernur Jakarta nomor dua mirip Pak Emil masa
 Masih kekanak-kanakan xemoticonx kalau jadi wakil gubernur tidak lagi. Kalau artis cocok xemoticonx xemoticonx
 Ya Allah Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Selamat pagi juga berdua yang manis sekali, semangat bahagia penuh kasih bersama keluarga tercinta xemoticonx xemoticonx xemoticonx
-Manis sekali xemoticonx
+Aduh Manis sekali xemoticonx
 Suamiku main baru dua menit kenapa sudah keluar ya? Ukurannya juga kecil sekali lagi, solusi untuk tambah ukuran dan durasi bagaimana, ada yang tahu tidak?
 Salam dari Jawa Timur saya akan pilih Emil Dardak
 Aduh xemoticonx xemoticonx xemoticonx xemoticonx
 Apaan ini, tidak jelas!
 Gemas Bu xemoticonx
 Oh cantik sekali
-Aduh apaan sih
+Ih apaan sih
 Salah tingkahnya langsung gandengan tidak Bu xemoticonx
 Arumi aku malu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ini bukan foto sayang
@@ -1499,7 +1499,7 @@ Suka sama pasangan ini xemoticonx xemoticonx
 Haha xemoticonx xemoticonx
 Bahagia selalu xemoticonx xemoticonx
 Eh ini bukan foto teman xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Untung cantik pol jadi tidak malu sekali xemoticonx xemoticonx xemoticonx
+Untung cantik sekali jadi tidak malu sekali xemoticonx xemoticonx xemoticonx
 Senang sekali lihatnya xemoticonx
 xemoticonx xemoticonx xemoticonx hahaha kenapa lucu sih Bu, gemas
 Ya saya juga senang lihatnya xemoticonx xemoticonx xemoticonx
@@ -1510,16 +1510,16 @@ xemoticonx xemoticonx xemoticonx xemoticonx sehat selalu ya pasangan yang romant
 Cindo sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sehat selalu keluarga bahagia xemoticonx xemoticonx
 Manis xemoticonx xemoticonx xemoticonx
-Ya Allah adem sekali lihat pasangan ini xemoticonx xemoticonx xemoticonx
+Ya Allah adem sekali melihat pasangan ini xemoticonx xemoticonx xemoticonx
 Aduh-aduh begini saja meleleh aku xemoticonx xemoticonx xemoticonx
 Gemas, masyaallah xemoticonx xemoticonx xemoticonx
 Sehat guyub rukun langgeng bahagia selalu Pak Emil xemoticonx Bu Arumi, amin
 xemoticonx xemoticonx xemoticonx bukan foto ini pakde, tapi auranya nih memimpin kembali Jawa Timur xemoticonx
 Bu Arumi salah tingkah ya xemoticonx tapi tetap cantik xemoticonx
-Meskipun diputar berkali-kali tetap saja buat ketawa, senang lihat keharmonisan kalian xemoticonx xemoticonx
+Meskipun diputar berkali-kali tetap saja buat tertawa, senang melihat keharmonisan kalian xemoticonx xemoticonx
 Masyaallah boleh minta suami seperti ini tidak sih ya Allah sayang istri
-xemoticonx xemoticonx xemoticonx saya jadi ikut ketawa
-Saya lihat berkali-kali tertawa
+xemoticonx xemoticonx xemoticonx saya jadi ikut tertawa
+Saya melihat berkali-kali tertawa sekali
 Dua periode ya Bu Khofifah dan Pak Emil xemoticonx xemoticonx
 Malunya lucu sekali xemoticonx
 Salah tingkahnya Kak xmentionx langsung meluk xemoticonx xemoticonx xemoticonx
@@ -1539,7 +1539,7 @@ Saya ulang-ulang terus ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticon
 Lucu sekali xemoticonx
 Ibu Arumi cantik sekali
 Semoga sukses Mbak Arumi suaminya terpilih jadi wakil gubernur, amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-xemoticonx jomlo balik masuk selimut lagi lihat ini xemoticonx xemoticonx
+xemoticonx jomlo balik masuk selimut lagi melihat ini xemoticonx xemoticonx
 Lucu sih kagetnya xemoticonx
 Untung suaminya memberi tahu di awal, jadi malunya tidak kelamaan ya Mama Rumi xemoticonx xemoticonx xemoticonx
 Tertawa aku putar terus xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1553,7 +1553,7 @@ xemoticonx xemoticonx xemoticonx xemoticonx tidak bosan diulang-ulang nontonnya 
 xemoticonx xemoticonx xemoticonx sehat-sehat selalu
 Indomie rawon pedasnya enak sekali ya cocok musim hujan xemoticonx
 Lucu xemoticonx
-Pasangan yang masya Allah semoga romantis terus langgeng jodoh dunia akhirat amin
+Pasangan yang masyaallah semoga romantis terus langgeng jodoh dunia akhirat amin
 Bahagia dan sehat-sehat selalu ya Ibu dan Bapak xemoticonx
 Assalamualaikum, salam kenal apa kabar semuanya semoga semuanya bahagia selalu dan sehat selalu dan panjang umur semuanya terima kasih xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx jadi tertawa bahagia aku xemoticonx
@@ -1589,7 +1589,7 @@ Enak itu ada yang ditempeli xemoticonx xemoticonx
 Dengan cinta hidup jadi indah, dengan ilmu hidup jadi mudah, dengan iman hidup jadi terarah xemoticonx xemoticonx
 Yang salah tingkahnya meluk sini untuk aku xemoticonx
 Hapus Pak
-Adem lihat pasangan Bu Arumi dan Pak Emil xemoticonx
+Adem melihat pasangan Bu Arumi dan Pak Emil xemoticonx
 Ah gemas xemoticonx xemoticonx
 Aduh beliau berdua lebih cantik ganteng aslinya xemoticonx xemoticonx
 Lucu sekali xemoticonx xemoticonx
@@ -1599,10 +1599,10 @@ Bahagia selalu amin
 Ibu gemas salah tingkahnya xemoticonx boleh cubit Bapak tidak sih xhashtagx xemoticonx xemoticonx xemoticonx
 Senang lihatnya selalu rukun semoga sehidup semati sampai akhir hayat, amin ya rabbal alamin
 Ibu gemas sekali salah tingkahnya xemoticonx xemoticonx xemoticonx
-Oh peluk xemoticonx
+Oh oh peluk xemoticonx
 Lucu sekali xemoticonx
 Gemas sekali sih xemoticonx
-Kenapa sih kalau lihat beliau berdua bawaannya senyum-senyum sendiri xemoticonx xemoticonx
+Kenapa sih kalau melihat beliau berdua bawaannya senyum-senyum sendiri xemoticonx xemoticonx
 Lucu sekali sih Bu xemoticonx
 Masyaallah xemoticonx
 Senang lihatnya, bahagia xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1625,7 +1625,7 @@ Bicara apa sih
 Mau seperti ini deh, eh xemoticonx
 Pasangan romantis xemoticonx
 Suka sekali sama pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
-Aku pernah ketemu Arumi, asli cantik parah xemoticonx xemoticonx xemoticonx
+Aku pernah bertemu Arumi, asli cantik parah xemoticonx xemoticonx xemoticonx
 Uh xemoticonx xemoticonx
 Malah diunggah xemoticonx xemoticonx xemoticonx
 Air mana air xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1636,7 +1636,7 @@ xemoticonx xemoticonx besok kalau salah tingkah begini juga ah
 Jadi ingin Indomie
 Kelihatan sekali Bu mengantuknya xemoticonx xemoticonx xemoticonx
 Malu lucu xemoticonx ah
-Kalau sudah lihat Bu Arumi pasti senyum-senyum sendiri
+Kalau sudah melihat Bu Arumi pasti senyum-senyum sendiri
 Wkwk
 Pasangan yang xemoticonx xemoticonx
 Kenapa aku yang tersenyum-senyum sih xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1688,7 +1688,7 @@ Ini tuh yang dulu viral pernah kabur ya
 Saya rasa dunia ini milik abang lah
 Wow xemoticonx
 Mau
-Suka deh lihat kalian
+Suka deh melihat kalian
 Pasangan serasi xemoticonx
 Waalaikumsalam xemoticonx xemoticonx xemoticonx xemoticonx
 Mengiklankan dek
@@ -1699,15 +1699,15 @@ Ih
 Mudah-mudahan umur panjang Pak dan Ibu
 Sehat selalu
 Aku putar sampai 20. Biar ikutan menyeringai xemoticonx
-Masyaallah tabarakallah senangnya lihat pasangan ini semoga sakinah mawadah warahmah xemoticonx xemoticonx xemoticonx
-Lihat pasangan ini adanya senang
+Masyaallah tabarakallah senangnya melihat pasangan ini semoga sakinah mawadah warahmah xemoticonx xemoticonx xemoticonx
+melihat pasangan ini adanya senang
 Yang romantis-romantis begini nanti diam-diam seperti yang Ridwan? xemoticonx
 Mohon izin Pak saya banting HP dulu xemoticonx xemoticonx xemoticonx xemoticonx
 Assalamualaikum warrahmatullahi wabarakatuh, Pak Emil Dardak, salam sehat sekeluarga. Saya Agus dari Sidoarjo usia 53 tahun, izin ingin bertemu dan memohon bantuannya dari Bapak. Saya diantar istri, karena saya terkena stroke sebelah kanan. Tolong bantuannya Bapak Emil Dardak, terima kasih Bapak
 xemoticonx xemoticonx mantap Green Jawa Timur. Salam lestari untuk teman-teman xemoticonx
 Masyaallah. Dirangkul semua kalangan. Keren xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semangat sehat semoga mudah lancar sukses. Bu Khofifah xemoticonx Pak Emil. Amin
-Assalamualaikum Pak Emil saya Khusnul Yakin pemain sepak bola amputasi Surabaya yang kemarin ketemu Bapak di acara di BK3S di Surabaya
+Assalamualaikum Pak Emil saya Khusnul Yakin pemain sepak bola amputasi Surabaya yang kemarin bertemu Bapak di acara di BK3S di Surabaya
 Kapan kuliner Malang Mas
 Sehat-sehat Pak wakil gubernur
 Kalau bisa Pak Emil jadi presiden xemoticonx amin
@@ -1752,7 +1752,7 @@ Calon wakil gubernurku Mas Emil dan Mbak Arumi xemoticonx xemoticonx
 Kota kelahiran
 Sukses Pak Emil
 Bismillah
-Pas lihat kenapa sepertinya tidak asing, ternyata benar di pasar Babat
+Waktu melihat kenapa sepertinya tidak asing, ternyata benar di pasar Babat
 Gili pulau Gili Ketapang tetap 02
 xemoticonx Babat kota wingko
 Suka sekali dengan cara Mas Emil memandang Mbak Arumi, tatapan penuh cinta xemoticonx xemoticonx. Caranya persis sama dengan suamiku memandangi hp-nya
@@ -1769,8 +1769,8 @@ Sehat selalu ya pasangan idolaku, semoga dilancarkan dan menang amin
 Bu Khofifah xemoticonx xemoticonx parah bikin saya iri saja nih dua love birds xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kesayangan xemoticonx xemoticonx
 Mau diulang berkali-kali pasti bikin tertawa, waktu Bu xmentionx bilang xemoticonx Bapak mana xemoticonx xemoticonx sudah pesan Bu xemoticonx xemoticonx xemoticonx sehat selalu Ibu xmentionx dan Bapak xmentionx, panutan untuk menjaga keharmonisan rumah tangga xemoticonx xemoticonx
-Jam 12 malam masih makan tapi badan tetap sebegitu-begitu saja, hmm bikin iri saja ibu cantik salihah yang satu ini, sehat-sehat ya Bu Arumi Pak Emil xemoticonx
-Pas keliling di pasar Menganti sayang sekali aku tidak ketemu Bu Arumi xemoticonx xemoticonx
+Jam 12 malam masih makan tapi badan tetap sebegitu-begitu saja, hem bikin iri saja ibu cantik salihah yang satu ini, sehat-sehat ya Bu Arumi Pak Emil xemoticonx
+Waktu keliling di pasar Menganti sayang sekali aku tidak bertemu Bu Arumi xemoticonx xemoticonx
 Harum harum mama Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Keluarga bahagia xemoticonx xemoticonx xemoticonx xemoticonx
 Menang sih ini xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1779,12 +1779,12 @@ Semoga Ibu Khofifah dan Bapak Emil sukses jadi gubernur Jawa Timur, amin ya rabb
 Suka sekali sama Bapak xemoticonx Ibu xmentionx xemoticonx xemoticonx xmentionx
 Ya bagaimana tidak dilihat terus, istrinya spesifikasi bidadari, kalau saya lebih ke sadar diri sih xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx Bapak mana? xemoticonx xemoticonx saya sudah pesan Bu xemoticonx
-Nak Arumi, saya seorang nenek lihat wanita cantik wajahnya, cantik akhlaknya, cantik otaknya bangga sekali denganmu. Alangkah bahagianya orang tuamu. Tetaplah menjadi wanita yang buat bangga manusia di dunia ini
+Nak Arumi, saya seorang nenek melihat wanita cantik wajahnya, cantik akhlaknya, cantik otaknya bangga sekali denganmu. Alangkah bahagianya orang tuamu. Tetaplah menjadi wanita yang buat bangga manusia di dunia ini
 Ayo bisa ayo Mas Emil
 Bismillah lolos
 Pasangan idola
 Semoga langgeng sakinah mawadah warahmah ya
-Kalau lihat pasangan Mbak Arumi sama Mas Emil, adanya bikin senyum-senyum sendiri xemoticonx bahagia selalu kalian berdua
+Kalau melihat pasangan Mbak Arumi sama Mas Emil, adanya bikin senyum-senyum sendiri xemoticonx bahagia selalu kalian berdua
 Kenapa langsing terus sih Kak? xemoticonx
 Assalamualaikum Pak Emil, bisa saya minta bantuan untuk sidak ke sekolah anak saya, atau minta bantuan untuk laporkan ke dinas pendidikan Jawa Timur, terutama di Lamongan Pak, anak siswa dipaksa untuk beli seragam olahraga dan batik padahal sebagian siswa seragam masih layak pakai, itu pun harus bayar saat itu juga, kalau tidak bayar saat itu juga anak saya diancam, dan masih banyak lagi pembayaran-pembayaran lainnya mohon bantuannya Pak xemoticonx
 Jadi senyum-senyum sendiri kan aku xemoticonx xemoticonx
@@ -1799,28 +1799,28 @@ Bapak mana, Bapak mana xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx mbak kita makan bakso ayo
 Insyaallah kelak xmentionx jadi RI satu
 Lucu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx pegang hidung lagi
-Aku ikut ketawa pas Bu Khofifah ketawa lihat Pak Emil cium Mbak Arumi. Wkwkwk
+Aku ikut tertawa waktu Bu Khofifah tertawa melihat Pak Emil cium Mbak Arumi. Wkwkwk
 Masyaallah barakallah xemoticonx xemoticonx
 Menyala Pak xmentionx dan Bunda xmentionx sukses selalu xemoticonx xemoticonx xemoticonx xemoticonx
 Sehat-sehat dan bahagia selalu. Pasti menang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bapak mana? Saya sudah pesan Bu xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga sukses Khofifah-Emil
 Humorku hanya sebatas xemoticonx Bapak mana? xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx xemoticonx ketawa boleh kan xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx tertawa boleh kan xemoticonx xemoticonx xemoticonx xemoticonx
 Salah fokus ke wajahnya bening, cerah, iklan produk kecantikan oke sekali lo Mbak
 Wah ingin teriak-teriak di pojokan xemoticonx xemoticonx xemoticonx xemoticonx semoga selalu dalam lindungan Allah Subhanahu wa Ta'ala amin xemoticonx
 Pagi Pak xmentionx mohon maaf ya xemoticonx xemoticonx ini untuk pemasangan spanduknya boleh di depan pagar rumah toko orang tanpa izin yang punya rumah toko? Terima kasih xemoticonx xemoticonx
-Tiap hari lihat kontennya Mbak Arumi dan Mas Emil, senyum-senyum sendiri xemoticonx
+Tiap hari melihat kontennya Mbak Arumi dan Mas Emil, senyum-senyum sendiri xemoticonx
 Arumi apa tidak meleleh selalu dilihat penuh cinta begitu
 Cara dia melihatnya xemoticonx xemoticonx
 Semoga berjalan lancar
 Semoga terpilih kembali amin
-Aku lihat itu senang sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Aku melihat itu senang sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Romantisnya
 Semoga sukses Ibu xemoticonx xemoticonx xemoticonx xemoticonx
 Dua xemoticonx periode xemoticonx
 Suka sekali sama pasangan ini, adem ayem xemoticonx xemoticonx xemoticonx xemoticonx
-Senang sekali lihat pasangan ini ya Allah, bagaimana ya kenapa aku yang senyum-senyum sendiri ya, semoga langgeng sampai akhir hayat
+Senang sekali melihat pasangan ini ya Allah, bagaimana ya kenapa aku yang senyum-senyum sendiri ya, semoga langgeng sampai akhir hayat
 Manis sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Saya mendoakan Mas Emil wakil gubernur dua periode, amin
 Ngawi diperhatikan jangan kota-kota timur saja yang dibangun. Coba masuk desa-desa di Ngawi. Anda akan tahu bagaimana wajah Ngawi! xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1839,14 +1839,14 @@ Mbak Arumi, cantik sekali xemoticonx xemoticonx
 Tatapan suami yang penuh cinta. Beruntung sekali Ibu Arumi
 Idolaku xemoticonx xemoticonx
 Hidungnya mana? xemoticonx xemoticonx xemoticonx xemoticonx
-Suka lihat kemesraan Mbak Arumi sama Mas Emilnya, sakinah mawadah warahmah ya Mbak sampai surga xemoticonx
+Suka melihat kemesraan Mbak Arumi sama Mas Emilnya, sakinah mawadah warahmah ya Mbak sampai surga xemoticonx
 Salam sukses xemoticonx
-Senang sekali lihat Arumi sama Emil Dardak
+Senang sekali melihat Arumi sama Emil Dardak
 Suami istri gemas xemoticonx xemoticonx xemoticonx
 Aura positif xemoticonx
 Semoga menang Pak aku akan pilih yang kedua kalinya amin menang satu putaran
 Tatapan Pak Emil ke Ibu xemoticonx xemoticonx xemoticonx xemoticonx
-Lucu lihat pasangan ini, natural
+Lucu melihat pasangan ini, natural
 Diciumlah Mbak tangan suamimu
 Aku senang dengan caranya Mas Emil menyayangi Mbak Arumi. Semoga tidak seperti keluarga sebelah ya Mas Emil. budak cinta setengah mati, eh tidak tahunya xemoticonx
 Pasangan idola sekali
@@ -1870,14 +1870,14 @@ Mas wakil gubernur sepertinya kecanduan xemoticonx lagunya Paul xmentionx
 Aku orangmu Mas xemoticonx
 Izin xmentionx xmentionx
 Mampir ke Malang Bang Emil xemoticonx xemoticonx
-Wah ada Cak xmentionx ini kode arek nom Surabaya wajib pilih nomor 2
+Wah ada Cak xmentionx ini kode arek nom Surabaya wajib pilih nomor dua
 Menyala
 Silakan mampir di xmentionx Pak xmentionx
 Top
 Ngeri Emil, dikelilingi anggota-anggota yang kebal senjata, mikir para penjahat ingin mendekati Emil
 Senang melihat pemimpin saya bahagia xemoticonx xemoticonx
 Mengopi mengopi mengopi Mas xemoticonx xemoticonx xemoticonx
-Entah kenapa suka saja lihat wajahnya, mau sama Arumi atau sendiri sukalah pokoknya xemoticonx xemoticonx
+Entah kenapa suka saja melihat wajahnya, mau sama Arumi atau sendiri sukalah pokoknya xemoticonx xemoticonx
 Menyala rek xemoticonx xemoticonx xemoticonx Mas Emil kolaborasi dengan kelas saya xemoticonx, Cak Ulum menyala xemoticonx xemoticonx
 Idola xemoticonx xemoticonx xemoticonx
 Yang lain merokok, salut sama Pak Emil
@@ -1889,7 +1889,7 @@ Tiada kata seindah kopi xemoticonx xemoticonx xemoticonx
 Bisa juga tawa lepas Bapak
 Iya Pak xmentionx saya juga pelaku usaha warung kopi Sidoarjo mohon dukungannya Pak untuk kami xemoticonx xemoticonx
 Ketawanya menular Pak xemoticonx xemoticonx xemoticonx xemoticonx
-Heran yang komentar bilang Mbak Arumi pencitraan, wajar lah sama suaminya kan dan beliau tidak dibuat-buat jadi lihat YouTube beliau dari sana yang kurang suka jadi paham kalau beliau memang orangnya ekspresif dan manja kalau ada suaminya tapi tetap gemas bikin senyum-senyum sendiri masyaallah xemoticonx xemoticonx xemoticonx
+Heran yang komentar bilang Mbak Arumi pencitraan, wajar lah sama suaminya kan dan beliau tidak dibuat-buat jadi melihat YouTube beliau dari sana yang kurang suka jadi paham kalau beliau memang orangnya ekspresif dan manja kalau ada suaminya tapi tetap gemas bikin senyum-senyum sendiri masyaallah xemoticonx xemoticonx xemoticonx
 Melihat mereka berdua serasa selalu pengantin baru, penuh cinta dalam setiap tatapannya xemoticonx dibuat terbawa perasaan terus ini saya xemoticonx
 Masyaallah Mbak Arumi, masih seperti anak SMA lo, lincah sekali ya xemoticonx xemoticonx
 Masyaallah, setiap hari aku dibuat terbawa perasaan melihat pasangan yang gemas ini xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1900,7 +1900,7 @@ Langgeng ya untuk Bapak dan Mbak Arumi xemoticonx
 Gemas xemoticonx xemoticonx xemoticonx
 Masyaallah pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Idolaku multitalenta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Aku kalau lihat Ibu xmentionx sama Bapak iya senyum-senyum sendiri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Aku kalau melihat Ibu xmentionx sama Bapak iya senyum-senyum sendiri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Subhanallah Mbak xmentionx, masih imut-imut deh xemoticonx sehat selalu ya Mbak beserta keluarga xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah keluarga bahagia xemoticonx
 Bagian berebut bola terus pelukan. Gemas xemoticonx xemoticonx
@@ -1919,7 +1919,7 @@ Semoga tidak terpilih jadi wakil gubernur lagi xemoticonx xemoticonx karena haru
 Kak kapan kampanye bagi xemoticonx kaosnya sama Bu Khofifah
 Itu siapa Bapak yang jatuh?
 Wajahnya kenapa seperti Ronaldo ya
-Enak pol
+Enak sekali
 Periang sekali xemoticonx
 Pasangan positif vibes, ceria, rendah hati xemoticonx kalau ekspresif mungkin sudah karakternya begitu, berjalan waktu juga makin dewasa ya semangat terus xemoticonx
 Salam dua periode xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1940,7 +1940,7 @@ Bismillah. Lanjutkan
 Pasukan Bu Arumi
 Menyala Bu Khofifah dan Pak Emil lanjut
 Coblos nomor dua. Ayo Cak Emil kapan ke Wagir. Kita kampanye seperti lima tahun lalu
-Semalam lihat Pak Emil di televisi. Keren, tapi beberapa kali kepepet waktu
+Semalam melihat Pak Emil di televisi. Keren, tapi beberapa kali kepepet waktu
 Bismillah semoga Jawa Timur semakin jauh dari kemiskinan berkat pimpinan Bapak xmentionx dan Ibu xmentionx
 Yang aktif berkampanye kenapa Pak Emil terus
 Pak sediakan transportasi Tulungagung Trenggalek setiap saat 24 jam, banyak rakyat Trenggalek yang terlantar di terminal Tulungagung, lima tahun menjabat Bapak dan Bu Khofifah belum memberikan kemudahan transportasi, padahal sangat penting untuk ekonomi, Bapak harusnya bisa mengatur, kutunggu Pak aksinya
@@ -2115,7 +2115,7 @@ Mas xmentionx paket komplet cerdas berpendidikan tinggi tampan sikap akhlak baik
 Ganteng pintar, terbaik deh calon gubernur yang akan datang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Maaf saya tidak domisili di Jawa Timur, tapi bismillahirrahmanirrahim saya mendukung xemoticonx Ibu Khofifah xemoticonx Bapak Emil xemoticonx semangat meraih kemenangan xemoticonx
 Assalamualaikum pak Emil. Mohon bantuannya bagi saya yang tidak punya rumah sendiri. Hanya menumpang alamat karena belum mampu beli rumah sendiri. Cara dapat bantuan sosial bagaimana.
-Doa jadi wakil gubernur Jawa Timur buat pak Emil Dardak ya xemoticonx xemoticonx xemoticonx
+Doa jadi wakil gubernur Jawa Timur untuk pak Emil Dardak ya xemoticonx xemoticonx xemoticonx
 Sehat sehat pemimpin Jawa Timur xemoticonx xemoticonx
 Assalamualaikum Pak saya buka orderan untuk jumat berkah area xemoticonx Krian, Sidoarjo xemoticonx menu minggu ini nasi ayam suwir rica-rica harga 10 ribu xemoticonx porsi insyaallah akan disalurkan ke masjid, sebelum shalat jumat dimulai makanan sudah tersalurkan semoga berkenan terima kasih xemoticonx
 Momen istimewa saat mereka di pasar Krian
@@ -2131,7 +2131,7 @@ Waduh momen yang ditunggu-tunggu ini sama masyarakat pasar
 Sehat selalu mas Emil mbak Arumi
 Jawa Timur padamu mas Emil
 Momen yang tidak terlupakan
-Jadi ingin ketemu mas Emil dan mbak Arumi
+Jadi ingin bertemu mas Emil dan mbak Arumi
 Keakraban dengan pedagang luar biasa
 Suasana pasar Krian semakin hidup dengan kehadiran mereka
 Kunjungan yang menyatukan keharmonisan
@@ -2144,7 +2144,7 @@ Jawa Timur aman yang aku mau pak bu
 Jika Allah rida, semua akan baik-baik saja. Semangat Emil dan Arumi
 Ke pasar pepe Sedati dong Pak xemoticonx
 Kapan ke Trenggalek pak kecamatan suruh desa Mlinjon xemoticonx xemoticonx
-Ditata pasarnya biar aman nyaman buat yang beli dan jual dibangun kembali.
+Ditata pasarnya biar aman nyaman untuk yang beli dan jual dibangun kembali.
 Pasangan yang lucu sekali, Arumi masih imut-imut kelihatan di sini pak Emil yang mengayomi dan dewasa sekali xemoticonx
 Komunikasinya pak Emil dan bu Arumi dapat sekali, menyenangkan orang xemoticonx xemoticonx
 Kunjungi pasar xemoticonx kampung-kampung di Glenmore dong pak Emil xemoticonx
@@ -2168,7 +2168,7 @@ Semoga mereka terpilih xemoticonx xemoticonx xemoticonx xemoticonx
 Pasangan sejati, selalu mesra mendampingi suami dan suami selalu mesra terhadap sang istri xemoticonx masyaallah xemoticonx xemoticonx xemoticonx
 Coblos nomor dua untuk Jawa Timur xemoticonx xemoticonx xemoticonx
 Salah fokus baju Arumi seperti baju kurung zaman dulu tapi karena yang pakai cantik ya tetap pantas sekali xemoticonx
-Jika ke Sumbar bawa Ibu Negara ya Pak Emil. Mau lihat dari dekat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Jika ke Sumbar bawa Ibu Negara ya Pak Emil. Mau melihat dari dekat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Rezeki juga untuk penjaja minuman xemoticonx
 Kenapa tidak maju Jawa Timur satu saja sih bukan wakil
 Lanjutkan Khofifah Emil, coblos nomor dua
@@ -2190,13 +2190,13 @@ Ayo bisa ayo pilih nomor dua. Gas xemoticonx
 Saya pesantren berharap banyak pada kalian berdua. Lima tahun lalu sudah milih dan berikutnya akan tetap kami pilih. Meskipun pesantren kami belum pernah dapat apa pun selama mereka menjabat.
 Sudah pasti tidak saya pilih untuk kedua kalinya xemoticonx
 Pak tolong untuk bantuan sosial di Jawa Timur diperbaiki lagi datanya. Di tempat saya banyak yang tidak tepat sasaran.
-Masya Allah sederhananya istri pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah sederhananya istri pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ingin dapat baju lengan baju nomor dua maju bersama Jawa Timur top dua. Menyala nomor dua xemoticonx
 03 selalu di hati
 Insya Allah menang ya
 Khofifah- Emil Lanjutkan xemoticonx
 Calon wakil gubernur rasa gubernur xemoticonx xemoticonx xemoticonx
-Pas bagian xemoticonx jalan yang sulit xemoticonx ada bapak-bapak bawa minuman di kepala. Cocok xemoticonx xemoticonx
+Waktu bagian xemoticonx jalan yang sulit xemoticonx ada bapak-bapak bawa minuman di kepala. Cocok xemoticonx xemoticonx
 Keren ah penjelasannya xemoticonx xemoticonx xemoticonx xemoticonx
 Turut bangga pak Emil hadir di UB, semoga anak saya turut mendapatkan ilmunya xemoticonx xemoticonx xemoticonx
 Mantap.
@@ -2216,15 +2216,15 @@ Keren pasangan ibu Khofifah dan mas Emil. Pasti menang xemoticonx xemoticonx xem
 Menyala pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Tidak sangka suara Bu Khofifah mantap untuk jenis musiknya Dewa yang susah dan sedikit rock xemoticonx xemoticonx xemoticonx
 Tetap gubernur dan wakil gubernur Jawa Timur, pendukungnya banyak
-Selamat buat Bu Khofifah Pak Emil.
-Selamat buat Bu Khofifah xemoticonx
+Selamat untuk Bu Khofifah Pak Emil.
+Selamat untuk Bu Khofifah xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx pasangan bu Khofifah dan mas Emil
 Keren. Bu Khofifah dan mas Emil. Pasti menang xemoticonx xemoticonx
 Jawa Timur jelas mas Emil xemoticonx
 Lengah dikit jadi vokalis dewa 19 xemoticonx
 Sehat selalu amin ya rabbal alamin
 Muda, mampu, pantas, berkualitas. Keren Pak Emil Dardak xemoticonx xemoticonx
-Banyak tokoh, komunitas yang dukung 02 baik melalui lagu. Bahkan saya ada lihat video tokoh yang merekomendasikan untuk memilih 02 artinya sosok 02 memang sosok karakter pemimpin yang harus diperjuangkan xemoticonx
+Banyak tokoh, komunitas yang dukung 02 baik melalui lagu. Bahkan saya ada melihat video tokoh yang merekomendasikan untuk memilih 02 artinya sosok 02 memang sosok karakter pemimpin yang harus diperjuangkan xemoticonx
 Keren
 Terbaik gubernur Jawa Timur
 Mas Emil keren habis
@@ -2249,7 +2249,7 @@ Idola. Mas Emil orang bijaksana. Tidak seperti pejabat lainnya. lima tahun jadi 
 Ya Allah idola sekali pak Emil. Bahkan nanti mau jadi gubernur saya tetap mendukung pak Emil. Nomor 02 lanjutkan. Semoga sukses pasangan bu Khofifah - pak Emil dardak
 Terdepan mas Emil. Jawa Timur maju
 Jawa timur ya
-Semoga Allah memberikan kesehatan buat pak Emil
+Semoga Allah memberikan kesehatan untuk pak Emil
 Sudah lama mengikuti 02. Kerjanya bagus berprestasi. Bisa harmoni ke semua kalangan. Pemimpin mengayomi Jawa Timur provinsi besar guyub rukun. 02 harus dilanjutkan amin
 Saya dukung nomor dua tetap lanjut. Bu Khofifah dan pak Emil. Lanjutkan. xemoticonx
 Pak kalau nanti terpilih di Jawa Timur tolong dengar keluhan warga tentang fenomena musik horeg di Jawa Timur xemoticonx tolong cari informasi bagaimana efek musik horeg xemoticonx
@@ -2264,15 +2264,15 @@ Bahagia sekali sih tiap saat. Heran ih xemoticonx xemoticonx
 Mas xmentionx xmentionx sehat selalu ya. Senang lihatnya xemoticonx xemoticonx
 Aku suka sama keluarga Arumi, cinta mereka semakin subur sampai sama-sama menua nanti, sehat selalu ya, dalam lindungan Allah xemoticonx xemoticonx xemoticonx
 Suami idaman ayah idaman, sehat terus sekeluarga dan bahagia terus xemoticonx
-Menyesal deh bu malam-malam gulir instagram xemoticonx xemoticonx lihat ini xemoticonx xemoticonx
-Suami gandeng tangan begini kalau pas di mal saja. xemoticonx takut belanjanya banyak xemoticonx xemoticonx xemoticonx
-Komennya bikin sakit perut karena ketawa xemoticonx xemoticonx xemoticonx terima kasih ya bu ibu yang sudah menghibur saya di saat pikiran lagi berisik xemoticonx
+Menyesal deh bu malam-malam gulir instagram xemoticonx xemoticonx melihat ini xemoticonx xemoticonx
+Suami gandeng tangan begini kalau waktu di mal saja. xemoticonx takut belanjanya banyak xemoticonx xemoticonx xemoticonx
+Komennya bikin sakit perut karena tertawa xemoticonx xemoticonx xemoticonx terima kasih ya bu ibu yang sudah menghibur saya di saat pikiran lagi berisik xemoticonx
 Masyaallah panutan saya. Sukseskan aku seperti beliau ya Allah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Suami aku juga sama kayak begitu genggamannya erat sekali tapi sama hpnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Alhamdulillah bahagia semua
 Mas xmentionx kelihatan sekali sesayang itu sama xmentionx, suka sekali sama pasangan ini
 Pak Emil xmentionx bapak ibunya berhasil didik anak lelakinya. Bahagianya ibu Arumi
-Suami saya kalau aku gandeng lihat kiri kanan dulu xemoticonx xemoticonx xemoticonx
+Suami saya kalau aku gandeng melihat kiri kanan dulu xemoticonx xemoticonx xemoticonx
 Suami saya tidak seromantis itu xemoticonx
 Salah posisi seharusnya ayah ibu di samping anak-anak jagain bukan ibu ayah di tengah anak-anak jagain ibu dan ayah xemoticonx xemoticonx
 Bahagia dunia akhirat Bu Arum
@@ -2281,11 +2281,11 @@ Suka xemoticonx xemoticonx xemoticonx
 Masyaallah, senang sekali lihatnya xemoticonx
 Seperti ini lo gusti maksud saya
 Suami saya ya begini paling aslinya kalau tidak mikir uang xemoticonx xemoticonx xemoticonx
-Manis amat sih
+Manis sekali sih
 Penyayang sekali pak xmentionx buat ibu xmentionx malu selamanya xemoticonx
 Apa cuma aku yang tidak pernah dipegang tangannya di muka umum sama suami
 Masyaallah xemoticonx
-Aku juga suka digandeng erat suami tapi pas mau menyeberang jalan saja xemoticonx
+Aku juga suka digandeng erat suami tapi waktu mau menyeberang jalan saja xemoticonx
 Kayak begini maksudnya ya Allah xemoticonx
 Semoga Emil tidak seperti si Kamil xmentionx
 Perempuan jangan bawa perasaan ya, kalau suami kita tidak pegang-pegang tangan kayak begitu tidak romantis kayak begitu, pokoknya asal tidak KDRT, tidak judi, tidak mabuk, tidak gila perempuan sudah bersyukur saja xemoticonx xemoticonx xemoticonx jangan berharap ketinggian
@@ -2297,19 +2297,19 @@ Seorang bapak teladan xemoticonx
 Takut lepas
 Seperti si xmentionx benar tidak xmentionx xmentionx haha
 xemoticonx xemoticonx xemoticonx subhanallah walhamdulillah wala ilaha illallah wallahu akbar la haula wala quwata illa billah xemoticonx xemoticonx
-Senang lihat mereka berdua
+Senang melihat mereka berdua
 Suami saya tidak pernah pegang tangan saya xemoticonx eh lupa belum punya suami xemoticonx xemoticonx
 Mbak Arumi tidak ada posting sudah dua hari
 Itulah gerakan konsisten jari suami saya ketika scroll hp xemoticonx xemoticonx xemoticonx
 Kapan ya suami saya di muka umum pegang tangan saya kayak begitu
-Mas Emil Dardak. Suami yang romantis buat mbak Arumi xemoticonx bapak yang manis buat putra putrinya. Langka xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat xemoticonx bahagia selalu semua.
+Mas Emil Dardak. Suami yang romantis untuk mbak Arumi xemoticonx bapak yang manis untuk putra putrinya. Langka xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat xemoticonx bahagia selalu semua.
 Masyaallah ibu xemoticonx xemoticonx
 Tidak terhitung berapa banyak pahala mereka.
 Kalian ini manis sekali pegang terus xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-xmentionx sehat-sehat ya ibu, panutan sekali insyaallah. Terus menebar suasana positif kayak begini. Banyak yang takut berumah tangga karena maraknya berita negatif tentang pernikahan, tapi kalau lihat sisi kayak begininya masyaallah jomlo mana yang tidak ingin segera menyusul bu xemoticonx xemoticonx xemoticonx
+xmentionx sehat-sehat ya ibu, panutan sekali insyaallah. Terus menebar suasana positif kayak begini. Banyak yang takut berumah tangga karena maraknya berita negatif tentang pernikahan, tapi kalau melihat sisi kayak begininya masyaallah jomlo mana yang tidak ingin segera menyusul bu xemoticonx xemoticonx xemoticonx
 Apa cuma aku yang tidak pernah dipegang tangannya di depan umum sama suami xemoticonx
 Sama persis kayak anak saya yang remaja perempuan, dipegang tangannya sama papanya sudah tidak mau
-Suka sekali lihat kalian xemoticonx xemoticonx xemoticonx xemoticonx
+Suka sekali melihat kalian xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga menang pak Emil dan bu Khofifah. Saya tim sukses kalian dari dulu sampai sekarang di periode kedua tetap mendukung. Kami dari Madura, Sumenep semoga selalu istikamah dan amanah. Sukses selalu
 Kalau dulu menikah sama si beler tidak sebahagia ini Arumi dicintai berlebihan sama suami xemoticonx
 Pasangan sederhana tapi romantis sekali bikin iri saja bu xemoticonx xemoticonx idola saya xemoticonx xemoticonx
@@ -2317,13 +2317,13 @@ Mau aku yang jodoh kayak begini lo ya Allah
 Cantik sekali masyaallah xemoticonx
 Tolong beberapa hal ini diperhatikan untuk calon gubernur yang baru. satu, musik horeg yang meresahkan dan banyak mudharatnya. dua, perguruan yang bikin rusuh tolong ditindak tegas. Bikin Jawa Timur kembali nyaman. xmentionx
 Acara apa ini Bu
-Aduh, bismillah ketemu jodoh begini xemoticonx xemoticonx
-Wah cemburu sekali aku lihat mereka
+Aduh, bismillah bertemu jodoh begini xemoticonx xemoticonx
+Wah cemburu sekali aku melihat mereka
 Selalu jadi pasangan idola saya xemoticonx xemoticonx
 Bahagia terus ya sampai kalian menua xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 SEMOGA ALLAH SWT SELALU MEMBERIKAN RAHMAT DAN PERLINDUNGAN ANAK RIDA ALLAH SELAMANYA. SALAM DARI SENIOR LANSIA BANDUNG
 Aku fokus saja sama jempol suaminya xemoticonx xemoticonx
-Bangun tidur lihat beginian. Meleleh
+Bangun tidur melihat beginian. Meleleh
 Sama
 Seperti biasa kebagian senyumnya doang xemoticonx
 Masyaallah pak Emil begitu sayang keluarga xemoticonx
@@ -2339,10 +2339,10 @@ Aduh manis sekali pak Emil kayak masih pacaran saja sama Bu Arumi.
 Pak Emil. Mengutamakan keluarga sekali xemoticonx
 Jangankan xemoticonx romantis kayak begini xemoticonx
 Romantis sekali sih berasa pacaran terus xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Masyaallah suka lihat pasangan ini. Suka sama Bu Arumi semenjak main film horor cantik sekali putih lagi semenjak masih gadis xemoticonx ingin sekali ketemu meski cuma khayalan saja bisanya cuma lihat di instagram dan tiktok xemoticonx
+Masyaallah suka melihat pasangan ini. Suka sama Bu Arumi semenjak main film horor cantik sekali putih lagi semenjak masih gadis xemoticonx ingin sekali bertemu meski cuma khayalan saja bisanya cuma melihat di instagram dan tiktok xemoticonx
 Definisi suami penyayang anak istri
 Langgeng sampai surga ya bu Arumi dan pak Emil xemoticonx xemoticonx, masyaallah, tabarakallah
-Pa xmentionx tipe suami dan ayah terbaik buat istri sama anak-anaknya. masyaallah. Semoga bahagia selalu, sehat semuanya. xemoticonx
+Pak xmentionx tipe suami dan ayah terbaik untuk istri sama anak-anaknya. masyaallah. Semoga bahagia selalu, sehat semuanya. xemoticonx
 Selalu manis sekali berdua xemoticonx xemoticonx xemoticonx
 Semoga selalu diberi keberkahan kebahagian, amin ya rabb
 Sungguh beruntung Arumi Bachsin Emil Dardak suaminya coba kalau sama yang itu tidak tahu
@@ -2355,10 +2355,10 @@ Suami saya lebih mesranya sama genggaman hpnya bukan sama aku xemoticonx xemotic
 Sehat selalu xemoticonx xemoticonx xemoticonx xemoticonx
 Anaknya berasa jadi nyamuk ya. xemoticonx
 Ya ampun. Kesal sekali lihatnya. xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Karakter suami itu memang beda xemoticonx tapi buat pak Emil masyaallah. xemoticonx xemoticonx
+Karakter suami itu memang beda xemoticonx tapi untuk pak Emil masyaallah. xemoticonx xemoticonx
 Manis sekali xemoticonx pasangan panutan xemoticonx xemoticonx xemoticonx xemoticonx
 Dunia cuma milik berdua, yang lain mah mengontrak xemoticonx xemoticonx
-Jadi iri lihat pasangan ini. Semoga bahagia selalu. Amin
+Jadi iri melihat pasangan ini. Semoga bahagia selalu. Amin
 Masyaallah senang sekali lihatnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jadi nyaman kalau kayak begini di samping suami mah
 Semoga mas Emil dan mbak Arumi selalu sehat, panjang umur, sukses, sakinah mawadah warahmah amin xemoticonx xemoticonx
@@ -2368,20 +2368,20 @@ Kameraman aman?
 Suami saya alhamdulillah juga kayak begitu di depan umum, tapi waktu melewati toko pakaian dan toko emas, digenggam erat sekali biar tidak mengajak masuk ke sana xemoticonx xemoticonx xemoticonx ingin menangis tapi lupa nadanya
 Manis sekali idola
 Dapatkan nomor otp dari mana?
-Aduh ibu paling senang lihat pasangan ini selalu mesra semoga terus ya sampai kakek nenek
+Aduh ibu paling senang melihat pasangan ini selalu mesra semoga terus ya sampai kakek nenek
 Jadi ingin, sekarang sudah tidak ada lagi yang memegangi, sudah almarhum xemoticonx
-Ya Allah romantisnya pasangan ini semoga sampai surga sampai kakek nenek, sampai maut memisahkan buat ibu bapak wakil gubernur.
+Ya Allah romantisnya pasangan ini semoga sampai surga sampai kakek nenek, sampai maut memisahkan untuk ibu bapak wakil gubernur.
 Selalu penuh dengan cinta. xemoticonx xemoticonx xemoticonx xemoticonx
 Bahagianya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Waktu pacaran digandeng mesra, setelah jadi pasangan suami istri, istri minta gandeng dipikirkan, xemoticonx
 Aduh iri xemoticonx xemoticonx
-Ibunya Arumi kayaknya bahagia sekali lihat anaknya diratukan dibudak cintain sama menantunya, definisi Arumi selamat dan bahagia karena patuh sama orang tuanya xemoticonx xemoticonx
+Ibunya Arumi kayaknya bahagia sekali melihat anaknya diratukan dibudak cintain sama menantunya, definisi Arumi selamat dan bahagia karena patuh sama orang tuanya xemoticonx xemoticonx
 Egois ada anaknya. xemoticonx
 Masyaallah.
 Langgeng ya bu selamanya
-Pak Emil sudah tenang bisa fokus untuk bekerja. Membelanjakan keluarga mencukupi xemoticonx xemoticonx xemoticonx ada lebih. Istri baik cantik setia. Keluarga adem ayem. Pak Emil bersyukur dengan cara demikian. Sementara di luar sana. Au xemoticonx xemoticonx semangat buat kalian semua
+Pak Emil sudah tenang bisa fokus untuk bekerja. Membelanjakan keluarga mencukupi xemoticonx xemoticonx xemoticonx ada lebih. Istri baik cantik setia. Keluarga adem ayem. Pak Emil bersyukur dengan cara demikian. Sementara di luar sana. Au xemoticonx xemoticonx semangat untuk kalian semua
 Aduh aduh aduh meleyot xemoticonx xemoticonx
-Masyaallah xemoticonx tangan saya digenggam suami cuma pas mau tidur sampai ketiduran saja tapi alhamdulillah lah biar tidak kabur malam istrinya xemoticonx xemoticonx
+Masyaallah xemoticonx tangan saya digenggam suami cuma waktu mau tidur sampai ketiduran saja tapi alhamdulillah lah biar tidak kabur malam istrinya xemoticonx xemoticonx
 bawa perasaannya sampai sini xemoticonx xemoticonx xemoticonx xemoticonx
 Pasangan terbaik xemoticonx
 Anaknya nomor dua xemoticonx xemoticonx
@@ -2397,20 +2397,20 @@ Kalau anda melihat logo Program KB xemoticonx keluarga berencana xemoticonx dari
 Cantik ramah sederhana, xemoticonx xemoticonx xemoticonx
 Waduh. Kenapa posisi duduknya begitu ya. Mestinya putra-putrinya di tengah, kedua orang tua di pinggir jadi anak-anak terjaga.
 Saking lamanya tidak pernah digenggam tangan saya sama suami pernah genggaman kayak begini di tempat umum berdebar-debar kayak lagi pacaran xemoticonx tapi ya agak kaku canggung saking lamanya 11 tahun tidak pernah mesra depan umum walaupun pegangan tangan xemoticonx
-Tim yang tidak pernah dipegang tangan sama suami di tempat umum xemoticonx xemoticonx lihat mbak Arumi bikin iri xemoticonx
+Tim yang tidak pernah dipegang tangan sama suami di tempat umum xemoticonx xemoticonx melihat mbak Arumi bikin iri xemoticonx
 Kabur ayo. Kita cuma penonton xemoticonx xemoticonx xemoticonx
 Kalau buka instagram pasti langsung bu Arumi yang dilihat senang lihatnya xemoticonx xemoticonx
 Mau juga
 Ya Allah semoga anak-anak saya yang dua-duanya cewek ini nanti dapat suami kayak pak Emil. Amin ya rabb
-Ciri suami yang sayang sama istri lihat genggamannya. Bila di usia mereka seperti itu maka itu suami istri dunia akhirat
+Ciri suami yang sayang sama istri melihat genggamannya. Bila di usia mereka seperti itu maka itu suami istri dunia akhirat
 Mas Emil kenapa bisa manis sekali sih sama istrinya, kan aku iri xemoticonx
-Senang begitu lihat pasangan ini. Lagi membayangkan juga pasangan saya kayak begitu xemoticonx xemoticonx
+Senang begitu melihat pasangan ini. Lagi membayangkan juga pasangan saya kayak begitu xemoticonx xemoticonx
 Bikin netizen pada bawa perasaan terus ini mah xemoticonx xemoticonx
 Pacar saya juga begitu tapi bukan sama aku. Sama LC karaokenya xemoticonx
 Kalau suami yang lain mah pasti sudah sibuk sama hpnya. Badan di mana. Pikiran di mana.
 xmentionx harusnya ya kayak kang Emil begini lo, mesra xemoticonx
 Senang sekali diratukan sama suami adem lihatnya
-Senang sekali lihat pasangan ini bikin adem xemoticonx istri cantik suami penyayang masyaallah
+Senang sekali melihat pasangan ini bikin adem xemoticonx istri cantik suami penyayang masyaallah
 Laki saya mah tidak begitu-begitu mau di mana juga wkwkwkwk
 Sama kayak suami saya megang hpnya xemoticonx
 Gini ini mas xmentionx digenggam saja tangannya xemoticonx
@@ -2426,7 +2426,7 @@ Ya Allah seandainya semua suami seperti itu bahagianya semua istri
 Kalau aku digandeng suami saat mau menyeberang jalan raya xemoticonx
 Formasi saya biasanya aku di pinggir kanan terus anak saya dua xemoticonx nya di tengah terus laki saya, pastinya di sebelah kiri lah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah bu, beruntung sekali ya
-Manis sekali xemoticonx xemoticonx xemoticonx xemoticonx senang sekali lihat pasangan ini
+Manis sekali xemoticonx xemoticonx xemoticonx xemoticonx senang sekali melihat pasangan ini
 Aura bidadarinya keluar sekali mbak Arumi
 Oh manis sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Manis sekali rumah tangga mereka ya
@@ -2436,7 +2436,7 @@ Definisi bahagia budak cinta setelah menikah xemoticonx xemoticonx dan direstui 
 Aku sudah 30 tahun menikah, tidur saja kita genggam tangan, kayak mau menyeberang xemoticonx xemoticonx xemoticonx
 Bahagia selalu bu Arumi
 Yang dipegang tangannya Arumi kenapa saya yang ikutan senang sih xemoticonx xemoticonx xemoticonx semoga auranya menular bahagia keluarga kita amin xemoticonx xemoticonx xemoticonx xemoticonx
-Tidak bisa berkata apa-apa lihat keluarga pejabat yang harmonis bahagia tidak pernah pamer harta kekayaan duh semoga rukun damai bahagia sukses selalu buat keluarga yang penuh keromantisan ini dunia akhirat amin xemoticonx xemoticonx xemoticonx
+Tidak bisa berkata apa-apa melihat keluarga pejabat yang harmonis bahagia tidak pernah pamer harta kekayaan duh semoga rukun damai bahagia sukses selalu untuk keluarga yang penuh keromantisan ini dunia akhirat amin xemoticonx xemoticonx xemoticonx
 Karena sadar di-syuting atau memang selalu romantis nih Pak Emil xemoticonx ahaaaa semoga selalu romantis ya di luar maupun di dalam xemoticonx langgeng selalu
 Suami saya juga begitu xemoticonx xemoticonx
 Bu Arumi saya boleh tidak cemburu?
@@ -2447,15 +2447,15 @@ Romantis sekali manis banget xemoticonx
 Apa cuma aku yang punya suami yang tidak romantis. Apa dia malu punya istri kayak aku. xemoticonx
 Keluarga idaman xemoticonx
 Masyaallah. Itu tangan tidak mau lepas bikin iri saja xemoticonx xemoticonx
-Ya Allah iri sekali lihat pasangan ini
+Ya Allah iri sekali melihat pasangan ini
 Sama kayak suami saya menggenggam hpnya xmentionx xemoticonx
 Suami saya genggam tangan saya erat sekali. Tidak mau dilepas. Setiap kali kita jalan-jalan di mal
 Arumi, suamimu jomlo tidak?
 Senang lihatnya romantis seperti masa muda memang perlu kehangatan
 Entahlah melihat ini seakan mau meronta, karena aku ingin suami aku genggam erat tangan aku tapi sayang dia mah lebih suka genggam handphone xemoticonx
 Hayo pada bete ya
-Adem sekali lihat pasangan ini xemoticonx xemoticonx ingin diperlakukan begini sama suami tapi xemoticonx xemoticonx xemoticonx suami saya kutub utara, hipotermia aku dibuatnya xemoticonx xemoticonx
-Adem benar kalau lihat bu Arumi sama Pak Emil xemoticonx xemoticonx xemoticonx
+Adem sekali melihat pasangan ini xemoticonx xemoticonx ingin diperlakukan begini sama suami tapi xemoticonx xemoticonx xemoticonx suami saya kutub utara, hipotermia aku dibuatnya xemoticonx xemoticonx
+Adem benar kalau melihat bu Arumi sama Pak Emil xemoticonx xemoticonx xemoticonx
 Selamat berbahagia dengan sang suami tercinta
 Saya jangankan pegang tangan baru dekatan saja anak saya sudah ngamuk xemoticonx mamanya hanya milik dia sendiri xemoticonx
 Masyaallah suaminya benar-benar menjaga istri dan anaknya xemoticonx
@@ -2486,11 +2486,11 @@ Investasi masa depan bapak xmentionx, kelak di masa tua akan diperlakukan yang s
 Tapi insyaallah walaupun saya tidak publik figur ke mana-mana selalu nempel, jalan selalu gandengan.
 Suami dan ayah idaman
 Sama seperti suami saya, tapi dalam dunia khayalan xemoticonx xemoticonx xemoticonx
-Bu xmentionx yang dipegang tangannya aku yang meleleh lihatnya xemoticonx xemoticonx bahagia selalu ya Bu dan bapak sekeluarga xemoticonx xemoticonx xemoticonx masya Allah sekali xemoticonx xemoticonx
+Bu xmentionx yang dipegang tangannya aku yang meleleh lihatnya xemoticonx xemoticonx bahagia selalu ya Bu dan bapak sekeluarga xemoticonx xemoticonx xemoticonx masyaallah sekali xemoticonx xemoticonx
 Rasanya melayang-layang deh kalau suami saya kayak begitu selama menikah ingin romantis kayak begitu
 Suami saya juga begini kok kalau dalam mimpi
 Senang sekali aku melihat pasangan yang satu ini sakinah mawadah warahmah dunia dan akhirat mbak Arumi Bachsin dan mas Emil Dardak amin
-Manis sekali. Lihat pak Emil jadi ingat aku diperlakukan suami aku juga begitu. xemoticonx xemoticonx xemoticonx
+Manis sekali. melihat pak Emil jadi ingat aku diperlakukan suami aku juga begitu. xemoticonx xemoticonx xemoticonx
 Masyaallah tabarakallah sehat-sehat selalu Pak Emil sekeluarga xemoticonx xemoticonx xemoticonx xemoticonx
 Woi bubar bubar. Bu saya malas berberes ibu saja yang pergi ke mars lah sama bapak. Tiketnya saya belikan
 Bentar saya tag suami saya biar tahu bagaimana caranya gandengan tangan xemoticonx xemoticonx
@@ -2509,12 +2509,12 @@ Mama papanya pacaran. Anak-anak sudah pada kelihatan mandiri. Keluarga bahagia
 Semoga tetap sakinah mawadah warahma
 Semoga Allah SWT memberkati keluarga ini
 Bos rambutnya agak bermodel dong, jangan modelnya jadul saja xemoticonx
-Aduh lihat mbak Arumi dan mas Emil senang sekali
-xemoticonx senang lihatnya. Doa terbaik buat keluarga Pak Emil
-Sisakan satu laki-laki seperti ini buat anak saya xemoticonx
+Aduh melihat mbak Arumi dan mas Emil senang sekali
+xemoticonx senang lihatnya. Doa terbaik untuk keluarga Pak Emil
+Sisakan satu laki-laki seperti ini untuk anak saya xemoticonx
 Saking tidak mau jauh manis sekali dah ah, anak-anaknya yang mengapit emak bapaknya xemoticonx tertawa pula baca komenan ya Allah xemoticonx
 Aku di situ jadi kursinya
-Wah sama seperti suamiku juga suka genggam erat tanganku tapi pas mau menyebrang xemoticonx
+Wah sama seperti suamiku juga suka genggam erat tanganku tapi waktu mau menyebrang xemoticonx
 Masyaallah aku juga mau punya suami yang seperti itu xemoticonx
 Suamiku juga begitu, tangannya matanya tidak lepas dari pandangan, tapi bukan pandangan ke aku, tapi ke hpnya xemoticonx xemoticonx xemoticonx
 Habibie-Ainun yang kedua ini mah kayaknya
@@ -2523,19 +2523,19 @@ Selalu romantis di setiap momen xemoticonx xemoticonx xemoticonx xemoticonx
 Itu nonton apa sih
 Sehat-sehat Bapak sekeluarga salam dari orang tak mampu
 Masyaallah bahagia selalu xemoticonx
-Suamiku juga seperti ini kok tapi pas awal-awal menikah lah sekarang yang selalu dipegang erat hpnya ah tahu ah ketawa saja ketimbang pusing xemoticonx
+Suamiku juga seperti ini kok tapi waktu awal-awal menikah lah sekarang yang selalu dipegang erat hpnya ah tahu ah tertawa saja ketimbang pusing xemoticonx
 Sisakan satu laki-laki seperti pak Emil ya Allah xemoticonx xemoticonx xemoticonx
-Aku senang sekali lihat keluarga ini
+Aku senang sekali melihat keluarga ini
 Tertawa xemoticonx xemoticonx xemoticonx
 Alhamdulillah suamiku kurang lebih juga seperti itu menyebrang jalan juga pasti digandeng maaf cium rambut begitu xemoticonx walaupun pernikahan kami sudah 24 tahun tapi perhatian ke istri sangat luar biasa padahal orang NTT tapi sabarnya saya yang Jawa kalah
 Aduh ada lagi tidak yang begini satu xemoticonx xemoticonx
 Bang Emil masyaallah kelihatan sekali dia adalah orang yang benar-benar sayang sama anak istrinya
 Asyik ih Bapak, Ibu xemoticonx
-Bahagia deh lihat seperti kalian
+Bahagia deh melihat seperti kalian
 Hus hus hus selain pak Emil dan bu Arumi semuanya numpang di dunia ini, hus hus xemoticonx xemoticonx xemoticonx
 Tidak kuat manis sekali
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx bikin meleleh pasangan suami istri ini xemoticonx xemoticonx xemoticonx bikin netizen cemburu xemoticonx xemoticonx xemoticonx xemoticonx
-Senang lihat akhlaknya bang Emil sayang sekali sama keluarga kecilnya. Semoga kelak saya bisa dapat imam seperti beliau amin xemoticonx xemoticonx xemoticonx xemoticonx
+Senang melihat akhlaknya bang Emil sayang sekali sama keluarga kecilnya. Semoga kelak saya bisa dapat imam seperti beliau amin xemoticonx xemoticonx xemoticonx xemoticonx
 Seperti melihat diriku xemoticonx suami xemoticonx bedanya aku yang genggam erat tangannya xemoticonx xemoticonx
 Cuma digandeng kalau lagi nge-mal biar aku tidak kalap xemoticonx xemoticonx
 Sama kok suamiku juga erat aura pancarannya genggamannya setia ke layar HP
@@ -2550,7 +2550,7 @@ Suamiku begitu tapi akunya kadang malu xemoticonx
 Ada lagi tidak sih yang seperti si bapak Emil? xemoticonx xemoticonx xemoticonx xemoticonx
 Tombol untuk yang tidak pernah digandeng tangannya sama pasangannya xemoticonx
 Anaknya di rumah, tidak diganggu anak, kalau aku mah diributi sama anak-anak xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx masyaallah ayahnya ganteng ibunya cantik pol putra putrinya tidak kalah cakepnya. Semoga sakinah mawadah warahma
+xemoticonx xemoticonx xemoticonx masyaallah ayahnya ganteng ibunya cantik sekali putra putrinya tidak kalah cakepnya. Semoga sakinah mawadah warahma
 Berkah
 Senang lihatnya, keluarga yang bahagia dan penuh berkat xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga abadi sampai akhir
@@ -2563,7 +2563,7 @@ Lanjutkan. Pilih nomor dua bu Khofifah-Emil
 Calon presiden kalau tidak korupsi
 Mantap
 Ya ampun cantik sekali Iris Bella
-Gila pak Emil auranya sudah positif bawaannya tenang juga bijak, suka sekali lihat cara memandangnya ke istrinya seperti suamiku kalau lagi mantengin reel sama TikTok xemoticonx
+Gila pak Emil auranya sudah positif bawaannya tenang juga bijak, suka sekali melihat cara memandangnya ke istrinya seperti suamiku kalau lagi mantengin reel sama TikTok xemoticonx
 Kutukan jadi apel beruntun
 Perjodohan yang sukses sih ini
 Dulu anak saya satu yayasan dengan mbak Arumi waktu sekolah, anakku SD mbak Arumi SMA cantik putih xemoticonx
@@ -2584,7 +2584,7 @@ Meleleh xemoticonx xemoticonx xemoticonx
 Aura maskulinnya kuat sekali xemoticonx
 Bagaimana tidak jatuh cinta setiap hari kalau diperlakukan seperti itu xemoticonx
 Memang romantis ya Emil-nya
-Persis suamiku kalau pas jalan di mal genggamannya tidak mau lepas takut istrinya kalap belanja xemoticonx
+Persis suamiku kalau waktu jalan di mal genggamannya tidak mau lepas takut istrinya kalap belanja xemoticonx
 Suamiku begitu juga kok tapi
 Tenang bun sama kita xemoticonx xemoticonx xemoticonx
 Masyaallah bahagia sekali ya Allah xemoticonx xemoticonx xemoticonx
@@ -2598,7 +2598,7 @@ Ini untuk pasangan yang ekonomi stabil bukan ekonomi naik turun seperti kita xem
 Melihat ini kenapa emak-emak pada membandingkan yang sama di rumah sih xemoticonx
 Cengar-cengir kalian semua pada xemoticonx
 Tangan pak Emil sama seperti tangan suamiku saat menggenggam hpnya xemoticonx xemoticonx
-Asli cantik sekali bu Arumi lihat pas menghadiri event NextGen ini xemoticonx
+Asli cantik sekali bu Arumi lihat waktu menghadiri event NextGen ini xemoticonx
 Aduh meleleh xemoticonx xemoticonx xemoticonx xemoticonx
 Seperti suamiku menggenggam hpnya xemoticonx
 Aku juga begitu suka remas-remas tangan tapi langsung berantem karena remas sakit xemoticonx xemoticonx xemoticonx xemoticonx
@@ -2609,27 +2609,27 @@ Ih jadi ingin jadi istrinya pak Emil begitu misalkan ya kan xemoticonx xemoticon
 Pasangan impian
 Masyaallah
 Rumah tangga harmonis xemoticonx xemoticonx
-Satu dong buat aku xemoticonx
+Satu dong untuk aku xemoticonx
 Ideal xemoticonx
 Ingin ya Allah satu
-Aduh tangannya mbak xmentionx ada lem altekonya ya mbak sampai tangannya pak xmentionx lengket terus tidak bisa lepas. Bahagia terus ya buat kalian berdua xemoticonx xemoticonx
+Aduh tangannya mbak xmentionx ada lem altekonya ya mbak sampai tangannya pak xmentionx lengket terus tidak bisa lepas. Bahagia terus ya untuk kalian berdua xemoticonx xemoticonx
 Iri xemoticonx
 Genggaman tangan pak Emil mengingatkanku pada genggaman tanganku saat megang uang xemoticonx
-Suami genggam begini kalau tidak ada yang lihat xemoticonx gengsi romantis padahal semua istri maunya begini
+Suami genggam begini kalau tidak ada yang melihat xemoticonx gengsi romantis padahal semua istri maunya begini
 xemoticonx xemoticonx xemoticonx xemoticonx suka lihatnya sakinah mawadah warahma xemoticonx xemoticonx xemoticonx
-Kok aku yang berdebar-debar ya lihat pak Emil gandeng tangannya bu Arumi xemoticonx
+Kok aku yang berdebar-debar ya melihat pak Emil gandeng tangannya bu Arumi xemoticonx
 Mukanya Arumi bening xemoticonx xemoticonx
 Ingin suami seperti itu romantis xemoticonx
 Ketika pacaran begitu tapi ketika punya anak perhatian lebih terbagi ke anak apalagi untuk yang anaknya masih kecil
 Jarang laki-laki seperti mas Emil, beruntung sekali istrinya xemoticonx
 Emil tampangnya biasa saja tapi tanggung jawabnya yang luar biasa dan cinta pada istrinya istimewa sekali inilah lelaki sebenarnya bukan modal tampang doang tidak ada isinya banyakan lelaki sekarang xemoticonx
 Saya termasuk kelompokmu mbak
-xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx suka sekali lihat pasangan satu ini
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx suka sekali melihat pasangan satu ini
 Putrinya mbak Arumi cantiknya masyaallah
 Sebuah gambaran bahwa nantinya pasanganlah yang tetap berada di samping kita sedangkan anak-anak akan pergi dan punya kehidupan masing-masing. Sehat selalu pak Emil dan keluarga xemoticonx
 Jadi ingat mas yang itu yang suka remas-remas tanganku xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xmentionx bagaimana nih mam? Suami kita sudah seperti pak Emil belum? xemoticonx
-Masyaallah suka sekali lihat kalian semoga selalu akan terus seperti ini ya sampai surga. Cinta keluarga kalian xemoticonx xemoticonx
+Masyaallah suka sekali melihat kalian semoga selalu akan terus seperti ini ya sampai surga. Cinta keluarga kalian xemoticonx xemoticonx
 Aduh jadi ingat sama suamiku mesra sekali kalau genggam sampai tidak mau lepas tiap mau tidur juga selalu dielus xemoticonx tapi bukan tanganku tapi sama hpnya xemoticonx xemoticonx xemoticonx
 Apa sih kekurangan pasangan ini sempurna sekali
 Seperti suami aku persis sekali seperti itu sering megang. Megangin HP-nya melulu xemoticonx xemoticonx
@@ -2637,8 +2637,8 @@ Semua wanita ingin diperlakukan seperti ini sederhana tapi merasa dianggap dan b
 Bikin iri saja xemoticonx
 Suamiku seperti itu sambil diciumin tanganku xemoticonx
 Aku iri Arumi kamu dirayakan
-Lihat pak Emil seperti lihat suamiku xemoticonx xemoticonx
-Pasangan favorit aku sekali ini, senang saja lihat mereka
+melihat pak Emil seperti melihat suamiku xemoticonx xemoticonx
+Pasangan favorit aku sekali ini, senang saja melihat mereka
 Genggaman tangannya seperti suami aku ke hpnya kencang banget
 Bapak Emil punya kembaran tidak? Kalau ada jadi mantuku ayo xemoticonx
 Masyaallah aku saja jarang sekali dipegang tangan terus seperti itu
@@ -2654,7 +2654,7 @@ Semoga langgeng
 Selanjutnya RI satu mas xmentionx xemoticonx
 Masyaallah tabarakallah
 Penuh dengan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sekali
-Sakinah mawadah warahma buat mas Emil dan mbak Arumi xemoticonx xemoticonx
+Sakinah mawadah warahma untuk mas Emil dan mbak Arumi xemoticonx xemoticonx
 Adem lihatnya
 Apa karena dia cantik ya makanya dicintai sebegitunya xemoticonx
 Ikut bahagia melihatnya xemoticonx
@@ -2662,7 +2662,7 @@ Masyaallah ya rab tolong jaga dan lindungi keluarga ini dari para penggoda xemot
 Masyaallah senang sekali lihatnya xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah pasangan terbaik yang aku tahu dari semua artis sederhana
 Kak Arumi benar xemoticonx bersinar di kegelapan xemoticonx
-Kenapa sih aku selalu bahagia lihat kalian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xmentionx xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Kenapa sih aku selalu bahagia melihat kalian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xmentionx xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga xemoticonx
 Sakinah mawadah warahma sampai surga xemoticonx
 Idola sekali xemoticonx
@@ -2790,7 +2790,7 @@ Wah keren xemoticonx xemoticonx
 Sudah romantis ke istri. Suaranya bagus masyaallah xemoticonx pak Emil
 Sampai lupa. Emil Dardak dulunya penyanyi xemoticonx xemoticonx
 Ini eksekutif muda yang pintar dan jenius
-Album buat kampanyekah. Tapi suara pak Emil keren ya
+Album untuk kampanyekah. Tapi suara pak Emil keren ya
 Ya Allah suaranya bagus xemoticonx
 Ganteng sekali pak Emil xemoticonx
 Suka xemoticonx xemoticonx xemoticonx
@@ -2798,8 +2798,8 @@ Baru kali ini melihat dan mendengar Ibu Khofifah bersenandung. Mantap Ibu dan Ma
 Bisa nih Pak Emil bikin album
 Saya suka dengan mas Emil dan istri masih bersahaja dan tetap apa adanya
 Ngefans sama pak Emil dari jalan beliau masih jadi Bupati xemoticonx
-Kalau tidak lihat video klipnya tidak kira kalau itu suara pak Emil, keren calon wakil gubernur saya xemoticonx xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx menyala Calon Wakil Gubernur Jawa Timur. Lanjutkan, saya warga Jawa Timur bangga dengan nomor 2
+Kalau tidak melihat video klipnya tidak kira kalau itu suara pak Emil, keren calon wakil gubernur saya xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx menyala Calon Wakil Gubernur Jawa Timur. Lanjutkan, saya warga Jawa Timur bangga dengan nomor dua
 Semakin semangat dan suka xemoticonx
 Keren sekali lagunya, sukses selalu
 Ini sih benar-benar berdosa mengagumi suami orang hahaha. Maaf ya bu Arumi xemoticonx xemoticonx
@@ -2816,11 +2816,11 @@ Tenang saja Pak, semua anggota Kenshin Kempo Surabaya sudah pasti arahnya ke man
 Mantap Emil Dardak xemoticonx xemoticonx xemoticonx
 Pak Emil keren
 Lanjutkan xemoticonx
-Semangat buat pak Emil dan ibu Khofifah semoga sukses dan semoga menang
+Semangat untuk pak Emil dan ibu Khofifah semoga sukses dan semoga menang
 Lebih baik ini yang jadi menteri daripada Nidji xemoticonx
 Sehat-sehat ya bu, dan tetap setia pak Emil
 KHOFIFAH EMIL pilihanku xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx untuk Jawa Timur lebih maju, masyarakatnya bisa tersenyum
-Sebal sekali lihat si botak tidak respek sama sekali
+Sebal sekali melihat si botak tidak respek sama sekali
 Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Sukses untuk beliau berdua xemoticonx
 Semangat pak Emil sama Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Aduh Bu Khofifah menyanyi seperti menahan buang air besar xemoticonx
@@ -2831,8 +2831,8 @@ Tetap dua periode. Harus
 Menyala bu Khofifah xemoticonx
 Semoga ada yang memperhatikan jadi calon wakil presiden
 Mantap jiwa seninya xemoticonx xemoticonx xemoticonx
-Masyaallah semoga kemenangan kembali buat bu Khofifah dan mas Emil
-Maju nomor dua gas pol xemoticonx nyala Jawa Timur
+Masyaallah semoga kemenangan kembali untuk bu Khofifah dan mas Emil
+Maju nomor dua gas penuh xemoticonx nyala Jawa Timur
 Keren xemoticonx xemoticonx xemoticonx xemoticonx
 Keren sekali bapak yang satu ini
 Mantap ibu. Sama pak Emil. Saya siap mendukung xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -2842,7 +2842,7 @@ Keren
 xmentionx lo
 Penasaran bu Khofifah menyanyi xemoticonx
 Iya xemoticonx
-Semoga mendapatkan yang terbaik, buat pak Emil amin amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Semoga mendapatkan yang terbaik, untuk pak Emil amin amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx
 Wah keren-keren xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Suka sekali. Ibu Khofifah dan mas Emil. Keren xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -2861,7 +2861,7 @@ Masyaallah
 Keren lagunya. Serius mas Emil
 Usaha dan doa!
 Aduh. Pakai Dewa lagi xemoticonx xemoticonx xemoticonx
-Lah Ahmad Dhani ketemu pengganti Ello xemoticonx
+Lah Ahmad Dhani bertemu pengganti Ello xemoticonx
 Aku sih iya xemoticonx xemoticonx xemoticonx xemoticonx
 Wow keren pak Emil bersama ibu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
 Luar biasa gubernur dan wakil gubernurku xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -2879,14 +2879,14 @@ Dulu mencoblos pak Emil. Nanti mencoblos pak Emil lagi. Hasil kinerjanya nyata. 
 Protes
 Percuma pintar ujung-ujungnya jadi boneka fufu fafa
 Keren Pak Emil xemoticonx xemoticonx xemoticonx
-Senang sekali lihat pasangan mbak Arumi sama pak Emil Dardak semoga sakinah hingga ke surga. Amin
+Senang sekali melihat pasangan mbak Arumi sama pak Emil Dardak semoga sakinah hingga ke surga. Amin
 Mas kenapa tidak jadi menteri saja. Kamu lebih cocok dan layak jadi menteri
 Lanjutkan Bu Khofifah dan Emil xemoticonx xemoticonx xemoticonx
 Memang suaranya kang masmu top sekali mbak
 Waktu bikin video di heritage-nya mas Dhani saya sempat foto sama bapak Emil bu
 Tidak menyangka suaranya keren. Nada tinggi oke
 Pak Emil, serba bisa
-Saya pilih kang Emil buat Jawa Timur semakin gas xemoticonx
+Saya pilih kang Emil untuk Jawa Timur semakin gas xemoticonx
 Mantap
 Keren sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Menyala xemoticonx xemoticonx xemoticonx xemoticonx
@@ -2906,7 +2906,7 @@ Mantap Pak xemoticonx
 Semoga kembali terpilih menjadi gubernur dan wakil gubernur Jawa Timur, salam dari Toraja Utara xemoticonx xemoticonx
 Menang kok xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Saya warga Jawa Barat mendoakan Pak Emil dan Ibu Khofifah terpilih kembali sebagai gubernur Jawa Timur
-Ha ha kemajuan buat Bu Khofifah menyanyi xemoticonx xemoticonx
+Ha ha kemajuan untuk Bu Khofifah menyanyi xemoticonx xemoticonx
 Mantap, sudah cocok ini jadi penyanyi, lupakan jadi pejabat xemoticonx xemoticonx xemoticonx
 Bagus suaranya xemoticonx xemoticonx xemoticonx xemoticonx
 Nomor dua dong
@@ -2931,7 +2931,7 @@ xemoticonx xemoticonx xemoticonx sudah Jawa Timur satu dan dua
 Nah keren nih xemoticonx
 Suaranya xemoticonx
 Wah sehat selalu semua xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Kaku amat Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Kaku sekali Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Presiden berikutnya xemoticonx xemoticonx xemoticonx
 Orang di belakang Gibran waktu debat calon wakil presiden
 Insyaallah, Mas Emil jadi presiden entah 2030 atau 2040
@@ -2943,7 +2943,7 @@ Wah sepertinya cocok nih duet bareng Virzha dan Ello, sukses Pak Emil di pemilih
 Gara-gara video ini aku jadi memilih Bu Khofifah saja sudah xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx insyaallah menang 02
 Keren xemoticonx
-Siap memenangkan pemilihan gubernur Jawa Timur 2024 jangan lupa tanggal 27 November 2024 datang ke TPS coblos nomor dua buat Bunda Khofifah dan Kang Mas Emil Dardak bismillah alhamdulillah menang pasti menang
+Siap memenangkan pemilihan gubernur Jawa Timur 2024 jangan lupa tanggal 27 November 2024 datang ke TPS coblos nomor dua untuk Bunda Khofifah dan Kang Mas Emil Dardak bismillah alhamdulillah menang pasti menang
 Tahun depan jangan jadi wakil Pak
 Ibu Khofifah dan Bapak Emil xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx keren
@@ -2987,7 +2987,7 @@ Gemasnya xemoticonx xemoticonx
 Tidak bisa berkata-kata, ini keren
 Wow xemoticonx xemoticonx xemoticonx
 Pasangan kepala daerah paling mantap satu Indonesia xemoticonx
-Suka sekali keren tidak pernah mengikuti politik tapi kenapa senang sama Bapak Emil dari dulu gara-gara tatapannya buat Arumi sepele sekali deh xemoticonx
+Suka sekali keren tidak pernah mengikuti politik tapi kenapa senang sama Bapak Emil dari dulu gara-gara tatapannya untuk Arumi sepele sekali deh xemoticonx
 Calon vokalis Dewa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Suara Pak Emil tidak diragukan lagi mantap xemoticonx xemoticonx xemoticonx
 Oh iya ya dulunya musisi xemoticonx xemoticonx xemoticonx xemoticonx
@@ -3001,14 +3001,14 @@ Keren sekali xemoticonx xemoticonx xemoticonx
 Bu Khofifah kenapa seperti mau menangis ya
 Dulu lagu aspirasi putih sekarang warna-warni hahaha
 Ibu rindu sekali xemoticonx xemoticonx terakhir dengar suara beliau di tahun 2017 waktu masih kerja di Dinas Sosial, adem sekali, penuh kasih sayang, masyaallah sehat selalu Ibu xemoticonx xemoticonx
-Kalau lihat Pak Emil sih aku oke xemoticonx ya
+Kalau melihat Pak Emil sih aku oke xemoticonx ya
 Weh xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Keren sekali xemoticonx xemoticonx
 Semoga Ibu Khofifah dan Pak Emil yang terpilih di pemilihan umum nanti xemoticonx
 Lanjutkan untuk periode kedua untuk nomor dua
 Cocok jadi menteri Pak Emil xemoticonx xemoticonx
 Mas xmentionx merambah dunia musik
-Wakil gubernur muncul pas pemilihan umum saja, setelah itu tidak aktif xemoticonx
+Wakil gubernur muncul waktu pemilihan umum saja, setelah itu tidak aktif xemoticonx
 Stabil suaranya
 xemoticonx xemoticonx xemoticonx Mas xmentionx
 Keren menyala Pak Emil dan Bu Khofifah xemoticonx xemoticonx xemoticonx
@@ -3040,7 +3040,7 @@ Cinta xemoticonx xemoticonx xemoticonx
 Pak Emil lebih cocok jadi gubernurnya
 Keren
 Semoga terpilih suaminya Bu gas
-Lanjutkan xemoticonx xemoticonx pilihan yang pasti buat Jawa Timur
+Lanjutkan xemoticonx xemoticonx pilihan yang pasti untuk Jawa Timur
 Bagus xemoticonx xemoticonx xemoticonx
 Bagus suara Pak Emil xemoticonx xemoticonx xemoticonx
 Waduh xemoticonx xemoticonx xemoticonx
@@ -3149,7 +3149,7 @@ Sukses Mas Emil, semoga wakil gubernur dua periode
 Salam sehat, sehat-sehat selalu Pak Emil Dardak dari Gresik
 Lanjutkan perjuangannya Pak Emil
 Di Malangkah?
-Sukses terus Pak xmentionx buat perjuangannya bersama Ibu xmentionx, saya bukan warga Jawa Timur tapi pernah tinggal di Surabaya saya mendukung 100 xemoticonx dan mendoakan pak xemoticonx xemoticonx xemoticonx dahsyat
+Sukses terus Pak xmentionx untuk perjuangannya bersama Ibu xmentionx, saya bukan warga Jawa Timur tapi pernah tinggal di Surabaya saya mendukung 100 xemoticonx dan mendoakan pak xemoticonx xemoticonx xemoticonx dahsyat
 Ingin pindah ke Jawa Timur rasanya biar bisa pilih Mas Emil
 Ini di Malang ya
 Sukses selalu Pak Emil dan Bu Khofifah, idola saya Bu Khofifah yang selalu berjuang untuk masyarakat xemoticonx xemoticonx
@@ -3167,28 +3167,28 @@ Sukses Pak Emil
 Kami siap memenangkan Bu Khofifah dan Pak Emil xemoticonx xemoticonx xemoticonx
 Percaya pemimpin terbaik ke depan Mas Emil
 Nilai sempurna xemoticonx
-Badminton memang paling pas buat soliditas tim, kayaknya seru kalau bisa gabung sama KOMPAK juga xemoticonx xemoticonx
+Badminton memang paling cocok untuk soliditas tim, kayaknya seru kalau bisa gabung sama KOMPAK juga xemoticonx xemoticonx
 Mau sekali main bulu tangkis sama Mas Emil xemoticonx xemoticonx xemoticonx
 Jadi kangen ingin main badminton lagi nih
 Menyala Mas Wakil Gubernur xemoticonx xemoticonx xemoticonx
 Mau dong gabung komunitas KOMPAK nya, omong-omong kalau suka badminton lagi ada acara internasional nih Indonesia Master S100 di Jatim Expo mungkin mau menonton bareng xemoticonx
-Badminton memang favorit banyak orang ini, cuma modal raket sama kok, komunitasnya cocok nih buat bapak-bapak
-Kebersamaan dan sportivitasnya dapat sekali, jadi makin tertarik buat ikut merasakan suasana serunya bareng KOMPAK
-Seru sekali kebersamaan kalian di lapangan, jadi ingin ikutan gabung KOMPAK buat main bareng juga xemoticonx xemoticonx
+Badminton memang favorit banyak orang ini, cuma modal raket sama kok, komunitasnya cocok nih untuk bapak-bapak
+Kebersamaan dan sportivitasnya dapat sekali, jadi makin tertarik untuk ikut merasakan suasana serunya bareng KOMPAK
+Seru sekali kebersamaan kalian di lapangan, jadi ingin ikutan gabung KOMPAK untuk main bareng juga xemoticonx xemoticonx
 Badminton memang olahraga yang bikin solid, jadi ingin ikut gabung KOMPAK biar makin semangat xemoticonx xemoticonx
 Mau ikut gabung juga xemoticonx xemoticonx xemoticonx
 Gabung boleh tidak
-Lihat kalian olahraga bareng bikin semangat, kayaknya gabung KOMPAK bakal seru sekali nih xemoticonx
+melihat kalian olahraga bareng bikin semangat, kayaknya gabung KOMPAK bakal seru sekali nih xemoticonx
 Olahraga bareng rekan kerja dan komunitas pasti bikin makin kompak, penasaran sekali sama KOMPAK nih xemoticonx xemoticonx
 Salut sama penggagasnya bisa sedemikian solid, semoga bertambahnya dukungan mengantarkan Pak xmentionx kepada kemenangan bersama Bu xmentionx xemoticonx xemoticonx
 Wah seru sekali, makin ingin gabung komunitas KOMPAK biar bisa ikutan olahraga bareng
-Seru sekali main bareng komunitas, jadi makin tertarik buat gabung KOMPAK nih xemoticonx
+Seru sekali main bareng komunitas, jadi makin tertarik untuk gabung KOMPAK nih xemoticonx
 Olahraga sambil kumpul komunitas kayak begini pasti bikin energi positif makin kuat, kapan nih KOMPAK buka pendaftaran xemoticonx
 Asyik sekali bang, mau dong gabung komunitasnya xemoticonx
 Komunitas KOMPAK ini kayaknya benar-benar kompak ya xemoticonx info dong kalau mau gabung bagaimana caranya xemoticonx xemoticonx
 Siapa nih yang lebih jago badminton, Mas Emil atau Mbak Arumi
 Keren menyala bang Emil xemoticonx xemoticonx xemoticonx tidak hanya handal di kerjaan, tapi juga handal olahraganya ya
-Mau dong bang Emil gabung dengan komunitasnya, ingin juga nih ketemu dan tanding bareng xemoticonx
+Mau dong bang Emil gabung dengan komunitasnya, ingin juga nih bertemu dan tanding bareng xemoticonx
 Ingin gabung pak, seru nih
 Memang kita wajib mengajak orang xemoticonx untuk sehat
 Seru nih bisa makin sehat kita
@@ -3204,7 +3204,7 @@ Tambah semangat olahraganya kalau begini
 Jadi ingin olahraga bareng kang Emil
 Suka badminton, makin seru nih kalau ada acara kesehatan satu provinsi
 Aku juga suka main badminton bareng sahabat, pulang kerja menyempatkan olahraga bareng
-Main badminton memang seru sekali, makin kompak buat komunitasnya, ingin gabung rasanya xemoticonx
+Main badminton memang seru sekali, makin kompak untuk komunitasnya, ingin gabung rasanya xemoticonx
 Keren nih KOMPAK, aku juga pecinta Mas Emil nih, ajak gabung dong
 Tetap berbagi kabar terbaru ya Mas Emil, aku senang lihatnya jadi bisa tahu aktivitas positif apa saja nih yang sudah dilakukan
 Beri tahu dong caranya supaya bisa gabung dengan KOMPAK
@@ -3216,12 +3216,12 @@ Ternyata itu kepanjangan dari KOMPAK xemoticonx
 Kompak sekali sih kak, olahraga bareng kayak begitu
 Cocok sekali sama aktivitas, Kompak, sama-sama Jawa Timur nih, bagaimana cara gabungnya, bisa tidak ya xemoticonx
 Sehat terus Pak Emil dan Mbak Arumi, juga tim Kompak, baru mau belajar badminton nih, pemula bisa gabung tidak
-Salut sama Mas Emil, sibuknya luar biasa tapi tetap sempatkan buat olahraga, bapak muda inspiratif, ada Kompak makin semangat ya Mas
+Salut sama Mas Emil, sibuknya luar biasa tapi tetap sempatkan untuk olahraga, bapak muda inspiratif, ada Kompak makin semangat ya Mas
 Seru kayaknya kalau bisa gabung terus tanding sama Mas Emil xemoticonx xemoticonx
 Salut malah aku ingin olahraga bareng kayak begitu tapi tidak bisa
 Hobi juga nih badmintonan bareng teman, bakalan seru sih kalau banyak teman yang gabung di Kompak, buka perekrutan baru tidak nih
 Keren nih Kompak, bisa jadi tempat ngumpul yang sehat, sesibuk apapun memang harus disempatkan olahraga xemoticonx
-Mantap KOMPAK, bisa bareng-bareng sehat dan menginspirasi orang lain buat tidak malas gerak, seru nih kalau bisa gabung xemoticonx
+Mantap KOMPAK, bisa bareng-bareng sehat dan menginspirasi orang lain untuk tidak malas gerak, seru nih kalau bisa gabung xemoticonx
 Percaya sekali kalau Mas Emil sama Mbak Arumi sehat dan bugar, soalnya rajin olahraga sih, keren bisa bentuk komunitas ini, salam KOMPAK!
 Enak nih yang daerah Surabaya, bisa gabung bareng KOMPAK, salam sehat warga Kompak
 Cocok sekali sama komunitasnya, Kompak selalu, kesehatan tetap yang utama
@@ -3234,7 +3234,7 @@ Semangat sehat dan semangat olahraga kak, salut deh
 bagaimana nih cara gabungnya kak, menongkrong sehat ya bisa gabung bareng KOMPAK
 Kalau gabung komunitas yang bikin anggotanya rajin olahraga aku mau sekali
 Pak Emil sama Mbak Arumi selalu KOMPAK ya, pokoknya pasangan idaman sekali
-Nama komunitas kok pas sekali ya, kalau komunitas pecinta Arumi Bachsin apa ya, aku mau ikut gabung
+Nama komunitas kok cocok sekali ya, kalau komunitas pecinta Arumi Bachsin apa ya, aku mau ikut gabung
 Main badminton kalau bareng Pak Emil pasti tambah semangat plus Kompak
 Rezekinya KOMPAK ya bisa badminton bareng pak calon wakil gubernur kita
 Izin saya ingin gabung Pak Emil
@@ -3249,7 +3249,7 @@ Mas Emil ini cocok menjadi presiden yang akan datang xemoticonx
 Ini nih calon pemimpin bangsa masa depan, berkualitas dan pantas xemoticonx xemoticonx
 Cerdas xemoticonx
 Pak xmentionx mantap xemoticonx
-Tidak bosan lihat Bu Arumi sampai diputar berkali-kali xemoticonx xemoticonx xemoticonx xemoticonx
+Tidak bosan melihat Bu Arumi sampai diputar berkali-kali xemoticonx xemoticonx xemoticonx xemoticonx
 Bapak Ibu Emil sangat identik dengan Jawa Timur, kerjanya bagus baik santun dekat sama masyarakat plus ganteng cantik xemoticonx xemoticonx xemoticonx
 Sukses selalu Mas Emil xemoticonx
 Pakaian sederhana tapi tetap keren xemoticonx
@@ -3336,7 +3336,7 @@ Pak Emil, di balik maraknya perawatan kulit yang abal-abal dan banyak merugikan 
 Pak Emil mending itu mahasiswa BEM Fisip UNAIR diurus dulu biar tidak menghina kepala negara. Harus tegas dikasih sanksi biar tidak sembarangan mahasiswa menghina kepala negara dengan kata bajingan
 Dua periode bapak xmentionx
 Mantap pak xmentionx
-Mendol xemoticonx menjeng itu enak sekali Bu Arumi, buat lauknya nasi rawon masyaallah lezat sekali xemoticonx
+Mendol xemoticonx menjeng itu enak sekali Bu Arumi, untuk lauknya nasi rawon masyaallah lezat sekali xemoticonx
 Senangnya bisa sekalian belanja xemoticonx
 Saya bukan warga dari Jawa Timur, saya dari Jawa Tengah. Tapi kalau setiap melihat Pak Emil dan Bu Arumi hawanya adem sekali. Sukses selalu dan semoga bisa mengayomi warganya dengan baik dan amanah. Amin xemoticonx
 Sukses Pak Emil xemoticonx semoga terpilih lagi, amin ya rab xemoticonx xemoticonx xemoticonx
@@ -3350,10 +3350,10 @@ Cantiknya bu xmentionx masyaallah xemoticonx xemoticonx
 Kalau bisa memilih saya memilih Mas xmentionx sayangnya bukan penduduk Jawa Timur xemoticonx
 Aku mendukungmu pak, walau tidak pernah mendatangi kampungku. Tenang pak, kampungku damai rukun dan sejahtera
 Sehat dan sukses selalu Pak xmentionx dan keluarga xemoticonx salam untuk istri xmentionx dari orang Palembang xemoticonx xemoticonx xemoticonx xemoticonx
-Karakter pemimpin paling pas 02 semua aspek
+Karakter pemimpin paling cocok 02 semua aspek
 Sukses Pak Emil. Kami dari DIY ikut mendoakan
-Saya warga Bogor pak tapi kok senang ya lihat kepemimpinan bapak bersama Ibu Khofifah, sudah ganteng berwibawa yang penting merakyat tidak jaga imej, lanjutkan pak xemoticonx xemoticonx xemoticonx
-02 berbeda dan paling pas dari segala aspek, semoga menang
+Saya warga Bogor pak tapi kok senang ya melihat kepemimpinan bapak bersama Ibu Khofifah, sudah ganteng berwibawa yang penting merakyat tidak jaga imej, lanjutkan pak xemoticonx xemoticonx xemoticonx
+02 berbeda dan paling cocok dari segala aspek, semoga menang
 Ok gas xemoticonx xemoticonx
 Kalau kunjungan pasar beli telur ayam kampung pak
 Kapan menyapa warga Mojokidul bu xemoticonx xemoticonx xemoticonx
@@ -3364,19 +3364,19 @@ Sukses selalu ya Pak Emil Dardak, begitu juga dengan Ibu Khofifah, semoga bisa m
 Semoga nanti Pak Emil bisa naik jadi gubernur terus lanjut jadi Menteri Perdagangan
 Semangat Kang Emil, insyaallah rakyat Jawa Timur mendukung Anda dan Ibu Khofifah
 Calon presiden atau calon wakil presiden yang akan datang, insyaallah xemoticonx xemoticonx
-Wah tidak rezeki nih, tidak ketemu sama bapak ibu xemoticonx
+Wah tidak rezeki nih, tidak bertemu sama bapak ibu xemoticonx
 Kapan ke Situbondo
 xmentionx xemoticonx xemoticonx ramah ke semua orang, energi positif pokoknya xemoticonx
 Ke pasar Sukodadi Lamongan kapan Mas Emil dan Mbak Arumi xemoticonx xemoticonx
 Jangan lupa kunjungi Madiun ya Mas Emil dan Mbak Arumi
 Sukses terus bapak dan Ibu Arumi xemoticonx xemoticonx
 Ke malang kota tidak bu? Saya ingin bertemu ibu, salah satu idola saya
-Ayo mbak sebagai pemimpin memberi contoh dengan memakai produk-produk Indonesia yang tidak kalah cantik dan awet, semoga UMKM semakin maju perekonomiannya dan jadi inspirasi buat yang lain
-Ya tidak ketemu idola saya, rumah saya Lawang lo
+Ayo mbak sebagai pemimpin memberi contoh dengan memakai produk-produk Indonesia yang tidak kalah cantik dan awet, semoga UMKM semakin maju perekonomiannya dan jadi inspirasi untuk yang lain
+Ya tidak bertemu idola saya, rumah saya Lawang lo
 Tetap xemoticonx xemoticonx
 Sukses Pak Emil, semoga terpilih kembali dan terima kasih sudah boleh foto bersama xemoticonx
 Lanjut dua periode Bu Khofifah dan Pak Emil xemoticonx
-Kok tidak keliling di daerahku sih Pak Emil dan Bu Arumi, aku dari desa Tanjung Kalang kecamatan Ngronggot kabupaten Nganjuk, mau ketemu kalian langsung sebagai wakil rakyat, silakan xemoticonx xemoticonx
+Kok tidak keliling di daerahku sih Pak Emil dan Bu Arumi, aku dari desa Tanjung Kalang kecamatan Ngronggot kabupaten Nganjuk, mau bertemu kalian langsung sebagai wakil rakyat, silakan xemoticonx xemoticonx
 Mantap
 Kunjungan pasar Probolinggo kok belum diunggah pak? xemoticonx
 Harusnya jadi wakil presiden nih bukan wakil gubernur
@@ -3388,7 +3388,7 @@ Jika aku tidak bisa dapat suami yang pandangannya seteduh Pak Emil ke Bu Arumi a
 Cinta jika berada di lelaki yang tepat maka wanita terdekat akan menjadi ratu yang paling dimuliakan xemoticonx
 Yang dilihat istrinya, yang meleleh istri orang xemoticonx
 Kayaknya hidupnya si bapak ini benar-benar memastikan istrinya nyaman, bahagia, senang ya kan, heh pak aku ini senyum-senyum sendiri lihatnya xemoticonx
-Sisakan satu cowok yang kayak Pak Emil buat aku ya Allah xemoticonx
+Sisakan satu cowok yang kayak Pak Emil untuk aku ya Allah xemoticonx
 Aku kalau ditatap sama suami seperti itu tidak jadi makan xemoticonx
 Kenapa mesti ditatap seperti itu pak xemoticonx Bu Arumi yang ditatap aku yang malu xemoticonx
 Pak Emil xemoticonx Ya Allah, kok bisa aku punya istri kayak bidadari begini xemoticonx
@@ -3407,9 +3407,9 @@ Ingin juga ditatap begini xemoticonx persis seperti tatapannya ke gitar xemotico
 Kok jadi ikut salah tingkah xemoticonx
 Kalau orang Indo yang seperti ini spesifikasinya ya Allah xemoticonx colek xmentionx xemoticonx
 Boleh tidak pandangan Pak Emil pindah ke aku? Soalnya pandangan pasangan saya lebih fokus sama Mobile Legend dan TikTok xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Sama tatapannya kayak suami aku pas lihat hpnya xemoticonx xemoticonx xemoticonx
+Sama tatapannya kayak suami aku waktu melihat hpnya xemoticonx xemoticonx xemoticonx
 Koper sudah siap. Tinggal tunggu jemputan roket Elon Musk aku pergi pindah ke Jupiter. Kontrak aku di bumi sudah habis
-Kalau suamiku menatap begini pas makan, sampai piringnya pun aku telan
+Kalau suamiku menatap begini waktu makan, sampai piringnya pun aku telan
 Pasangan ini bikin iri sumpah, tatapan tulus suami ke istri. Kelihatan sekali suaminya sayang sekali sama istrinya
 Bu Arumi ditatap, aku ketabrak xemoticonx
 Pandangan Pak Emil ke Bu Arumi persis seperti pandangan pasangan saya ke hpnya xemoticonx
@@ -3435,7 +3435,7 @@ Pak, kok jadi saya yang senyum-senyum ya melihat bapak memandang Bu Arumi xemoti
 Arumi yang ditatap saya yang kejang-kejang xemoticonx
 Bisa tidak ya xmentionx xemoticonx
 Kuncinya kaya
-Kalau lihat istrinya penuh makna sekali Pak Emil xemoticonx xemoticonx
+Kalau melihat istrinya penuh makna sekali Pak Emil xemoticonx xemoticonx
 Pak kalau mau bilang saja xemoticonx xemoticonx
 Gini lo sayang maksudku wkwkwk xmentionx
 xmentionx kayak kita tidak sih xemoticonx
@@ -3455,7 +3455,7 @@ Pandangan Pak Emil seperti pandangan suami saya ke saya, sampai sudah 13 tahun r
 Tatapanmu, senyumanmu, tiada pernah aku lupakan xemoticonx xemoticonx xemoticonx
 Arumi yang ditatap, aku yang senyum-senyum xemoticonx xemoticonx
 Cuma begitu saja
-Senyuman Pak Emil sama seperti suamiku, ketika lihat elektronik rusak xemoticonx mau dandan xemoticonx xemoticonx
+Senyuman Pak Emil sama seperti suamiku, ketika melihat elektronik rusak xemoticonx mau dandan xemoticonx xemoticonx
 Pandangan Pak Emil ke Ibu Arumi, persis pandangan saya ke bias saya, sedih xemoticonx
 Ya Allah tatapannya
 Pandangan Pak Emil ke Arumi persis seperti Pak xmentionx melihat paket yang baru datang
@@ -3521,7 +3521,7 @@ Jadi ingin menangis xemoticonx xemoticonx
 Bu, saya kalau sama suami makannya menatap cobek rebutan sambal xemoticonx
 Cantik sekali memang Arumi
 Sekilas mirip Irish Bella
-Pandangan Pak Emil ke istrinya, sama dengan pandangan suamiku ke hpnya pas main slot xemoticonx xemoticonx
+Pandangan Pak Emil ke istrinya, sama dengan pandangan suamiku ke hpnya waktu main slot xemoticonx xemoticonx
 Pak Emil xemoticonx suapi dong, Bu Arumi xemoticonx nanti saya belum kenyang xemoticonx xemoticonx xemoticonx xemoticonx
 Pandangan Pak Emil ke Bu Arumi persis seperti pandangan suamiku pada layar hpnya
 Tatapan penuh arti
@@ -3541,7 +3541,7 @@ Hati xemoticonx ada Ghafur kak
 Kok Arumi tidak salah tingkah dilihati Mas Emil
 Yang ditatap Arumi, kok aku yang bawa perasaan xemoticonx xemoticonx xemoticonx
 Ya, ya, ya, lambat laun juga Bu Arumi juga pasti menua tidak selamanya muda cantik, jadi tidak perlu membandingkan dia dengan kita. Intinya semua wanita itu cantik dengan kadarnya masing-masing. Lebih baik bersyukur saja apa yang kita miliki sekarang itulah yang terbaik
-Pernah ketemu Bu Arumi belanja di Papaya dengan mama dan adiknya. Hanya pakai daster Bali dan atasnya sweter. Sederhana. Cantik putih bersih xemoticonx
+Pernah bertemu Bu Arumi belanja di Papaya dengan mama dan adiknya. Hanya pakai daster Bali dan atasnya sweter. Sederhana. Cantik putih bersih xemoticonx
 Ya Allah beri satu Emil juga untukku yang bisa mendanai bukan menodai xemoticonx
 Arumi beruntung mendengar nasihat ibunya, dulu pakai acara merajuk kabur dari rumah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Melihat ini daripada ingin saja, karena aku tidak ada yang memperhatikan
@@ -3564,18 +3564,18 @@ Hal yang paling indah adalah cintanya suami ke istrinya xemoticonx xemoticonx
 Tatapan Pak Emil selalu bikin meleleh xemoticonx
 Pandangan Pak Emil ke Ibu Arumi, 100.000 xemoticonx sama persis seperti pandangan suamiku ke motor Vespa jadulnya xemoticonx xemoticonx
 Pandangan Pak Emil seperti suamiku saat menatap bantal
-Lihat konten Instagram-nya Arumi Bachsin benar-benar merasa hanya jadi pelengkap dunia
+melihat konten Instagram-nya Arumi Bachsin benar-benar merasa hanya jadi pelengkap dunia
 Refleks tertawa xemoticonx
 Kalau aku tidak mendapatkan suami yang menatap wajah Arumi penuh dengan cinta, aku tidak akan menikah lagi sampai kapan pun!
 Kasih Bu Arumi mau sekali sepertinya Pak Emil xemoticonx
 Pak Emil tolong aku juga ikutan senyum xemoticonx
-Bu Arumi cantiknya tidak berkurang dari dulu, meskipun sudah anak 3
+Bu Arumi cantiknya tidak berkurang dari dulu, meskipun sudah anak tiga
 Apakah tidak salah tingkah mbak?
 Pandangan Mas Emil, persis sekali pandangan suamiku ke hpnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah bahagia sekali dicintai dan diratukan sama laki-laki yang dicintainya, semoga suamiku bisa begitu
 Dicintai secara ugal-ugalan beruntung sekali kak Arumi xemoticonx
 Tatapan dan senyumnya Pak Emil penuh cinta untuk istri tercintanya, masyaallah
-Mas Emil tidak usah makan, lihat ratunya saja sudah kenyang
+Mas Emil tidak usah makan, melihat ratunya saja sudah kenyang
 Dalam hati suaminya pasti bilang, cantiknya istriku xemoticonx
 Manis sekali sih, sakinah mawadah xemoticonx
 Aku jadi sendok sambalnya xemoticonx xemoticonx ah sudahlah, mau tersenyum takut biji cabai menyempil di gigi xemoticonx
@@ -3585,11 +3585,11 @@ Batin Pak Emil, ada orang kok cantiknya seperti ini, lah itulah istriku xemotico
 Suamiku juga begitu, ke burung merpatinya
 Tatapan itu, mengiri aku
 Memandangnya buat salah tingkah xemoticonx xemoticonx
-xemoticonx xemoticonx aku pas dilihat pasangan seperti itu malah bilang xemoticonx apa lihat-lihat?! Tidak boleh makan?! xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx aku waktu dilihat pasangan seperti itu malah bilang xemoticonx apa melihat-lihat?! Tidak boleh makan?! xemoticonx xemoticonx xemoticonx
 Suka sekali aku sama kalian berdua. Semoga sehat dan bahagia selalu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pak sudah saya capai senyum melulu
 Masyaallah
-Tertawa baca komentar xemoticonx netizen xemoticonx xemoticonx xemoticonx xemoticonx padahal aku juga gemas lihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
+Tertawa baca komentar xemoticonx netizen xemoticonx xemoticonx xemoticonx xemoticonx padahal aku juga gemas melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
 Saya paling suka cara Pak Emil Dardak pandang Bu Arumi, xemoticonx xemoticonx xemoticonx xemoticonx saya jadi malu tersipu-sipu ingin dipandang seperti itu xemoticonx xemoticonx
 Meleleh tidak ya?
 Pandangan Pak Emil persis dengan cara memandang suamiku ke selingkuhannya xemoticonx xemoticonx xemoticonx
@@ -3597,10 +3597,10 @@ Waduh berat
 Pandangan Pak Emil ke Arumi persis seperti pandangan suamiku xmentionx ke akuarium ikannya xemoticonx
 Takut yang begini, dikenal banyak orang, suami yang meratukan istrinya, tiba-tiba dibuat gempar sama berita perselingkuhan. Jauhkan semoga selalu sakinah mawadah warahmah
 Itulah kenapa saya selalu bilang ke anak perempuan saya carilah laki-laki yang cintanya lebih besar dari kamu xemoticonx
-Tapi kenapa SELALU Arumi seperti tidak mau lihat balik
+Tapi kenapa SELALU Arumi seperti tidak mau melihat balik
 Pelengkap donat mau pindah jadi pelengkap pizza tidak? xemoticonx
 Mungkin aku harus secantik Arumi dulu xemoticonx
-Bagaimana tidak budak cinta Pak Emil ke istrinya cantik menggemaskan. Sakinah mawadah warahmah selamanya buat Pak Emil dan Ibu Arumi xemoticonx xemoticonx
+Bagaimana tidak budak cinta Pak Emil ke istrinya cantik menggemaskan. Sakinah mawadah warahmah selamanya untuk Pak Emil dan Ibu Arumi xemoticonx xemoticonx
 Aku kalau lagi dilihat begitu sama suami, salah tingkah tidak kuat xemoticonx
 Hihi Arumi tidak menyesal tidak dengar omongan ibu kamu
 Salah fokus xemoticonx
@@ -3618,21 +3618,21 @@ Kalau saya sama suami, ujung-ujungnya jadi saling tatap wkwkwkwkwk jadi lucu
 Suamiku begitu kepadaku di saat dia bilang 'papa mu menikah lagi' dan di saat itu juga amarahku naik ke ubun. Ini nyata
 Emil RI satu 2039 xemoticonx
 Aduh kalau aku sumpah tidak jadi makan xemoticonx xemoticonx
-Kalau lihat ini aku kenapa ingin ketawa ya. Lucu saja xemoticonx
+Kalau melihat ini aku kenapa ingin tertawa ya. Lucu saja xemoticonx
 Seperti begini lo beb, kalau saat melihat xemoticonx aku xmentionx
 Oke, pasti aku mau menikah sama yang meratukan, apalah itu trauma dan mati rasa
-Bu Arumi memang sudah cantik dari dulu. Pertama kali lihat dia main sinetron memang cantik putih sekali
+Bu Arumi memang sudah cantik dari dulu. Pertama kali melihat dia main sinetron memang cantik putih sekali
 Hihihi Pak Emil xemoticonx heran ya sama istrinya xemoticonx budak cinta sekali pak xemoticonx
-Makanya punya suami jangan ganteng-ganteng amat biar tidak sok xemoticonx jadi kita yang paling cantik
+Makanya punya suami jangan ganteng-ganteng sekali biar tidak sok xemoticonx jadi kita yang paling cantik
 Persis tatapan suamiku ke anak putri kami, tatapan penuh sayang, yang tidak pernah diberikan untukku xemoticonx xemoticonx
 Kira-kira pelajaran apa yang bisa diambil dari cuplikan video ini
 Pandangan Kang Emil ke istrinya seperti pandangan suami ke akuarium. xemoticonx Ditatap terus tidak bosan
-Saya pernah lihat istri seperti begini. Ditampar pak xemoticonx xemoticonx xemoticonx
+Saya pernah melihat istri seperti begini. Ditampar pak xemoticonx xemoticonx xemoticonx
 Bagaimana bisa Bu Arumi tidak salah tingkah ya ditatap Pak Emil begitu xemoticonx xemoticonx
 Wkwkwk tolong
 Otomatis bayangkan pasangan seperti begini, bayangkan saja dulu gratis
 Raja
-Jadi khayalan semua yang lihat xemoticonx xemoticonx xemoticonx
+Jadi khayalan semua yang melihat xemoticonx xemoticonx xemoticonx
 Meleleh kalau tiap-tiap ditatap begini sama suami
 Pak Emil budak cinta dardak
 Cantiknya luar biasa
@@ -3648,7 +3648,7 @@ Enak ya jadi Arumi makan pun dilihat Kang Emil, lah aku makan suami menoleh saja
 Sama, saya juga selalu dipandangi seperti itu tiap hari. Sama anjingku xemoticonx xemoticonx
 Tatapan sayang, masyaallah
 Jatuh cinta setiap detik. Keluarga harmonis xemoticonx xemoticonx
-Nah kalau sudah ketemu yang cantik begini jangan lirik-lirik yang lain pak xemoticonx
+Nah kalau sudah bertemu yang cantik begini jangan lirik-lirik yang lain pak xemoticonx
 Emil Dardak seorang yang penyabar dan murah senyum
 Mengagumi istri sendiri itu indah sekali
 Biasa saja, siapa tahu hanya konten xemoticonx
@@ -3660,7 +3660,7 @@ Sangat manis
 Buset sampai lodoh begitu hati aku xemoticonx xemoticonx
 Dicintai ugal-ugalan itu rasanya seperti apa ya xemoticonx xemoticonx
 Sudah cantik dari sananya
-Pak Emil tatapan bapak bikin kuota saya cepat habis, tiap video bapak tatap ibu saya, tidak cukup lihat sekali
+Pak Emil tatapan bapak bikin kuota saya cepat habis, tiap video bapak tatap ibu saya, tidak cukup melihat sekali
 Melihat Dek Arumi makan sudah bikin Kang Emil sudah kenyang xemoticonx xemoticonx
 Yang komen ibu-ibu yang bermimpi xemoticonx xemoticonx xemoticonx
 Pandangan Pak Emil sama sekali dengan pandangan suamiku ke hpnya
@@ -3673,7 +3673,7 @@ Bu bagaimana caranya suami bisa sesayang itu bu?
 Makan mi lauk senyuman Pak Emil xemoticonx xemoticonx xemoticonx
 Wanita yang dicintai suaminya dan bahagia dengan pernikahannya jadi makin cantik
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx kok benar sih
-Aku lihat-lihat kok Pak Emil itu matanya sayu seperti lebih ke hiperaktif
+Aku melihat-lihat kok Pak Emil itu matanya sayu seperti lebih ke hiperaktif
 Tatapan penuh cinta xemoticonx
 Ya Allah Allahumma sholi ala sayyidina Muhammad wa ala sayyidina Muhammad, ya Allah semoga kelak bisa dapat laki-laki yang sifat dan sosoknya seperti ini ya Allah amin xemoticonx xemoticonx
 Harus dilihat terus ya pak kalau lagi berdekatan xemoticonx
@@ -3681,13 +3681,13 @@ Tatapan Pak Emil sama persis seperti tatapan debt collector ke aku
 Suaminya jatuh cinta setiap hari xemoticonx
 Sayang sekali Pak Emil sama Arumi
 Kok tidak gugup sih
-Pak wakil gubernur sudah kenyang lihat Ibu wakil gubernur makan xemoticonx xemoticonx
+Pak wakil gubernur sudah kenyang melihat Ibu wakil gubernur makan xemoticonx xemoticonx
 Pandangan penuh cinta ya xemoticonx
 Kalau aku langsung semprot suami xemoticonx karena paling tidak suka sengaja dilihat, pernah dilihat begitu langsung jadi ramai karena aku marahi suami xemoticonx xemoticonx xemoticonx xemoticonx
-Tiap lihat video Arumi sama suaminya langsung senyum-senyum sendiri xemoticonx xemoticonx kok suamiku tidak seperti begini ya xemoticonx
+Tiap melihat video Arumi sama suaminya langsung senyum-senyum sendiri xemoticonx xemoticonx kok suamiku tidak seperti begini ya xemoticonx
 Masyaallah beruntungnya Arumi dapat laki-laki baik
 Pandangan Pak Emil masyaallah. Sama seperti pandangan suamiku ke HP dan teman-teman wanitanya
-Senyum xemoticonx lihat ini ah xemoticonx
+Senyum xemoticonx melihat ini ah xemoticonx
 Maaf saya curiga Pak Emil ingin minya tapi tunggu ditawari sama istri xemoticonx maaf Pak Emil bercanda
 Suaminya kelihatan sekali kalau mencintainya xemoticonx
 Pasangan panutan xemoticonx xemoticonx xemoticonx
@@ -3715,7 +3715,7 @@ Mbak maaf xemoticonx
 Bahagia selalu ya
 Pandangan Pak Emil ke Bu Arumi sama persis seperti pandanganmu ke laptopmu xemoticonx xemoticonx xmentionx
 Sudah kena stang kiri juga ini sepertinya
-Senang kalau lihat suami memandangi wajah istrinya seperti gemas ingin cium-cium istrinya
+Senang kalau melihat suami memandangi wajah istrinya seperti gemas ingin cium-cium istrinya
 Pak Emil begitu sayang sama Bu Arumi
 Oke kalau begitu, setelah ini aku akan makan mi pakai sumpit. Biar ditatap seperti itu juga sama suamiku xemoticonx xemoticonx
 Tolong jangan selingkuh ya xemoticonx xemoticonx
@@ -3748,7 +3748,7 @@ Kalau istrinya model Arumi ya enak saja dipandang terus, coba model Omas jangank
 Masyaallah keluarga yang harmonis sekali aku salah fokus sama Pak Emil pandangannya melihat kepada istrinya xemoticonx
 Sudah lama menikah, sudah punya anak tapi pandangan Pak Emil masih seperti orang pacaran xemoticonx
 Definisi jatuh cinta berulang kali dengan orang yang sama xemoticonx xemoticonx
-Sehat selalu ya kakak xemoticonx buat keluarga
+Sehat selalu ya kakak xemoticonx untuk keluarga
 Mau ditatap seperti itu tapi aku sadar aku bukan Arumi xemoticonx xemoticonx
 Masyaallah tatapan Pak Emil ke istri tercintanya bikin ikut bahagia lihatnya xemoticonx
 Definisi dicintai oleh orang yang tepat
@@ -3758,7 +3758,7 @@ Jadi iri Pak Emil sepertinya sayang sekali sama Bu Arumi
 Iri sekali aku anjir xemoticonx xemoticonx
 Bu Arumi yang ditatap, seluruh Jawa Timur ikut tertatap xemoticonx xemoticonx xemoticonx
 Muka pengin terus xemoticonx xemoticonx
-Bosan lihat mereka
+Bosan melihat mereka
 Tatapannya seperti suamiku tapi dalam mimpi xemoticonx
 Senang sekali melihat Mas Emil begitu menyayangi Mbak Arumi dengan penuh cinta semoga langgeng sampai akhir hayat amin ya rabbal alamin
 Ini benar-benar cinta sekali sih
@@ -3771,7 +3771,7 @@ Harusnya ini yang cocok jadi wakil presiden
 Kira Irish Bella xemoticonx
 Beruntung sekali Kak Arumi dapat suami yang perhatian dan sayang
 Makan siang sederhana. Momen selalu istimewa pasangan serasi
-Dibapak lihatnya penuh kasih sayang, hmm syahdu lihatnya xemoticonx xemoticonx
+Dibapak lihatnya penuh kasih sayang, hem syahdu lihatnya xemoticonx xemoticonx
 Kok aku yang senyum-senyum xemoticonx
 Pulang ayo bu ibu jangan pada terbawa perasaan. Itu lakinya Arumi. Bapak di rumah tidak akan begitu kalau tidak lagi mau minta saja xemoticonx
 Pandangannya Pak Emil kelihatan sekali budak cintanya
@@ -3779,7 +3779,7 @@ Tetap cantik, karena suaminya ganteng
 Pandangan Pak Emil ke Bu Arumi persis seperti pandangan suamiku ke mobile legend xemoticonx xemoticonx xemoticonx xmentionx
 Tatapan Pak Emil seolah aku lah pria paling beruntung di dunia ini sudah dapat istri Arumi. Seumur-umur punya suami tidak pernah dipandang seperti itu xemoticonx. Sekalinya memandang malah seperti mengajak ribut
 Pejabat selingkuhannya banyak kali xemoticonx
-Aduh meleleh ini lihat tatapan Pak Emil ke Arumi
+Aduh meleleh ini melihat tatapan Pak Emil ke Arumi
 Apakah aku pernah ditatap begini sama suami
 Masih ada tidak ya sisa laki-laki seperti ini
 xemoticonx xemoticonx jangankan ditatap xemoticonx dia maunya merem terus
@@ -3793,7 +3793,7 @@ Subhanallah masyaallah Allahuakbar sukses selalu sehat selalu semoga selalu dala
 Semoga bahagia selalu xemoticonx xemoticonx
 Pandangan Pak Emil ke Bu Arumi persis seperti pandangan suamiku ke burung piaraannya xemoticonx
 Dialah sang pemuja sejati istrinya xemoticonx xemoticonx xemoticonx
-Senang ikut bahagia lihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Senang ikut bahagia melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pandangannya sungguh penuh cinta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah sepertinya beruntung sekali ya Pak Emil mendapatkan Bu Arumi, ditatap terus
 Semoga bahagia selalu
@@ -3805,15 +3805,15 @@ Ingin bertanya sama Arumi, bagaimana rasanya diperlakukan sebegitunya dan dicint
 xemoticonx xemoticonx xemoticonx xemoticonx aduh tidak bisa berkata apa-apa
 Aku tidak suka video mereka, bikin iri xemoticonx
 Suaminya Bu Arumi hanya satu di dunia xemoticonx
-Lagi mencari komentarnya bapak-bapak, kok belum ketemu xemoticonx
+Lagi mencari komentarnya bapak-bapak, kok belum ditemukan xemoticonx
 Ternyata pilihan orang tua Mbak Arumi sangat tepat. Dicarikan pangeran yang meratukan Mbak Arumi
 Beruntung sekali dicintai suami secara sangat dalam xemoticonx
 Kok bisa dia tidak salah tingkah dilihati begitu xemoticonx
 Aku kalau ditatap suami seperti itu saat makan pasti tidak akan jadi makan xemoticonx
 Pandangannya menyejukkan hatiku xemoticonx xemoticonx
-Pernah dipandang begini, malah emosi kenapa lihat-lihat bukan makan biar cepat pulang xemoticonx xemoticonx xemoticonx
+Pernah dipandang begini, malah emosi kenapa melihat-lihat bukan makan biar cepat pulang xemoticonx xemoticonx xemoticonx
 Aku jadi gelasnya gaes, kamu jadi apa
-Itu yang sering saya lakukan ke suami saya pas menemani makan, tapi beliau sering salah paham dan bilang xemoticonx ingin? xemoticonx Sambil menyodorkan suapan xemoticonx
+Itu yang sering saya lakukan ke suami saya waktu menemani makan, tapi beliau sering salah paham dan bilang xemoticonx ingin? xemoticonx Sambil menyodorkan suapan xemoticonx
 Istrinya cantik atuh, cowok mana yang tidak meleleh xemoticonx
 Tetap semangat jangan pinjam istri orang saja
 Enak sekali sih jadi orang cantik
@@ -3831,20 +3831,20 @@ Ingin satu yang seperti Pak Emil xemoticonx
 Tatapannya Pak Emil ke istrinya persis sekali tatapan suamiku ke ayam jagonya
 Masyaallah Pak Emil tatapan ke istrinya luar biasa
 Pak Emil tidak ada bosan-bosannya memandangi si bidadarinya xemoticonx xemoticonx xemoticonx
-Setiap suami ada kekurangannya, tapi kalau lihat Arumi dapat suami Pak Emil seribu satu sepertinya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Setiap suami ada kekurangannya, tapi kalau melihat Arumi dapat suami Pak Emil seribu satu sepertinya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ibunya dan anaknya cantik sekali xemoticonx
 Pasangan yang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Coba suamiku begini xmentionx
 Ingin punya suami seperti Pak Emil, tapi untuk secantik Arumi saya tidak mampu xemoticonx xemoticonx
-Kalau ini indah dipandang, tapi kalau aku lagi makan suamiku lihat sudah curiga ini aku, entah ada upil ada kotoran mata atau ada selilit menyempil di gigi xemoticonx
-Lihat Bu Arumi makan saja sudah kenyang ya Pak xemoticonx
+Kalau ini indah dipandang, tapi kalau aku lagi makan suamiku melihat sudah curiga ini aku, entah ada upil ada kotoran mata atau ada selilit menyempil di gigi xemoticonx
+melihat Bu Arumi makan saja sudah kenyang ya Pak xemoticonx
 Cantiknya Bu Arumi dari dulu sampai sekarang
 Sepertinya stoknya habis deh, edisi terbatas hanya tinggal Pak Emil saja xemoticonx xemoticonx xemoticonx xemoticonx
 Ingin beli tiket ke Mars
 Simpel bikin bahagia xemoticonx
-Waduh aku iri lihat pasangan ini, ya Allah semoga ada laki-laki seperti Pak Emil
+Waduh aku iri melihat pasangan ini, ya Allah semoga ada laki-laki seperti Pak Emil
 Bengek xemoticonx
-Suka sekali lihat pasangan ini xemoticonx xemoticonx xemoticonx
+Suka sekali melihat pasangan ini xemoticonx xemoticonx xemoticonx
 Dari pandangan Pak xmentionx tampak sayang sekali sama Ibu xmentionx xemoticonx
 Semoga tidak ada dusta di antara mereka
 Apa daya aku tidak bisa ditatap cowok begitu, salah tingkah kalau ditatap terus xemoticonx xemoticonx
@@ -3859,7 +3859,7 @@ Tatapan Pak Emil ke istrinya dalam sekali ya xemoticonx
 Jangan lupa pajak di Jawa Timur dihapuskan Pak Emil
 Romantis sekali
 Tertawa xemoticonx xemoticonx xemoticonx xemoticonx
-Adem sekali lihat keluarganya
+Adem sekali melihat keluarganya
 Bikin bawa perasaan deh
 Semoga terlindung dari godaan wanita setan ya Pak Emil, sehat selalu dengan Mbak Arumi xemoticonx
 Tatapannya
@@ -3869,7 +3869,7 @@ Masyaallah semoga sakinah mawadah warahmah
 Aduh diratukan, emang saya, dia sakit saja obat dibukakan, giliran saya, minta bukakan obat, jawabannya manja buka saja sendiri. Ah oke baiklah xemoticonx ratukan dirimu sendiri xemoticonx
 Beruntunglah Arumi dikaruniai wajah yang cantik, wanita yang beruntung
 Bahagia selalu Mbak
-Ketemu di mana suami idaman seperti itu, masyaallah
+Bertemu di mana suami idaman seperti itu, masyaallah
 Huhu meleleh aku
 Semoga sakinah mawadah warahmah. Saleh dan salehah, amin ya Allah
 Sehat selalu xemoticonx xemoticonx
@@ -3880,15 +3880,15 @@ Lanjutkan Mas Emil
 Semoga selalu rendah hati, merakyat dan yang pasti membantu rakyat kecil. Lanjutkan Pak xemoticonx xemoticonx
 Sayangnya ke makan proklamator RI tapi tidak bisa jumpa
 Cantik, salehah, santun, rendah hati, sangat nyaman dekat kedua beliau ini. Sehat selalu Bapak Ibu, amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Masyaallah adem sekali kalau lihat Bu Arumi xemoticonx xemoticonx xemoticonx
+Masyaallah adem sekali kalau melihat Bu Arumi xemoticonx xemoticonx xemoticonx
 Ya ampun jadi ingin makanan Solo xemoticonx
 Ya ampun santun sekali xemoticonx
 Generasi muda penerus bangsa Indonesia ini. Sukses selalu Mbak Arumi sama Bapak Emil
-Begitu santunnya Mbak Arumi, sukses buat Mas Emil selalu bahagia Mbak Arumi beserta keluarga terkasih xemoticonx xemoticonx xemoticonx xemoticonx
-Selamat juga buat Bapak Prabowo dan Mas Gibran selamat mengemban tugas baru, titip kami sebagai UMKM, para penjual dan biaya sekolah bisa gratis hingga perguruan tinggi dan lapangan kerja. Sehat, sukses selalu. Salam dari Kabupaten Bandung - Baleendah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Begitu santunnya Mbak Arumi, sukses untuk Mas Emil selalu bahagia Mbak Arumi beserta keluarga terkasih xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat juga untuk Bapak Prabowo dan Mas Gibran selamat mengemban tugas baru, titip kami sebagai UMKM, para penjual dan biaya sekolah bisa gratis hingga perguruan tinggi dan lapangan kerja. Sehat, sukses selalu. Salam dari Kabupaten Bandung - Baleendah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bu Arumi Bachsin sama Pak Emil Dardak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Arumi Bachsin semakin bersinar. Siapa tahu 2029 suami beliau bisa jadi presiden, amin
-Selamat dan sehat selalu Pak Jokowi, meskipun sudah purna jabatan, tapi legasi yang Pak Jokowi menjadi kenangan di masanya kelas dengan segala transportasinya memudahkan kami, jalan tolnya dan banyak sekali. Sehat-sehat Pak Jokowi dan Bu Iriana, begitupun dengan Bu Arumi dan Bapak Emil kalian panutan kami semuanya, selamat juga buat Bapak Prabowo
+Selamat dan sehat selalu Pak Jokowi, meskipun sudah purna jabatan, tapi legasi yang Pak Jokowi menjadi kenangan di masanya kelas dengan segala transportasinya memudahkan kami, jalan tolnya dan banyak sekali. Sehat-sehat Pak Jokowi dan Bu Iriana, begitupun dengan Bu Arumi dan Bapak Emil kalian panutan kami semuanya, selamat juga untuk Bapak Prabowo
 Saudi hadir Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Semoga tambah sukses ya untuk Bapak Jokowi semoga Allah SWT selalu melindungi beliau ya Pak. Sehat selalu Pak Presiden Joko Widodo tetap di hati rakyat Indonesia walaupun sudah purna tugas xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ada Mbak sin xmentionx xemoticonx
 Terima kasih Pak Jokowi untuk pengabdianmu selama ini xemoticonx, sehat selalu Pak Jokowi xemoticonx keluarga xemoticonx xemoticonx salam dari rakyat Mulyono
@@ -3906,20 +3906,20 @@ Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Amin ya rabbal alamin
 Semoga sukses selalu Pak Emil xemoticonx xemoticonx
 Bu Arumi, keberuntungannya seumur hidup sih xemoticonx xemoticonx
-Makan-makan, salam buat Bapak Jokowi ya, semoga diberikan kesehatan selalu
+Makan-makan, salam untuk Bapak Jokowi ya, semoga diberikan kesehatan selalu
 Suka sekali sama pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih Pak Jokowi xemoticonx xemoticonx menunya sudah seperti Master Chef versi kearifan lokal
-Cantik pol xemoticonx
+Cantik sekali xemoticonx
 Pasangan terbaik xemoticonx xemoticonx
 Merinding lihatnya huhu
 Kuliner wajib ya Bu xemoticonx xemoticonx xemoticonx
-Mantap pol semua angkringannya xemoticonx xemoticonx xemoticonx xemoticonx
+Mantap sekali semua angkringannya xemoticonx xemoticonx xemoticonx xemoticonx
 Cantiknya anggunnya Bu Arumi Bachsin dan Pak Emil keluarga yang diberkati Tuhan dan bahagia selalu bersama keluarga, amin xemoticonx xemoticonx xemoticonx xemoticonx
 Bu Arumi xemoticonx
 Sehat selalu Bapak Jokowi xemoticonx xemoticonx xemoticonx xemoticonx
 Kulitnya kok bisa putih sekali sih Mbak Arumi xemoticonx
 Kok bisa suaminya ketinggalan? xemoticonx digandeng saja Bu
-Selamat purna tugas Pak Jokowi buat santai sama keluarga anak, menantu, cucu, istri, salam sehat Pak
+Selamat purna tugas Pak Jokowi untuk santai sama keluarga anak, menantu, cucu, istri, salam sehat Pak
 Sehat selalu Bapak dan Bu Iriana xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih. Masyaallah sudah cantik ramah baik hati Ibu Arumi memang terbaik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx, sehat dan sukses selalu sekeluarga, amin ya rabbal alamin xemoticonx xemoticonx
 Masyaallah Mbak Arumi
@@ -3927,7 +3927,7 @@ Sifat keduanya baik sekali, tidak dibuat-buat xemoticonx, tidak kaku xemoticonx
 Ya ampun idola sekali santun sopan Ibu Arumi xemoticonx
 Presiden terbaik xemoticonx xemoticonx
 Ibu jadi medok ya logatnya ya xemoticonx xemoticonx. Sukses terus ya Bu dan Bapak
-Salut buat pasangan ini yang tidak pernah pamer pakaian mahal ataupun bermerek xemoticonx
+Salut untuk pasangan ini yang tidak pernah pamer pakaian mahal ataupun bermerek xemoticonx
 Yang piring kedua itu menu apa? Ada yang tahu? Ingin jadi mengiler
 Ibu Arumi tadi singgah ke Pasar Lawang Jawa Timur xemoticonx
 Selanjutnya Pak Emil RI satu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -3951,7 +3951,7 @@ Romantisnya Pak Emil ke istri. Pasti Arumi selalu bahagia punya suami yang perha
 Lo Bu, pilihannya kok tidak ada duit. Saya suka duit juga Bu xemoticonx kerupuk sama bunga, cokelat saya suka, tapi duit saya juga suka lo Bu xemoticonx xemoticonx tambahin pilihannya Bu.
 Aku dibawakan mangga muda saja senangnya minta ampun. xemoticonx
 Ternyata Bu Arumi suka sayur lodeh makan kerupuk kaya aku dong xemoticonx
-Aduh kak tidak habis-habis bawa perasaanku lihat mereka berdua xemoticonx
+Aduh kak tidak habis-habis bawa perasaanku melihat mereka berdua xemoticonx
 Kalau aku suami pulang bawa yang muda bu xemoticonx xemoticonx akhirnya kena depat diriku xemoticonx memang kelewatan sekali dia tapi ya sudahlah itu tandanya dia sudah membuktikan cintanya sudah punah terhadapku xemoticonx xemoticonx
 Enak kerupuknya so pasti
 Pak Emil selalu menatap Ibu Arumi penuh cinta xemoticonx
@@ -3968,7 +3968,7 @@ Bu xmentionx centang sayurnya kita samaan semoga selalu bahagia sampai surga ya 
 Lebih bagus begini sederhana, tidak usah yang bermerek. Beli barang bermerek percuma kalau pakai uang negara.
 Ke pabrik kerupuk saya juga dong dikunjungi xemoticonx xmentionx xmentionx
 Minta kerupuknya Bu xemoticonx xemoticonx xmentionx
-Saya lihat-lihat kok mirip xmentionx suaminya juga, coba diet mbak xemoticonx
+Saya melihat-lihat kok mirip xmentionx suaminya juga, coba diet mbak xemoticonx
 Centong sayurnya sejuta umat yang dijual goceng di mobil-mobil
 Yang jelas makanan yang dibawa tidak mau bunga kalau sudah kering dibuang xemoticonx xemoticonx xemoticonx
 Kita sama maunya kerupuk. xemoticonx
@@ -3979,8 +3979,8 @@ Masyaallah sama kita Bu pecinta kerupuk sekali, kalau ndak ada kerupuk ya nunggu
 Kriuknya sampai sini
 Mbak xmentionx. Kalau di Palembang banyak aneka kerupuk yok kaen kaplang.
 Mbak xmentionx coba cicip kerupuk bangka tapi asli langsung dari bangka ya. Dijamin enak dan pasti ketagihan
-Senang sekali lihat keluarga ini sakinah mawadah warahmah terus sampai surga xemoticonx xemoticonx
-Adem ya lihat keluarga ini. masyaallah. Semoga nular ke keluargaku kehangatannya. sehat selalu Mbak Arumi dan Mas Emil
+Senang sekali melihat keluarga ini sakinah mawadah warahmah terus sampai surga xemoticonx xemoticonx
+Adem ya melihat keluarga ini. masyaallah. Semoga nular ke keluargaku kehangatannya. sehat selalu Mbak Arumi dan Mas Emil
 Kalau saya pakisnya suka ditumis mantap betul
 xemoticonx xemoticonx xemoticonx bunda wajib ke pabrik kerupuk cap bocah tua xemoticonx Surabaya xemoticonx banyak sekali macam rasa pilihannya xemoticonx xemoticonx
 Saya tidak mau apa-apa maunya dibawakan oleh suami bunga saja. Tapi bunga deposito dan depositonya. xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx.
@@ -3999,14 +3999,14 @@ Lebih senang dibawakan kerupuk lah. Bisa dimakan, apalagi kalau makannya rame-ra
 Ya Allah sekarang Arumi makanannya sudah lidah Jawa sekali ya, itu semua makanan Jawa, sayur pakis terus semenjak hijrah ke Trenggalek, sekelas Arumi dari bintang sinetron tiba-tiba berubah jadi orang Jawa, makanannya juga tidak kayak artis kebanyakan, sungguh seorang artis yang mau diajak hidup sederhana di desa, romantis sekali, dan tidak gengsian, keren Arumi
 Di saat para artis pamer barang bermerek tapi Arumi malah membaur dengan orang desa yang penuh kesederhanaan, suka sekali lihatnya
 Ibu sama dong, kerupuk camilan favorit saya xemoticonx
-Suka sekali lihat keluarga Mbak Arumi dan Pak Emil, semoga sakinah mawadah warahmah terus dan jodoh dunia akhirat amin xemoticonx xemoticonx
+Suka sekali melihat keluarga Mbak Arumi dan Pak Emil, semoga sakinah mawadah warahmah terus dan jodoh dunia akhirat amin xemoticonx xemoticonx
 Enak sih gulai daun pakis
 Kerupuk xemoticonx
 Ternyata ibu cantik ini suka kerupuk juga, sama dong seperti aku! Mudah-mudahan tetap romantis sampai tua ya cantik tapi sederhana tidak materialistis! Karena mencari suami yang benar-benar baik xemoticonx bisa terima kita dengan segala kekurangan xemoticonx kelebihannya itu? Benar-benar susah! Paling lama lima tahun sudah cerai! xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Suamiku malah tidak pulang Mbak Arumi sudah tiga bulan xemoticonx ini kerja hidupi anak sendiri
 Di Blitar banyak, tidak pernah telat musim dimasak lodeh enak lo
 Aku juga pilih kerupuk xemoticonx
-Kerupuk lebih romantis sih apalagi pas mau makan xemoticonx enak
+Kerupuk lebih romantis sih apalagi waktu mau makan xemoticonx enak
 Apa adanya. xemoticonx xemoticonx xemoticonx
 Lebih baik bawa kerupuk bisa dimakan. Kalau bawa bunga dimakan jadi mbak kunti nanti. xemoticonx xemoticonx xemoticonx
 Setuju kerupuk xemoticonx xemoticonx
@@ -4024,22 +4024,22 @@ Aku suka sekali sayur pakis
 Tim kerupuk xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Enak itu pakis santan campur tahu xemoticonx xemoticonx sayur kesukaan aku dan suami xemoticonx
 Masyaallah sehat-sehat xemoticonx
-Senang lihat pasangan ini. Setara, seimbang. Arumi pintar pembawaannya
-Tertawa aku Bu lihat postingan ini xemoticonx
-Suamiku bawakan pulang bakso, pulang mengopi, pergi sama teman, habis ke money changer, dan lain-lain pokoknya lihat ada bakso laris kelihatan enak, langsung ingat kalau aku suka xemoticonx xemoticonx biarpun aku bilang lagi diet, tetap dibawakan xemoticonx xemoticonx
+Senang melihat pasangan ini. Setara, seimbang. Arumi pintar pembawaannya
+Tertawa aku Bu melihat postingan ini xemoticonx
+Suamiku bawakan pulang bakso, pulang mengopi, pergi sama teman, habis ke money changer, dan lain-lain pokoknya melihat ada bakso laris kelihatan enak, langsung ingat kalau aku suka xemoticonx xemoticonx biarpun aku bilang lagi diet, tetap dibawakan xemoticonx xemoticonx
 Bikin merek kerupuk Arumi daftar ke kanwil hukum ya Bu Emil xemoticonx
 Haha aku juga suka kerupuk xemoticonx
 Sama aku juga pilih kerupuk sesuka itu memang sama kerupuk sampai xemoticonx kang kerupuk keliling sudah langganan sekali xemoticonx
 Lah kok jadi medok Jawa ini Mbak Arumi, jadi bangga saya
 Suamiku kalau pulang kerja bawakan jajan hasil dari rapat, dari temannya yang ada acara selamatan xemoticonx xemoticonx senangnya sudah luar biasa xemoticonx xemoticonx
-Kok aku suka sekali lihat pasangan ini ya xemoticonx xemoticonx
+Kok aku suka sekali melihat pasangan ini ya xemoticonx xemoticonx
 Masyaallah, meleleh dibuatnya.
 Favorit saya kerupuk xemoticonx
 Keluarga yang bahagia dan sukses selalu amin xemoticonx xemoticonx xemoticonx xemoticonx
 Baru dengar suaranya Pak Emil. xemoticonx bahagia selalu ya Pak Emil xemoticonx Bu Arumi. xemoticonx xemoticonx
 Masyaallah suka lihatnya
 Kerupuk dan gulai pakis aduh xemoticonx xemoticonx xemoticonx
-Lihat dari makanannya saja sederhana mau xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx. Tidak seperti artis-artis yang heboh makan ini makan itu. Dan peralatan dapurnya pun sederhana xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx.
+melihat dari makanannya saja sederhana mau xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx. Tidak seperti artis-artis yang heboh makan ini makan itu. Dan peralatan dapurnya pun sederhana xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx.
 Aku kira mendekat mau dicium. xemoticonx xemoticonx mungkin malu ya. Pak Emil menahan diri padahal sebenarnya sudah gemas xemoticonx xemoticonx
 Tatapan suaminya xemoticonx xemoticonx istrinya pun sangat menghargai xemoticonx seantusias itu kalau dapat sesuatu dari suaminya ah xemoticonx xemoticonx
 Masyaallah bahagia selalu ya. xemoticonx xemoticonx xemoticonx
@@ -4061,8 +4061,8 @@ Tidak bawa apa-apa.
 Bu Arumi sederhana dan makan apa saja masuk itulah tradisi orang Trenggalek. Sayang pokoknya ya Bu. Sederhana tapi penuh makna. xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kerupuk mbaknya xemoticonx
 Kerupuk tercinta.
-Suka sekali lihat Arumi adem, dewasa pokoknya romantis dan langgeng selalu buat kalian berdua
-Masyaallah sukanya lihat pasangan ini bahagia selalu
+Suka sekali melihat Arumi adem, dewasa pokoknya romantis dan langgeng selalu untuk kalian berdua
+Masyaallah sukanya melihat pasangan ini bahagia selalu
 Suamiku bawa sayur mayur mbak xemoticonx
 Saya pisang goreng tiap sore dan kopi panas terasa bahagia xemoticonx
 Kak Arumi bajunya bagus, boleh tahu merek dan belinya di mana ya?
@@ -4075,12 +4075,12 @@ xemoticonx xemoticonx xemoticonx jangan xemoticonx sayur xemoticonx aku sama Bu 
 Kalau daun pakis biasa ditumis xemoticonx
 Aku suka pakis enak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Cantik sekali. xemoticonx
-Melihat ini artis sampai ketemu suami yang penyayang tidak ada gosip miring subhanallah Arumi. xemoticonx xemoticonx
+Melihat ini artis sampai bertemu suami yang penyayang tidak ada gosip miring subhanallah Arumi. xemoticonx xemoticonx
 Uang xemoticonx, bukan bunga bukan cokelat xemoticonx
 Batik yang dipakai Pak Emil cakep
 Suka sekali sama kerupuk xemoticonx
-Tergoa aku lihat sayur pakisnya sayur enak xemoticonx santan xemoticonx
-Pas sekali itu sayur santan pakis xemoticonx tahu tempe xemoticonx sambal dan kerupuk xemoticonx
+Tergoda aku melihat sayur pakisnya sayur enak xemoticonx santan xemoticonx
+waktu sekali itu sayur santan pakis xemoticonx tahu tempe xemoticonx sambal dan kerupuk xemoticonx
 Tiada hari tanpa kerupuk ya kak xemoticonx xemoticonx
 Ternyata saya dan Mbak Arumi ada persamaan. Sama-sama tidak bisa hidup tanpa kerupuk. xemoticonx xemoticonx xemoticonx
 Kalau ke Surabaya pasti mampir pasar Genting beli kerupuk xemoticonx
@@ -4089,12 +4089,12 @@ Mau xemoticonx
 Aku rasa bahagia sekali melihatnya, kayaknya aku yang jadi pemainnya xemoticonx
 Kerupuk kesukaan
 xemoticonx xemoticonx mantap mbak Arumi xemoticonx
-Enak itu pak Emil buat lauk makan
+Enak itu pak Emil untuk lauk makan
 Masyaallah mbak Arumi cantik sekali
 Sangat manis xemoticonx xemoticonx
 Definisi pasangan bahagia makan sama kerupuk pun jadi xemoticonx xemoticonx xemoticonx
 Aku sekali xemoticonx makan tanpa kerupuk kurang afdal xemoticonx ke mana pun suami tugas luar kota oleh-olehnya ya kerupuk dan daster xemoticonx xemoticonx
-Ah xmentionx kamu sekali deh kalau lagi jalan keluar lihat makanan kesukaan istri pasti dibawa pulang xemoticonx xemoticonx xemoticonx
+Ah xmentionx kamu sekali deh kalau lagi jalan keluar melihat makanan kesukaan istri pasti dibawa pulang xemoticonx xemoticonx xemoticonx
 Kerupuk yang dibawa Bapak Emil xemoticonx xemoticonx xemoticonx
 Pak Emil kunjungi pabrik kerupuk saya dong belum pabrik besar sih UMKM kerupuk rambak, kerupuk pentol dan susu kedele
 Cilok sih bu kalau aku xemoticonx
@@ -4103,7 +4103,7 @@ Masyaallah andaikan semua suami punya kesadaran seperti pak Emil dalam memperlak
 Kerupuk enak
 Aku dibawakan jajan pinggir jalan saja sudah senang sekali xemoticonx xemoticonx xemoticonx
 Mantap bu cantik
-Bunga tidak bisa dimakan xemoticonx enakan dibawakan kerupuk bisa buat makan sekeluarga xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bunga tidak bisa dimakan xemoticonx enakan dibawakan kerupuk bisa untuk makan sekeluarga xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Punya laki tahu apa yang istri suka, walau remeh itu luar biasa
 Kelihatan dapur yang selalu dipakai, bukan tipe dapur pencitraan ala-ala
 Aku juga pencinta kerupuk berat xemoticonx
@@ -4121,13 +4121,13 @@ Assalamualaikum bu cantik bapak ganteng baik hati tetap semangat ya semoga lanca
 Sama seperti aku makan pakai kerupuk sama sambal saja bahagia sekali, tiap makan harus ada kerupuk xmentionx manisnya pak Emil, bahagia itu sederhana ya xemoticonx
 Merakyat sekali xemoticonx xemoticonx sederhana dan cantik xemoticonx
 Bajunya beli di mana
-Suami saya pulang bawa sayuran satu kresek sambil bilang xemoticonx bu buat masak besok xemoticonx xemoticonx xemoticonx
+Suami saya pulang bawa sayuran satu kresek sambil bilang xemoticonx bu untuk masak besok xemoticonx xemoticonx xemoticonx
 Pasangan paling terfavorit, pokoknya pasangan paling sederhana tidak sombong, apa adanya cocok jadi pemimpin nih
 Aku favorit kerupuk ini juga xemoticonx
 Lebih suka dibawakan bakso xemoticonx
 Pasti kerupuk xemoticonx
 Lebih suka dibawakan bakso atau seblak sih aku xmentionx xemoticonx
-Pak Emil selalu fokus lihat istrinya terus ya xemoticonx xemoticonx xemoticonx
+Pak Emil selalu fokus melihat istrinya terus ya xemoticonx xemoticonx xemoticonx
 Tapi kerupuk memang yang terbaik sih xemoticonx
 xmentionx suamiku sekali xemoticonx
 Ibu cantik sekali sih masyaallah
@@ -4138,7 +4138,7 @@ Tatapannya pak Emil duh seperti tatapan suamiku ke HP dan burung peliharaannya
 Pasangan termanis
 Suamiku kalau pulang kerja bawaannya kangkung sama tahu mbak xemoticonx itu pun aku sudah bahagia
 Mulailah pak Emil tatapannya xemoticonx xemoticonx
-Aku melihat pasangan ini adem sekali, benar xemoticonx bawa perasaan lihat mas Emil manis tidak bosan
+Aku melihat pasangan ini adem sekali, benar xemoticonx bawa perasaan melihat mas Emil manis tidak bosan
 Aku suka xemoticonx xemoticonx xemoticonx xemoticonx enak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Hidup ya sewajarnya xemoticonx
 Sekelas Arumi saja makan lodeh pakis sama kerupuk saja sudah nikmati
@@ -4147,7 +4147,7 @@ Bahagia selalu ya kak xemoticonx xemoticonx xemoticonx senang sekali saya meliha
 Harusnya sekaleng sih pak xemoticonx
 Bawakan makanan saja daripada bunga xemoticonx
 Ibu pejabat yang baik xemoticonx xemoticonx
-Tidak bosan-bosan lihat pasangan ini, lain daripada yang lain, bersahaja xemoticonx
+Tidak bosan-bosan melihat pasangan ini, lain daripada yang lain, bersahaja xemoticonx
 Sederhana sekali bu xemoticonx xemoticonx
 Kata bahasa kami Bengkulu daun pakis, alian daun paku
 Kesukaan sekali bu Arumi, pakis wanginya khas, dioseng bumbu iris pakai terasi pedas mantap bu xemoticonx
@@ -4174,7 +4174,7 @@ Kalau aku bawakan bunga bank saja xemoticonx xemoticonx
 Bawa kerupuk tapi tidak bawa uang aman tidak
 Aku senang dibawakan uang gambar Soekarno Hatta yang banyak xemoticonx xemoticonx
 Semua saya suka kalau dibawakan suami bun xemoticonx
-Suamiku kalau pulang bawa jangkrik buat peliharaannya memang sedihnya xemoticonx
+Suamiku kalau pulang bawa jangkrik untuk peliharaannya memang sedihnya xemoticonx
 Hidupku juga hampa makan apa-apa tanpa kerupuk xemoticonx
 xemoticonx xemoticonx xemoticonx suami aku bilang xemoticonx aa tidak tahu makanan kesukaan neng, soalnya semua makanan neng doyan xemoticonx xemoticonx xemoticonx xemoticonx aku apa saja makan, tapi aku punya kesukaan xemoticonx xemoticonx xemoticonx xemoticonx hiks
 Bu wakil gubernur tahu tidak centong sayurnya sama dengan centong sayur saya bu xemoticonx xemoticonx
@@ -4199,7 +4199,7 @@ Es teh jumbo dong xemoticonx xemoticonx
 Boleh
 Cantik sekali sih ya Allah xemoticonx xemoticonx
 Sekelas artis istri bupati doyan pakis xemoticonx ini nih sayur kampung yang memang enak sekali. Tambah lagi kerupuk uh mantap sekali xemoticonx
-Senang sekali lihat apa adanya romantis dan sederhana padahal kalau dia mau pencitraan saja banyak temannya xemoticonx
+Senang sekali melihat apa adanya romantis dan sederhana padahal kalau dia mau pencitraan saja banyak temannya xemoticonx
 Cantik luar dalam xemoticonx
 Suamiku kalau pulang bawa es teh jumbo
 Wah
@@ -4218,7 +4218,7 @@ Bunga tidak bikin kenyang ya kak kalau kerupuk kan enak di perut
 Seperti aku mbak pecinta kerupuk, tidak suka pizza, donat, jajanan kekinian suka kerupuk apalagi yang goreng pasir cocol pakai petis
 Wkwkwk
 Main ke pabrik kerupukku dong kak
-Kita sama kak Arumi penggemar berat kerupuk, sampai pulang ke Palembang saja mertua langsung ke pasar beliin kerupuk buat menantu dan cucunya xemoticonx xemoticonx
+Kita sama kak Arumi penggemar berat kerupuk, sampai pulang ke Palembang saja mertua langsung ke pasar beliin kerupuk untuk menantu dan cucunya xemoticonx xemoticonx
 Aku cokelat xemoticonx
 Aku suka aku suka xemoticonx
 Masyaallah tabarakallah mbak Arumi Bachsin Emil Dardak xemoticonx xemoticonx biar pejabat juga makan sangat sederhana xemoticonx xemoticonx salam sejahtera
@@ -4236,8 +4236,8 @@ Ganteng dan cantik xemoticonx sungguh mempesona xemoticonx penuh cinta
 Masyaallah
 Cantiknya sekali bu Arumi ini xemoticonx xemoticonx xemoticonx
 Pak Emil boleh jadi presiden tidak?
-Kalau suamiku biasanya kalau pulang kerja bawa bahan buat bertengkar xemoticonx
-Saya lihat-lihat mirip kamu mbak xmentionx xemoticonx
+Kalau suamiku biasanya kalau pulang kerja bawa bahan untuk bertengkar xemoticonx
+Saya melihat-lihat mirip kamu mbak xmentionx xemoticonx
 Benar deh dibawakan sama suami waktu pulang kerja, walaupun cuma kerupuk atau keripik bahkan jajan konsumsi rapat, dan alasannya karena ingat kalau camilan itu kesukaan istrinya, duh itu bikin meleleh deh hati xemoticonx xemoticonx
 Main ke Kalimantan bu di sini banyak pakis xemoticonx xemoticonx kalau di sini menyebut xemoticonx ya sayur paku xemoticonx
 Beruntungnya Arumi dapat suami yang sangat menyayanginya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -4254,7 +4254,7 @@ xemoticonx xemoticonx anti membosankan
 Sederhana tapi penuh cinta xemoticonx xemoticonx
 Wow enak sayur pakis, saya suka ini, mantap xemoticonx
 Minta dong pak bu, itu kesukaanku
-Suka sekali lihat mbak Arumi dan mas Emil. Romantisnya apa adanya xemoticonx
+Suka sekali melihat mbak Arumi dan mas Emil. Romantisnya apa adanya xemoticonx
 Wah seperti aku dong pencinta kerupuk sekali xemoticonx xemoticonx
 Sebagai sesama pecinta kerupuk harus saling berbagi kerupuknya nih bu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Enak sekali ibu xemoticonx
@@ -4264,7 +4264,7 @@ Lagi membayangkan suatu hari nanti punya ibu negara secantik ini xemoticonx
 Oh mbak kita sama xemoticonx kerupuk adalah yang terbaik
 Berarti sama dong sama saya pecinta kerupuk xemoticonx xemoticonx xemoticonx
 Lebih baik laki xemoticonx seperti ini manis tidak usah aneh xemoticonx bisa langgeng dan awet xemoticonx
-Cinta cinta buat kalian salam dari Medan xemoticonx
+Cinta cinta untuk kalian salam dari Medan xemoticonx
 Orangnya cantik, kaya, perabotnya sederhana xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Calon ibu negara masa depan xemoticonx xemoticonx xemoticonx
 Mbak Arumi mangap makan kerupuk pun masih cantik, lah aku makan kerupuk dikasihani sama orang katanya seperti tidak tahu makan xemoticonx
@@ -4298,7 +4298,7 @@ Kalau saya lebih suka dibawakan kopi hitam merek kapal selam karena saya pecinta
 Kak, sadar tidak si suami kakak itu sering sekali menatap kamu dengan tatapan tulus. Kelihatan sekali sayangnya xemoticonx xemoticonx
 Pak Emil yang menatap bu Arumi kenapa saya yang meleleh xemoticonx xemoticonx xemoticonx
 Pakai apa saja cantik xemoticonx
-Tatapan ke istrinya masyaallah penuh cinta sekali sepertinya. Sakinah mawadah warahmah sampai surga buat mereka
+Tatapan ke istrinya masyaallah penuh cinta sekali sepertinya. Sakinah mawadah warahmah sampai surga untuk mereka
 Suaminya sayang sekali
 Enak itu sayur daun pakis xemoticonx xemoticonx
 Kalau yang bawa peyek kacang sama opak ada tidak ya? Sudah langka sekali itu opak xemoticonx xemoticonx
@@ -4308,10 +4308,10 @@ Pakis di daerah Jember enak sekali kak
 Kalau sederhana begini aku jadi merasa kehidupanku tidak jauh beda ya sama Arumi xemoticonx xemoticonx
 Tidak bosan diulang-ulang nontonnya xemoticonx xemoticonx
 Sama seperti mas suamiku tiap pulang rapat kotak makanan selalu dibawa pulang karena tahu sekali istrinya doyan ngemil xemoticonx xemoticonx xemoticonx
-Tidak bosan lihat muka Arumi
+Tidak bosan melihat muka Arumi
 Pejabat yang sederhana dan merakyat pak Emil ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Seblak xemoticonx mi ayam dong xemoticonx
-Pilihan orang tua memang tidak salah pilih. Pak Emil mengayomi sekali. Love sekali buat kalian berdua
+Pilihan orang tua memang tidak salah pilih. Pak Emil mengayomi sekali. Cinta sekali untuk kalian berdua
 Bagus
 Buahahaha
 Makannya sederhana sekali ya
@@ -4323,7 +4323,7 @@ Suami pulang kerja bawa kantong plastik isi gorengan saja saya sudah senang xemo
 Kerupuknya ingin xemoticonx xemoticonx xemoticonx
 Kalau sudah kelahiran bandung kerupuk selalu setiap hari xemoticonx
 Kerupuk kesukaanku xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Senang lihat vlog mbak Arumi dan mas Emil, natural, apa adanya, sederhana dan rendah hati. Tidak aneh-aneh dan lebai. Tidak menunjukkan kemewahan seperti selebritas dan figur publik lainnya. Semoga pasangan ini tetap merakyat, membumi dan rendah hati sebagai pemimpin yang bisa diteladani xemoticonx xemoticonx xemoticonx .
+Senang melihat vlog mbak Arumi dan mas Emil, natural, apa adanya, sederhana dan rendah hati. Tidak aneh-aneh dan berlebihan. Tidak menunjukkan kemewahan seperti selebritas dan figur publik lainnya. Semoga pasangan ini tetap merakyat, membumi dan rendah hati sebagai pemimpin yang bisa diteladani xemoticonx xemoticonx xemoticonx .
 Sini bu xmentionx main ke banyuwangi. saya punya usaha kerupuk xemoticonx xemoticonx
 Tatapan bapak selalu penuh cinta
 Belum ada melawan kerupuk khas bangka
@@ -4336,17 +4336,17 @@ Betul bunga tidak bisa dimakan
 Ingin dong kerupuknya
 Kalau tidak ada kerupuk tidak ramai, kurang seru xemoticonx xemoticonx sama seperti keluarga kami kalau makan harus ada kerupuk xemoticonx xemoticonx
 Bahagia ya punya suami yang baik, penyayang, sederhana gaya mereka berdua ini apa adanya yang penting uangnya banyak ya
-Rumahnya sederhana sekali ya, ruang makan kelihatan kesederhanaan walaupun tidak semua ya, tapi hangat sekali kalau lihat pasangan ini benar deh benar-benar sayang lihatnya sama istri sama keluarga masyaallah walau semua tidak ada yang sempurna tapi adem lihat kesederhanaan rasa kasih sayang di dalam keluarga, cara yang begitu benar-benar tulus tidak lebai atau dibuat-buat
+Rumahnya sederhana sekali ya, ruang makan kelihatan kesederhanaan walaupun tidak semua ya, tapi hangat sekali kalau melihat pasangan ini benar deh benar-benar sayang lihatnya sama istri sama keluarga masyaallah walau semua tidak ada yang sempurna tapi adem melihat kesederhanaan rasa kasih sayang di dalam keluarga, cara yang begitu benar-benar tulus tidak berlebihan atau dibuat-buat
 Kak rumi, doakan ya, habis lahiran anak ketiga ini aku berjuang diet lagi biar tetap bisa terlihat menarik di depan suami xemoticonx
 Divideokan saja
-Mirip bapak saya pas muda deh
+Mirip bapak saya waktu muda deh
 Memanggil sayangnya candu sekali
 Dibawakan apapun pasti senang. kalau suaminya saleh benar, bisa membawa ke surganya Allah. imam yang benar, semoga jodoh yang langgeng ya atas izin Allah, xemoticonx rida Allah selamanya dunia akhirat, amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Wah kita sama dong mbak Arumi xemoticonx aku kalau makan tidak ada kerupuk seperti kurang ramai xemoticonx
 Kerupuk xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lama tidak makan pakis santan, dulu ibuku sering bikin xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx maju paling depan kalau kerupuk, slogannya sama xemoticonx tidak bisa makan xemoticonx hidup tanpa kerupuk xemoticonx xemoticonx xemoticonx xemoticonx lah iya ini yang bikin gendut hahahaha
-Resep awet langsingnya apa sih mbak Arumi? Kok tetap awet begini, mulai pertama lihat. Bagi tipnya dong xemoticonx
+Resep awet langsingnya apa sih mbak Arumi? Kok tetap awet begini, mulai pertama melihat. Bagi tipnya dong xemoticonx
 Kerupuknya tetanggaku bu xmentionx, memang kerupuk orang Krian mantap-mantap bu xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx bahagianya
 Ya kerupuk, ya apa lagi ya?
@@ -4374,7 +4374,7 @@ Cewek cantik sukanya yang sederhana ya bang
 Sama, tidak bisa makan kalau tidak ada kerupuk xemoticonx
 Saya tidak pernah kenal kalian
 Wah, nasinya hanya sesendok bu? xemoticonx pantas hobi makan masih tetap langsing xemoticonx
-Pokoknya ini pasangan yang terbaik deh xemoticonx rukun-rukun terus pak Emil dan Arumi xemoticonx ya xemoticonx. kami suka sekali lihat dan melihatnya xemoticonx. Bisa buat contoh begitu lo xemoticonx. xemoticonx xemoticonx
+Pokoknya ini pasangan yang terbaik deh xemoticonx rukun-rukun terus pak Emil dan Arumi xemoticonx ya xemoticonx. kami suka sekali melihat dan melihatnya xemoticonx. Bisa untuk contoh begitu lo xemoticonx. xemoticonx xemoticonx
 Cantik dan bersahaja. mbak Arumi saya suka nonton di youtubenya
 Bu Arumi suka sayur pakis? luar biasa ibu xemoticonx
 Tapi kerupuk dua onta itu memang enak sekali, anak sama suami saya juga suka
@@ -4383,7 +4383,7 @@ Salut peralatan makannya biasa saja xemoticonx xemoticonx xemoticonx xemoticonx 
 Bawa duit aku mah bu
 Mbak Arumi seperti aku kalau makan kerupuk selalu mencolok sambal diadukan ke kerupuknya
 Hahaha hasil keliling ya mas Emil, saking senangnya didatangi mas Emil
-Sama jika makan tidak ditemani kerupuk kurang pas
+Sama jika makan tidak ditemani kerupuk kurang cocok
 Sayang, hasil keliling aku bawakan kerupuk, manis xemoticonx xemoticonx
 Meski semua sederhana tapi tetap ya kelihatan kok orang kayaknya kulitnya saja sudah paling beda masyaallah ada ya orang dari gadis tinggi sampai sudah punya anak badan sama muka sama saja tetap cantik sekali
 Suami bawa siomay favoritku kalau dari Yogyakarta, bukan bakpia
@@ -4473,9 +4473,9 @@ Dibawakan martabak telur paling sering
 Suami kalau balik kerja bawa rempeyek
 Bawakan uang saya mah bu xemoticonx
 Tatapan pak Emil ke istrinya itu lo yang bikin iri
-Hmm, 'tidak main'. Jawa Timur sekali ibu ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+hem, 'tidak main'. Jawa Timur sekali ibu ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ada yang bisa beri tahu lagi tidak? Pejabat-pejabat mana yang hidupnya sederhana bersahaja seperti ini? Tetap rendah hati Pak xmentionx dan Bu xmentionx xemoticonx xemoticonx
-Hm sekelas Bu Arumi makannya pakis, lah kita yang rakyat jelata makan minta yang aneh-aneh xemoticonx
+hem sekelas Bu Arumi makannya pakis, lah kita yang rakyat jelata makan minta yang aneh-aneh xemoticonx
 Bawa capai xemoticonx xemoticonx
 Cobain kerupuknya asli bangka belitung bu
 Manis sekali sih xemoticonx
@@ -4488,15 +4488,15 @@ Kalau makan tanpa kerupuk ada saja rasa yang kurang ya Bu xmentionx xemoticonx x
 Pakainya udang itu enak lo gulai pakisnya xemoticonx xemoticonx
 Apalagi kerupuk Palembang, Bangka. Terbaik
 Wah sama kesukaannya malam kerupuk sama saya Mbak Arumi cantik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Senang lihat keluarga ini romantis sekali
+Senang melihat keluarga ini romantis sekali
 Sosok pejabat yang sederhana ramah. Senang lihatnya
 Mbak Rumi kenyang tidak sih nasinya sedikit begitu? Bagaimana caranya biar bisa makan porsinya segitu
 Bagi kerupuknya dong, aku juga ingin dioleh-olehi
 Bunga, cokelat sudah biasa sekali, kerupuk baru luar biasa. Kerupuk juaranya! xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ya Allah sayur pakis kesukaan saya Bu cantik Arumi dibumbu sambal goreng dikasih ayam santan jadi lapar Bu cantik xmentionx
-xemoticonx xemoticonx xemoticonx Tidak bisa berkata-kata bila lihat pasangan ini, bikin ingin pindah planet xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx Tidak bisa berkata-kata bila melihat pasangan ini, bikin ingin pindah planet xemoticonx xemoticonx
 Sayur lodeh xemoticonx bakwan udang xemoticonx kerupuk xemoticonx
-Apalagi kerupuknya yang agak gosong, hmm bisa habis sendiri satu bungkus itu xemoticonx
+Apalagi kerupuknya yang agak gosong, hem bisa habis sendiri satu bungkus itu xemoticonx
 Bunga tidak bisa dimakan kalau kerupuk hap kriuk-kriuk
 Masyaallah idola sekali sama pasangan ini. Bahagia selalu Bu xmentionx
 Sini Bu xmentionx ke sekolah saya di Gunung Gumitir kita cari bersama-sama pakis. Biasanya siswa-siswi cari pakis di dekat sekolah
@@ -4517,7 +4517,7 @@ Kerupuk kapan saja! xemoticonx
 Jadi ingin makan kerupuk juga xemoticonx xemoticonx
 Kerupuk Bun kalau makan tanpa kerupuk hambar rasanya Bun
 Ternyata selera kita sama xemoticonx
-Suami saya pulang selalu bawa makanan macam-macam ada yang ditanyai dulu mau makanan apa. Kalau tidak tanya ya pasti tetap dibawakan camilan xemoticonx dan selalu bilang belum sampai dalam rumah baru depan pintu saja sudah bilang xemoticonx sayang saya ada bawakan ini xemoticonx. xemoticonx xemoticonx Habis itu langsung tanyain anaknya xemoticonx xemoticonx ke mana? Kalau tidak langsung lihat anaknya juga pas dia datang xemoticonx
+Suami saya pulang selalu bawa makanan macam-macam ada yang ditanyai dulu mau makanan apa. Kalau tidak tanya ya pasti tetap dibawakan camilan xemoticonx dan selalu bilang belum sampai dalam rumah baru depan pintu saja sudah bilang xemoticonx sayang saya ada bawakan ini xemoticonx. xemoticonx xemoticonx Habis itu langsung tanyain anaknya xemoticonx xemoticonx ke mana? Kalau tidak langsung melihat anaknya juga waktu dia datang xemoticonx
 Sama seperti saya mending dibawakan makanan kesukaan daripada bunga hahaha xemoticonx xemoticonx
 Kalau di Banyuwangi pakis yang disantan namanya pakis jeruk Bu, enak sekali. Lain kali kalau ke Banyuwangi minta dibuatkan pakis jeruk
 Masyaallah tabarakallah, selalu harmonis makin harmonis. Insyaallah selalu di hati warga Surabaya dan insyaallah diamanahi lagi untuk jadi wakil gubernur Jawa Timur, amin ya Allah amin
@@ -4525,18 +4525,18 @@ Suami idaman Bu Arumi
 Sama Mbak, aku ya senang pakis disantan xemoticonx xemoticonx dipedas xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Di Kalimantan banyak pakis
 Saya pecinta rengginang, peyek kacang xemoticonx kerupuk, Mbak Arumi xemoticonx
-Mendingan kerupuk Mbak, enak buat lauk makan. Kalau bunga akhirnya tidak bisa dimakan
-Gara-gara lihat ini jadi ingin kerupuk xemoticonx
+Mendingan kerupuk Mbak, enak untuk lauk makan. Kalau bunga akhirnya tidak bisa dimakan
+Gara-gara melihat ini jadi ingin kerupuk xemoticonx
 Orang-orang kalau makan nasinya sedikit kok bisa ya kenyang? Kalau aku masih lapar itu xemoticonx xemoticonx
 Pak Emil, kalau makan duduk dulu xemoticonx xemoticonx
-Aku itu senang lihat pasangan ini, bikin gemas xemoticonx
+Aku itu senang melihat pasangan ini, bikin gemas xemoticonx
 Sesederhana itu xemoticonx xemoticonx xemoticonx
 Mau kerupuknya Pak xmentionx kirim ke Karawang dong, dimakan pakai timun enak Pak xemoticonx
 Dibawakan tahu gejrot atau cilok hati senang xemoticonx kalau dibawakan bunga wangi sebentar habis itu layu xemoticonx
 Beli di mana itu Bu? Mau beli juga xemoticonx
 xemoticonx xemoticonx xemoticonx Bunga cuma hiasan dan jadi layu xemoticonx kalau kerupuk bisa kata makan krauk-krauk. Hobinya sama denganku xemoticonx xemoticonx garing xemoticonx xemoticonx tapi sekarang suruh dikurangi karena berobat xemoticonx xemoticonx jantung. Tapi bismillah saja, orang makan kerupuknya paling banyak cuma tiga xemoticonx xemoticonx
 Aku juga suka kerupuk Bu xemoticonx
-Kalau pas ke Solo coba kerupuk merek Solo Mbak, enak juga xemoticonx
+Kalau waktu ke Solo coba kerupuk merek Solo Mbak, enak juga xemoticonx
 Aku yang kemarin siang dibawakan siomay Bandung sama suami, bahagia sekali xemoticonx
 Semoga sakinah mawadah warahmah sehidup sesurga xemoticonx xemoticonx
 Sama seperti aku pecinta kerupuk xemoticonx xemoticonx
@@ -4551,7 +4551,7 @@ Romantisnya suamiku kalau pulang kerja bawakan aku gandu, tiwul, klepon, lemet s
 Cantik sekali Ibu xemoticonx xemoticonx xemoticonx xemoticonx
 Enak Mbak Arumi gulai pakis xemoticonx kerupuk, cantik tidak aneh-aneh, hidup bersahaja xemoticonx xemoticonx
 Kalau aku pasti dibawakannya gorengan xemoticonx xemoticonx xemoticonx
-Suka sekali lihat kalian xemoticonx xemoticonx xemoticonx
+Suka sekali melihat kalian xemoticonx xemoticonx xemoticonx
 Tatapan Pak Emil selalu penuh cinta ya
 Merek Arumi xemoticonx xemoticonx xemoticonx xemoticonx Pasti laris itu Bu
 Salah fokus sama bajunya Bu wakil gubernur. Ingin diberi tahu dong
@@ -4568,7 +4568,7 @@ Sederhana sekali xemoticonx xemoticonx xemoticonx xemoticonx
 Saya lebih suka kerupuk daripada bunga tidak bisa dimakan. Kalau bunganya bank juga suka kita
 Gulai pakis campur udang atau pakis pakai jengkol, beuh xemoticonx
 Cantik sekali sih xemoticonx
-Aku juga pecinta kerupuk xemoticonx Waktu itu pas suamiku melamar, aku dibawakan seserahan kerupuk sampai lima kaleng xemoticonx sesuai tanggalnya
+Aku juga pecinta kerupuk xemoticonx Waktu itu ketika suamiku melamar, aku dibawakan seserahan kerupuk sampai lima kaleng xemoticonx sesuai tanggalnya
 Cara menatap Pak Emil ke Bu Arumi xemoticonx
 Senang lihatnya, sederhana, apa adanya. Sehat selalu Bapak Ibu xemoticonx xemoticonx
 Mbak Arumi sama dengan saya kalau makan sayur berkuah diangkat sayurnya saja tidak pakai kuah apalagi kuah santan. Seperti kerupuk Palembang ya lemak sekali xemoticonx xemoticonx
@@ -4576,7 +4576,7 @@ Bunga deposito saja xemoticonx Bu Arumi
 Bersahaja sekali, apa adanya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bunga terutama bunga deposito xemoticonx xemoticonx xemoticonx
 Aduh pasangan ini bikin aku iri xemoticonx
-Seumur-umur tidak pernah dikasih bunga sama suami Bu. Pas zaman pacaran saja saya dibawakan roti xemoticonx susu, diam-diam taruh di meja kerja xemoticonx mungkin karena saya kurus dikira kurang makan kali ya xemoticonx
+Seumur-umur tidak pernah dikasih bunga sama suami Bu. Waktu zaman pacaran saja saya dibawakan roti xemoticonx susu, diam-diam taruh di meja kerja xemoticonx mungkin karena saya kurus dikira kurang makan kali ya xemoticonx
 Suami saya juga pernah Bu pulang kerja bawanya kerupuk satu plastik karung itu, katanya mampir di pabrik kerupuk murah katanya beli 20 ribu sudah dapat banyak
 Ibu Arumi tahu sayur marungga? Sayur yang paling banyak di NTT yang kata para ahli punya nilai gizi yang tinggi. Suamiku pernah bawa kado sayur itu dan aku kaget sampai meluk-meluk karena itu sayur kesukaanku sekali xemoticonx
 Sayur pakis memang terbaik
@@ -4600,13 +4600,13 @@ Sama sekali pencinta kerupuk xemoticonx makan apa pun tidak ada kerupuk tidak en
 Aku pun pecinta kerupuk Bu xemoticonx xemoticonx xemoticonx xemoticonx
 Suami saya bawa cabai kalau dari kebun Mbak xemoticonx
 Sama Mbak Arumi saya juga senang sekali sama kerupuk xemoticonx xemoticonx xemoticonx xemoticonx
-Paling kesal lihat orang suka makan tapi cantik, saya baru baca bismillah saja langsung naik lima kilogram xemoticonx
+Paling kesal melihat orang suka makan tapi cantik, saya baru baca bismillah saja langsung naik lima kilogram xemoticonx
 Sama dong aku juga suka kalau dibawakan kerupuk atau peyek
-Lihat mereka itu adem ayem sekali ya xemoticonx
+melihat mereka itu adem ayem sekali ya xemoticonx
 Sayur pakis, kalau kata orang Lampung sayur paku Kak, kapan lagi kan makan paku disayur hehe
 Sayang Bu Arumi xemoticonx si cantik yang doyan makanan sederhana
 Sehat-sehat kalian langgeng terus ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Senang sekali lihat pasangan ini, penuh cinta. Semoga cintanya tidak pernah layu, bahagia selalu xemoticonx xemoticonx
+Senang sekali melihat pasangan ini, penuh cinta. Semoga cintanya tidak pernah layu, bahagia selalu xemoticonx xemoticonx
 Arumi cantik sekali ya
 Tatapan mata Pak Emil selalu dalam sama Bu Arumi ya Allah bikin bawa perasaan. Sehat selalu Ibu Bapak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Wah sama dengan saya pecinta kerupuk. Kalau tiap kali makan tidak ada kerupuk kayak ada yang kurang. Pokoknya suka kerupuk xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -4614,7 +4614,7 @@ Tatapan Mas Emil ke Mbak Arumi selalu penuh cinta itu yang aku suka
 Suami kalian balik kerja bawa bunga, cokelat. Mana main. Suamiku lah balik dari lokasi tambang bawanya rebung, terong asam, terong pipit, umbut ruak dan sayuran kampung Dayak lainnya xemoticonx xemoticonx xemoticonx
 Kerupuk Palembang lah
 Sama makanan favorit kita Ibu xemoticonx kerupuk yang terbaik tidak ada obat xemoticonx xemoticonx
-Pak Emil itu cinta sekali sama Arumi. Seandainya hidup tidak perlu pakai uang mungkin dia nempel terus sama istrinya. Tapi apa daya hidup harus berjalan harus perlu uang dan kerja ya Pak Emil xemoticonx Sehat selalu buat keluarga kalian dan selalu dalam lindungan Allah SWT amin
+Pak Emil itu cinta sekali sama Arumi. Seandainya hidup tidak perlu pakai uang mungkin dia nempel terus sama istrinya. Tapi apa daya hidup harus berjalan harus perlu uang dan kerja ya Pak Emil xemoticonx Sehat selalu untuk keluarga kalian dan selalu dalam lindungan Allah SWT amin
 Mendingan kerupuk kalau bunga layunya dibuang, kecuali bunga duit
 Pakis enak dioseng-oseng pedas
 Naksir sama batiknya Pak Emil xemoticonx xemoticonx xemoticonx
@@ -4635,7 +4635,7 @@ Pak Emil selalu dengan tatapan penuh cinta sangat manis xemoticonx xemoticonx
 Cintanya berlebihan ini pak Emil xemoticonx xemoticonx
 Bunga tidak bisa dimakan ya mbak Arumi xemoticonx xemoticonx xemoticonx
 Pecinta bakso juga tidak sih bu Arumi, di bogor enak rasanya xemoticonx
-Habis lihat ini aku langsung ke dapur dan ambil kerupuk wkwk
+Habis melihat ini aku langsung ke dapur dan ambil kerupuk wkwk
 Cokelat mbak
 Cinta untuk kalian berdua xemoticonx
 Sama dong ibu Arumi makan kesukaan aku yaitu kerupuk xemoticonx
@@ -4649,7 +4649,7 @@ Sama kak, saya juga suka kerupuk xemoticonx
 Enaknya makan kerupuk pakai gado-gado dan bakso mi sup xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Suamiku kalau pulang bawa nasi kotak dapat dari rapat xemoticonx xemoticonx pasti lebih memilih dibawa pulang xemoticonx
 Kalau saya tiap pulang kerja bawa kotak bekal makan siang yang sudah kosong, besok begitu lagi dan lagi, karena paling enak bawa bekal masakan istri xemoticonx
-Lihat pak Emil kok mirip mantanku ya bi? xemoticonx xemoticonx xemoticonx xmentionx
+melihat pak Emil kok mirip mantanku ya bi? xemoticonx xemoticonx xemoticonx xmentionx
 Kerupuk lah bunga tidak bisa dimakan xemoticonx xemoticonx xemoticonx
 Bismillah punya suami spesifikasi cintanya berlebihan pak Emil
 Sederhana tapi bermanfaat untuk menjaga kestabilan perut xemoticonx xemoticonx xemoticonx
@@ -4662,7 +4662,7 @@ Keluarga idolaku xemoticonx
 Kerupuk xemoticonx
 Mbak Arumi mau juga ya sayur pakis enak disayur masak pakai santan dicampur sama petai mantap mbak xemoticonx xemoticonx xemoticonx
 Suka sama pasangan ini cocok sekali romantis, bahagia selalu kakak
-Suka sekali lihat mereka senyum bahagia terus ya masyaallah deh semoga sampai tua langgeng
+Suka sekali melihat mereka senyum bahagia terus ya masyaallah deh semoga sampai tua langgeng
 Wah mantap, suami yang setia tahu kesukaan istri kerupuk uyel kalau istilah trenggalek, mantap sekali mbak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sama xemoticonx xemoticonx xemoticonx
 Bawa duit xemoticonx
@@ -4682,11 +4682,11 @@ xmentionx pak Emil sudah di Krian silakan mampir ke Tropodo biar tahu indahnya d
 Diseblak kerupuk itu enak sekali pak
 Lanjut bagian dua pak
 Tapi memang beda kerupuk dari merek dua onta ini memang enak sekali rasanya daripada merek lainnya sudah coba beberapa varian dari kerupuk dua onta ini xemoticonx xemoticonx xemoticonx
-Mas wakil gubernur, saya mau jual tanah area Bangkalan siapa tahu minat hehe buat biaya operasi pak xemoticonx
+Mas wakil gubernur, saya mau jual tanah area Bangkalan siapa tahu minat hehe untuk biaya operasi pak xemoticonx
 Saya pedagang kerupuk mentah di pasar blitar bapak xmentionx xemoticonx xemoticonx kapan anda ke kota blitar pak? xemoticonx
 Selanjutnya Jakarta ya pak
-Baru kali ini saya lihat pak Emil asmr kerupuk pakai senyum masyaallah
-Pak xmentionx dan bu xmentionx silakan kalau pas ke Kediri mampir ke tempat produksi kerupuk uyel kami
+Baru kali ini saya melihat pak Emil asmr kerupuk pakai senyum masyaallah
+Pak xmentionx dan bu xmentionx silakan kalau ketika ke Kediri mampir ke tempat produksi kerupuk uyel kami
 Pak Emil, tolong dong ditinjau jalan-jalan ke daerah Trenggalek ke desa-desanya sebenarnya hasil petani di pegunungan banyak, karena akses jalan yang sulit jadi harga panen merosot
 Waktu menjabat kemarin ke mana pak kok tidak kelihatan turun ke masyarakat bawah xemoticonx
 Wah jadi nih label merek Arumi xemoticonx xemoticonx
@@ -4703,7 +4703,7 @@ Yang begini cocok jadi calon presiden akan datang, amin
 Tetap keluarga besar saya mendukung mas Emil lanjut nomor dua pasti terbaik
 Calon presiden RI pak xmentionx saya selalu berdoa untuk anda
 Kerupuk kebutuhan pokok kalau tidak ada kerupuk hambar rasanya xemoticonx xemoticonx
-Usul xmentionx coba di Trenggalek dibuka usaha pabrik kerupuk biar kotanya tidak sepi ya biar buat tambahan pencaharian sehari xemoticonx biar pasar pon Trenggalek ramai kayak dulu, Trenggalek kan banyak pantai banyak ikan udang yang bisa diolah menjadi kerupuk, lagian orang Trenggalek paling suka makan kerupuk termasuk saya xemoticonx xemoticonx
+Usul xmentionx coba di Trenggalek dibuka usaha pabrik kerupuk biar kotanya tidak sepi ya biar untuk tambahan pencaharian sehari xemoticonx biar pasar pon Trenggalek ramai kayak dulu, Trenggalek kan banyak pantai banyak ikan udang yang bisa diolah menjadi kerupuk, lagian orang Trenggalek paling suka makan kerupuk termasuk saya xemoticonx xemoticonx
 Kerupuk favorit pak xemoticonx xemoticonx
 Mantap pak Emil dardak itu kerupuknya
 Kami dari gresik ikut kalau bisa kerja sama semoga berkah amin
@@ -4725,9 +4725,9 @@ Saya selalu dukung bapak Emil
 Suamiku ini nikmat sekali jalani hidup, semua oke saja
 Di jambangan Sidoarjo juga ada kerupuk aneka rasa pabriknya ada tiga
 Pak ini alamatnya di mana sih pak aku harus ke sini tapi menyasar terus padahal ya dekat rumah xemoticonx
-Suka bu Arumi yang penuh zikir pas suami tampil xemoticonx
+Suka bu Arumi yang penuh zikir waktu suami tampil xemoticonx
 Masyaallah semangatnya luar biasa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Senang sekali lihat senyum ibu Khofifah, berasa adem lihatnya xemoticonx
+Senang sekali melihat senyum ibu Khofifah, berasa adem lihatnya xemoticonx
 Salah fokus sama setrikanya, ternyata bukan setrika yang mewah walaupun pejabat itu menjadikan saya tambah kagum sama bu Arumi xemoticonx
 Bu Arumi, setrikaan kita sama xemoticonx xemoticonx
 Serius tanya sarung bapak Emil beli di mana ya bu? bagus xemoticonx
@@ -4757,7 +4757,7 @@ Tidak apa-apa bu Arumi, menyetrika baju-baju bahan itu memang agak sulit dan har
 xemoticonx ah tidak xemoticonx xemoticonx
 Tambah cantik ibu kalau muka cemberut begitu ya, gemas xemoticonx xemoticonx
 Gagal fokus sama jari xemoticonx masnya kayak jarinya bu Siska xemoticonx
-Senang aku itu kalau lihat mbak Arumi, tidak sombong dan seperti rakyat biasa walaupun istri pejabat semoga pak Emil bisa menyusul kayak pak Jokowi
+Senang aku itu kalau melihat mbak Arumi, tidak sombong dan seperti rakyat biasa walaupun istri pejabat semoga pak Emil bisa menyusul kayak pak Jokowi
 Cantik sekali sih bu xemoticonx
 Masyaallah cantiknya xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah menyala sekali bu xmentionx
@@ -4770,7 +4770,7 @@ Cantik sekali ibu xemoticonx xemoticonx xemoticonx
 Setrikaannya kita sama bu Arumi xemoticonx xemoticonx
 Salut sama bu Arumi yang serba bisa, dan tidak mengeluh menyetrika baju itu xemoticonx bukan keahlianku, tidak hobi xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx cantik sekali sih
-Lancar dan sukses buat anda semoga hajat dimudahkan Allah amin
+Lancar dan sukses untuk anda semoga hajat dimudahkan Allah amin
 Masyaallah Arumi, cantik dan rendah hati
 Berharap mas Emil yang dipanggil ke kursi kementerian tapi apa daya tidak dipanggil, padahal pintar sekali lulusan luar negeri baik, santun
 Ditekan bu bukan digosok xemoticonx
@@ -4789,7 +4789,7 @@ Pak Emil pakai baju kok sempit sekali
 Bismillah menang xemoticonx xemoticonx xemoticonx
 Setrikaan kita sama ternyata Mbak xemoticonx
 Saya dukung Bapak Emil xemoticonx xemoticonx
-xemoticonx xemoticonx sosok ibu pejabat yang selalu rendah hati, rendah hati, sederhana, sukses selalu buat keluarganya, semoga semua yang menjadi harapan tercapai, amin xemoticonx amin xemoticonx amin
+xemoticonx xemoticonx sosok ibu pejabat yang selalu rendah hati, rendah hati, sederhana, sukses selalu untuk keluarganya, semoga semua yang menjadi harapan tercapai, amin xemoticonx amin xemoticonx amin
 Masyaallah idola xemoticonx xemoticonx xemoticonx
 Masyaallah cantiknya Mbak Arumi xemoticonx
 Aku sih ya xemoticonx xemoticonx xemoticonx xmentionx xemoticonx xemoticonx
@@ -4805,12 +4805,12 @@ Peran istrinya dijalankan dengan sempurna. Barakallah Ibu xmentionx xemoticonx x
 Ayo presiden selanjutnya ayo setuju sekali xemoticonx
 Cantiknya kebangetan xemoticonx
 Saya juga memikirkan merek setrikanya ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Kok sekarang jadi suka sekali ya lihat ibu muda ini, ingat waktu masih main film dulu
+Kok sekarang jadi suka sekali ya melihat ibu muda ini, ingat waktu masih main film dulu
 Setrikanya samaan
 Keluarga yang sempurna dan bahagia, cantik, ramah sekali bahasa Jawanya, halus sekali xemoticonx xemoticonx
-Salah fokus pas Arumi bilang, xemoticonx oh, tidak xemoticonx xemoticonx
-Bu Arumi cantiknya kebangetan, ingat dulu pernah ketemu di Metropolitan Mall Bekasi, cantik sekali, waktu itu masih gadis xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Panutan ibu ini xemoticonx xemoticonx sayang yang banyak, sukses buat Ibu Khofifah dan Pak Emil, amin
+Salah fokus waktu Arumi bilang, xemoticonx oh, tidak xemoticonx xemoticonx
+Bu Arumi cantiknya kebangetan, ingat dulu pernah bertemu di Metropolitan Mall Bekasi, cantik sekali, waktu itu masih gadis xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Panutan ibu ini xemoticonx xemoticonx sayang yang banyak, sukses untuk Ibu Khofifah dan Pak Emil, amin
 Tetap semangat ya Mas Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Aku mendukung sekali Mas xmentionx di tahun-tahun esok jadi presiden bersanding dengan Mas xmentionx pasti keren xemoticonx xemoticonx xemoticonx
 Ibu negara RI selanjutnya xemoticonx
@@ -4826,7 +4826,7 @@ Sudah ke Blitar ke Mbak Azizah Segar, silakan rumah lolipop juga Blitar lo
 Doa istri selalu dikabulkan
 Saya pun juga tidak pandai menggosok xemoticonx
 Cantik sekali ya
-Assalamualaikum, apa kabar Bu Umi, masih ingat sama Hendra mantan kerja sama Mbak waktu sebelum berkeluarga. Sehat xemoticonx buat keluarga di sana selalu dalam lindungan Allah SWT, amin
+Assalamualaikum, apa kabar Bu Umi, masih ingat sama Hendra mantan kerja sama Mbak waktu sebelum berkeluarga. Sehat xemoticonx untuk keluarga di sana selalu dalam lindungan Allah SWT, amin
 Mbak xmentionx sudah pintar bahasa Jawa ya xemoticonx meski kata sederhana tapi sudah fasih
 Ya Allah Mbak, kok cantik sih Mbak, masyaallah
 Bu Arumi hebat ya mengurus baju Pak Suaminya, setrika sama jahit juga bisa xemoticonx
@@ -4844,7 +4844,7 @@ Ibu Arumi makin cantiknya xemoticonx
 Setidaknya tidak seperti artis sebelah yang bilang setrika itu menyenangkan kayak tenang begitu xemoticonx xemoticonx xemoticonx
 Beliau konsultannya kampanye presiden. Ada yang debat kan contekannya dari beliau xemoticonx xemoticonx pintar, kerjanya bagus ada hasilnya. Semoga bisa naik dan lanjut terus
 Ya Allah Bu akhirnya ada yang samaan dari kita meskipun hanya setrika xemoticonx xemoticonx xemoticonx
-Bangga sekali pas bilang xemoticonx tidak sama Bu Khofifah xemoticonx xemoticonx xemoticonx
+Bangga sekali waktu bilang xemoticonx tidak sama Bu Khofifah xemoticonx xemoticonx xemoticonx
 AHY - Anisa Pohan sama Emil - Arumi xemoticonx
 Bahannya jas begitu tidak bisa digosok pakai gosokan biasa, menempel nanti malahan
 Aku dan Arumi punya kesamaan. Yaitu setrikanya xemoticonx
@@ -4873,7 +4873,7 @@ Bismillah Bapak
 Bismillah 2024 - 2029 xemoticonx xemoticonx xemoticonx
 Masyaallah, sebagai alumni, saya bangga dengan hadirnya Bapak di acara wisuda Universitas Abdurachman Saleh Situbondo xemoticonx UNARS xemoticonx tanggal 19 kemarin, terima kasih Bapak xmentionx semoga dengan hadirnya Bapak, bisa menjadi acuan semangat untuk kami, khususnya untuk mahasiswa dan alumni UNARS xemoticonx xemoticonx
 Arumi tuh sudah cantik, ceria, selalu ramah sama semuanya
-Ya Allah aku kok jadi senang sekali lihat kalian berdua xemoticonx
+Ya Allah aku kok jadi senang sekali melihat kalian berdua xemoticonx
 Aduh pasangan manis si paling cantik dan ganteng xemoticonx xemoticonx xemoticonx bahagia selalu Bu Arumi dan Mas Emil
 Arumi selalu cantik dan prima mendampingi Emil Dardak. Semoga lancar menuju Jawa Timur dua dan tetap amanah
 Mbak Arumi, jariknya cantik sekali. Beli di mana Mbak? Serius nanya, ingin saya xemoticonx xemoticonx xemoticonx xemoticonx
@@ -4904,8 +4904,8 @@ Emil Dardak paket komplet, bisa jadi presiden selanjutnya
 Alhamdulillah bisa masuk IG Ibu Arumi sekilas. Kemarin bisa swafoto dengan beliau berdua di acara resepsi Aiptu Andika, baik sekali berkenan foto bersama kami xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah keren sekali Pak wakil gubernur xemoticonx xemoticonx
 Noni Belanda
-Saya datang ke acara tersebut pas anda lagi menyanyi, mantap suaranya Bapak xmentionx
-Tidak tahu kenapa lihat Ibu sama Bapak kok aku jadi yang terbawa perasaan ya xemoticonx xemoticonx xemoticonx sehat selalu xemoticonx xemoticonx
+Saya datang ke acara tersebut waktu anda lagi menyanyi, mantap suaranya Bapak xmentionx
+Tidak tahu kenapa melihat Ibu sama Bapak kok aku jadi yang terbawa perasaan ya xemoticonx xemoticonx xemoticonx sehat selalu xemoticonx xemoticonx
 Semoga terwujud ya, menjadi Jawa Timur dua
 Yang paling benar adalah ini kalau jadi wakil presiden Indonesia
 Kiprah Pak Emil Dardak duh tidak main-main, presiden yang akan datang xemoticonx xemoticonx
@@ -4923,9 +4923,9 @@ Kenapa cantik sekali ya Arumi
 Pasangan favorit xemoticonx xemoticonx semoga sehat terus xemoticonx bahagia terus Mbak xmentionx xemoticonx Mas xmentionx
 Suka sekali sama pasangan ini
 Suka
-Bu Arumi, Pak Emil ada duplikatnya tidak? Apa punya adik cowok begitu biar buat aku wkwk
+Bu Arumi, Pak Emil ada duplikatnya tidak? Apa punya adik cowok begitu biar untuk aku wkwk
 Suka dengan pasangan yang satu ini, langgeng terus ya, amin
-Yang terbaik buat Jawa Timur
+Yang terbaik untuk Jawa Timur
 Pasangan serasi senang melihatnya semoga sakinah mawadah warahmah dan sukses selalu kariernya Pak Emil, amin xemoticonx xemoticonx
 Arumi cantik dan elegan, semoga bahagia selalu xemoticonx xemoticonx
 Suka sekali sama pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
@@ -4935,7 +4935,7 @@ Mas Emil ditunggu kembali untuk xemoticonx menjadi wakil gubernur Jawa Timur lag
 Sehat selalu dan sukses kedepannya xemoticonx xemoticonx
 Kebaya hitam tanpa payet xemoticonx heboh seperti sekarang saja sudah cantik sekali xemoticonx
 Sukses selalu untuk keluarga Arumi dan Emil xemoticonx xemoticonx xemoticonx xemoticonx
-Semoga ada kesempatan aku bisa ketemu Pak Emil Dardak dan Bu Arumi saat aku pulang Surabaya xemoticonx
+Semoga ada kesempatan aku bisa bertemu Pak Emil Dardak dan Bu Arumi saat aku pulang Surabaya xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx semoga sukses lanjutkan menjadi wakil gubernur Jawa Timur xemoticonx xemoticonx xemoticonx
 Tidak pernah bosan melihat pasangan ini. semoga sehat selalu Bapak Emil dan Ibu Arumi xemoticonx xemoticonx
 Arumi yang bukan putri-putrian saja kalau sungkem xemoticonx jabat tangan pakai dua tangan, yang satu berasa jadi orang nomor dua pakai tangan satu saja, astaga tidak sopan sekali xemoticonx
@@ -4949,7 +4949,7 @@ Benar sekali cocok pintar dan rendah hati
 Auranya itu lo, adem elegan sekali positif xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Yang pasti cerdas xmentionx
 Gemas sama pasangan ini xemoticonx
-Baru tahu selain pintar ternyata jago menyanyi juga ya. harusnya ini sosok wakil presiden yang paling tepat, cerdas, ganteng, dan rendah hati pula xemoticonx bahagia selalu buat Mas xmentionx dan Mbak xemoticonx xmentionx pasangan paling terbaik serasinya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Baru tahu selain pintar ternyata jago menyanyi juga ya. harusnya ini sosok wakil presiden yang paling tepat, cerdas, ganteng, dan rendah hati pula xemoticonx bahagia selalu untuk Mas xmentionx dan Mbak xemoticonx xmentionx pasangan paling terbaik serasinya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah langgeng ya Pak wakil gubernur dan Ibu sehat selalu dan dalam lindungan Allah SWT amin xemoticonx xemoticonx xemoticonx
 Cantik sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga Allah selalu melindungi keluarga bapak dan ibu sayang yang banyak xemoticonx
@@ -4962,12 +4962,12 @@ Seharusnya Pak Emil yang jadi calon gubernur hahahahah
 xmentionx mohon izin ibu, semoga ke depan Bapak xmentionx bisa membawa perubahan Jawa Timur lebih maju lagi xemoticonx
 Salah fokus sama posisi pengantin prianya xemoticonx
 Wakil presiden selanjutnya Pak xmentionx
-Lihat yang sudah menikah semoga Allah segerakan jodohku xemoticonx xemoticonx xemoticonx
+melihat yang sudah menikah semoga Allah segerakan jodohku xemoticonx xemoticonx xemoticonx
 Cantik dan ganteng. masyaallah
-Suka lihat kebersamaan kalian. Doa saya sehat dan diberkati selalu ya
-Pas dan cocok ini mah kalau berdampingan dengan A
+Suka melihat kebersamaan kalian. Doa saya sehat dan diberkati selalu ya
+Tepat dan cocok ini mah kalau berdampingan dengan A
 Pasangan terbaik. Kenapa nama Emil kok sangat karisma dan paket lengkap terus. Kang Emil xemoticonx Ridwan Kamil xemoticonx juga tidak kalah karismatik xemoticonx
-Tabarakallah, terpesona sekali lihat pasangan ini, sakinah mawadah warahma ya Kak xmentionx xemoticonx xemoticonx
+Tabarakallah, terpesona sekali melihat pasangan ini, sakinah mawadah warahma ya Kak xmentionx xemoticonx xemoticonx
 Ibu sama bapak kenapa keren sekali sih Bu? tidak bisa berkata-kata lah xemoticonx
 Cantik Kak Arumi, sopan elegan bajunya sehat selalu xemoticonx xemoticonx xemoticonx
 Sempurna selalu. saya berdoa Pak Emil dan Bu Arumi selalu dalam keberkahan bahagia sampai surga dan membawa manfaat yang luas baik di dunia dan akhirat amin
@@ -4977,7 +4977,7 @@ Cerah sekali xemoticonx xemoticonx
 Masyaallah pasangan romantis
 Ternyata punya bakat menyanyi juga Pak Emil xemoticonx
 Bahagia selalu Arumi dan keluarga xemoticonx xemoticonx
-Bagian akhir, aku makin cinta sama kamu. Aw aw xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bagian akhir, aku makin cinta sama kamu. aduh aduh xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga sakinah mawadah warahma
 Bu Arumi selalu anggun xemoticonx xemoticonx
 Benar sekali jadi wakil presiden cocok sekali xemoticonx xemoticonx xemoticonx xemoticonx
@@ -4997,13 +4997,13 @@ Cantiknya xemoticonx
 Mantap Pak Emil menyanyikan lagunya
 Paket lengkap Pak Emil ini. ganteng pintar sayang keluarga suaranya merdu bikin hati adem
 Ada aku di sana. terima kasih Bu xmentionx dan Bapak xmentionx sudah mau diajak foto xemoticonx terus secantik dan serendah hati itu kalian berdua xemoticonx
-Aku lo senang lihat kalian berdua. ikut bahagia xemoticonx xemoticonx xemoticonx
-Ya Tuhan aku iri lihat keluarga ini xemoticonx
+Aku lo senang melihat kalian berdua. ikut bahagia xemoticonx xemoticonx xemoticonx
+Ya Tuhan aku iri melihat keluarga ini xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx sehat selalu ya Pak, Bu xemoticonx xemoticonx
 Cantiknya Mbak Arumi xemoticonx
-Lihat Pak Emil teduh sekali seperti lagi teduh di bawah pohon beringin xemoticonx
-Diulang-ulang tetap masih ingin lihat lagi xemoticonx xemoticonx
-Senang deh lihat pasangan ini xemoticonx
+melihat Pak Emil teduh sekali seperti lagi teduh di bawah pohon beringin xemoticonx
+Diulang-ulang tetap masih ingin melihat lagi xemoticonx xemoticonx
+Senang deh melihat pasangan ini xemoticonx
 Keren xemoticonx xemoticonx xemoticonx
 Si gemas xmentionx mana nih kok tidak kelihatan? xemoticonx
 Ini Emil sangat beruntung punya istri yang sangat cantik
@@ -5027,7 +5027,7 @@ Arumi cantik sekali xemoticonx xemoticonx
 Kalau kelak Emil mau mencalonkan jadi presiden aku setuju xemoticonx xemoticonx xemoticonx xemoticonx
 Bagus juga suara Bapak xmentionx keren didampingi istri yang cantik kalian adalah pasangan terbaik
 Keren xemoticonx xemoticonx
-Senang sekali lihat pasangan ini sakinah mawadah warahma terus ya Mbak
+Senang sekali melihat pasangan ini sakinah mawadah warahma terus ya Mbak
 Pasangan hebat, harusnya seperti ini nih. sukses menjabat tanpa campur tangan orang tua. Ups xemoticonx
 Ya ampun Kak Arumi imut sekali, tidak kelihatan kalau anak tiga xemoticonx
 Berharap suatu saat beliau jadi presiden Indonesia xemoticonx
@@ -5042,13 +5042,13 @@ Aku melihatnya senyum-senyum sendiri xemoticonx
 Bu Arumi hebat dengan kesederhanaannya dengan tidak memakai merek-merek xemoticonx xemoticonx xemoticonx xemoticonx sukses selalu
 Kesan Vidi Aldiano xemoticonx
 Sakinah mawadah warahma xemoticonx xemoticonx
-Semoga Bapak terpilih kembali jadi wakil gubernur Jawa Timur, saya ingat pertama ketemu Ibu secara langsung ketika di Hong Kong mau mencalonkan Bapak menjadi Bupati Trenggalek ternyata Bapak Ibu orangnya ramah sekali sehat-sehat ya Bu Bapak salam dari Ponorogo xemoticonx
+Semoga Bapak terpilih kembali jadi wakil gubernur Jawa Timur, saya ingat pertama bertemu Ibu secara langsung ketika di Hong Kong mau mencalonkan Bapak menjadi Bupati Trenggalek ternyata Bapak Ibu orangnya ramah sekali sehat-sehat ya Bu Bapak salam dari Ponorogo xemoticonx
 Alhamdulillah, Pak Emil lebih berisi ya Bu xemoticonx xemoticonx xemoticonx xemoticonx
 Saya rasa Pak Emil pantas dan cocok jadi wakil presiden xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sederhana dalam balutan kecantikan wanita ciptaan Tuhan. Alami natural tidak dibuat-buat xemoticonx xemoticonx
 Calon presiden kita insyaallah
 Teruslah dalam kesederhanaan ya Mbak Arumi karena kepala pemerintahan adalah milik seluruh warga Indonesia selayaknya tetap membumi tidak perlu menjadi ikon gaya hidup di atas awan dengan berlian dan tas bermerek yang harganya selangit. Tidak perlu itu. Kekayaan tidak perlu ditonjolkan di depan masyarakat yang masih sulit mendapat makan layak tiga kali sehari seperti gayanya ratu baru Indonesia yang suaminya baru dilantik suka pamer
-Cantik amat Bu xemoticonx
+Cantik sekali Bu xemoticonx
 Idolaku xemoticonx
 Dan Arumi selalu segar, cantik, dan harmonis, semoga selalu langgeng sampai akhir hayat amin amin ya rabbal alamin
 Seharusnya Bapak Prabowo memilih Pak Emil juga di jajaran menterinya
@@ -5059,7 +5059,7 @@ Selalu cantik Ibu xemoticonx
 Masyaallah cantiknya Bu Arumi pakai kebaya hitam cantiknya luar biasa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sederhana bajunya tanpa perhiasan tapi karena yang pakai cantik jadi mewah dan elegan xemoticonx xemoticonx
 Favorit sekali, selalu cantik dan elegan xemoticonx xemoticonx xemoticonx xemoticonx
-Selalu suka lihat kalian berdua xemoticonx
+Selalu suka melihat kalian berdua xemoticonx
 Pasangan terbaik xemoticonx xemoticonx xemoticonx
 Cantiknya Ibu Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Cantik. Pak Emil semoga sukses
@@ -5099,21 +5099,21 @@ Mbak Arumi cantik pasangan yang serasi, romantis sekali, sehat selalu.
 Semoga sakinah mawadah warahma sampai maut memisahkan, idola masyarakat Jawa Timur khususnya warga Surabaya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lah saya satu desa sama Pak Arum Sabil malah tidak tahu kalau beliau mantu xemoticonx xemoticonx xemoticonx
 Mbak Arumi tertarik kain merahnya. corak apa ya
-Paling suka lihat pak Emil dan ibu Arumi, semoga sehat selalu bapak dan ibu, Allah mudahkan jalan kebaikannya, amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Paling suka melihat pak Emil dan ibu Arumi, semoga sehat selalu bapak dan ibu, Allah mudahkan jalan kebaikannya, amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Selalu menjadi matahari di antara ribuan bintang bersinar xemoticonx xemoticonx
-Kompak sekali tangannya pas lirik tidak mau yang lain xemoticonx xemoticonx xemoticonx
+Kompak sekali tangannya waktu lirik tidak mau yang lain xemoticonx xemoticonx xemoticonx
 Banyak sekali gelar pak Emil ternyata, sudah doktor juga xemoticonx
 Bu Arumi memang sederhana. Tidak harus pakaian baru, beberapa penampilan yang sama dalam beberapa kegiatan dan acara sepertinya jarang atau tidak ada kali ya seperti beliau xemoticonx
 Pak, lima tahun lagi calonkan jadi wakil presiden ya xemoticonx
 Kenapa bukan pak Emil yang jadi wakil presiden ya Allah
 Pasangan paling cinta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ibu mau tidak jika kami orang biasa mengundang ibu dan bapak ke perkawinan anak kami di bulan Desember
-senang sekali kalau lihat Arumi dan bapak Emil. semoga langgeng sampai maut memisahkan. Amin.
+senang sekali kalau melihat Arumi dan bapak Emil. semoga langgeng sampai maut memisahkan. Amin.
 Wah pak Emil ternyata bisa menyanyi xemoticonx
 salah fokus sama kakinya kak, putih sekali xemoticonx
 Selalu berhati-hati para pengemban tugas ketaatan semakin sakinah mawadah warahmah barakallah
 Cantik elegan xemoticonx xemoticonx
-Tidak bosan-bosan lihat Arumi sama pak Emil romantis terus adem begitu jadi ingin seperti itu tiap hari Arumi sudah cantik sopan sekali
+Tidak bosan-bosan melihat Arumi sama pak Emil romantis terus adem begitu jadi ingin seperti itu tiap hari Arumi sudah cantik sopan sekali
 cantik luar biasa
 Pasangan luar biasa xemoticonx
 Lagu Oncak ya pak Emil xemoticonx xemoticonx
@@ -5134,7 +5134,7 @@ Kualitasnya lumayan bagus. Ibunda saya dulu sering belanja di pasar ini
 Dia ramah sekali xemoticonx kemarin habis kirim buket masyaallah sukses terus ya pak Emil sekeluarga amin xemoticonx xemoticonx xemoticonx xemoticonx
 Assalamualaikum bapak, merakyat, peduli dan mantap sekali bapak xemoticonx
 Semoga Allah memudahkan hajat anda amin
-Paling suka lihat pasangan ini xemoticonx Bu Arumi sama pak Emil xemoticonx entah kenapa xemoticonx
+Paling suka melihat pasangan ini xemoticonx Bu Arumi sama pak Emil xemoticonx entah kenapa xemoticonx
 Pak Emil tidak ada jadwal ke Sidoarjokah
 Pak Emil tidak naik ke lantai dua ada suami saya pak kerja di sana lagi menguli xemoticonx pasar Genteng sekarang sepi pengunjung xemoticonx
 Pasar Pon Trenggalek kapan pak?
@@ -5152,7 +5152,7 @@ Adem ayem di kampung ya pak, selamat beristirahat, presiden kesayanganku xemotic
 Terima kasih, bapak Jokowi xemoticonx xemoticonx xhashtagx terbaik Indonesia xemoticonx xemoticonx
 Barakallah bapak Jokowi dan ibu Iriana, semoga Allah selalu menjaga bapak dan keluarga, berkah sehat dan tetap semangat, terima kasih atas dedikasinya untuk rakyat Indonesia, saya cinta anda xemoticonx xemoticonx
 Saya cinta anda bapak Jokowi bu Iriana, terima kasih xemoticonx
-Bapak presiden yang baik hati ramah kepada masyarakat, sehat selalu buat bapak presiden dan ibu jasa akan dikenang selama-lamanya xemoticonx xemoticonx
+Bapak presiden yang baik hati ramah kepada masyarakat, sehat selalu untuk bapak presiden dan ibu jasa akan dikenang selama-lamanya xemoticonx xemoticonx
 Terima kasih sebanyak-banyaknya ya pak Jokowi xemoticonx presiden terbaik yang pernah dimiliki negara Indonesia xemoticonx xemoticonx
 Terima kasih pak Jokowi atas jasa dan pengabdianmu, akan selalu dikenang
 Terima kasih pak Jokowi, jasa bapak pasti akan dikenang sepanjang masa xemoticonx xemoticonx xemoticonx xemoticonx
@@ -5167,7 +5167,7 @@ Assalamualaikum bapak dan ibu, semoga sehat terus dan selalu ada untuk rakyat da
 Terima kasih pak Jokowi, semoga sehat selalu
 Selamanya akan selalu ada di hati masyarakat Indonesia xemoticonx xemoticonx xemoticonx
 Keren pak Emil, sukses selalu xemoticonx xemoticonx xemoticonx
-Kok saya sedih ya lihat pak Jokowi sama ibu, dua kali saya setia pilih beliau, sehat xemoticonx bapak sama ibu presiden yang ke tujuh
+Kok saya sedih ya melihat pak Jokowi sama ibu, dua kali saya setia pilih beliau, sehat xemoticonx bapak sama ibu presiden yang ke tujuh
 Perilakunya pak Emil nomor satu xemoticonx
 Terima kasih pak Jokowi, dan selamat beristirahat semoga bapak dan ibu sehat selalu amin xemoticonx
 Terima kasih bapak Jokowi xemoticonx xemoticonx presiden terbaik Indonesia xemoticonx xemoticonx xemoticonx
@@ -5176,20 +5176,20 @@ Bapak Jokowi presiden terbaik sepanjang sejarah, melihat bapak dan ibu kembali k
 Mas Emil contoh pejabat yang menjaga sekali tata krama, dan juga pandai membimbing istri xemoticonx
 xhashtagx pak Jokowi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx selamat bekerja pak Prabowo xemoticonx pak Gibran xemoticonx xemoticonx xemoticonx xemoticonx
 Presiden terbaik saya sepanjang masa xemoticonx
-Lihat pak Jokowi kembali ke Solo rasanya xemoticonx
+melihat pak Jokowi kembali ke Solo rasanya xemoticonx
 Terima kasih xemoticonx xemoticonx pak Jokowi engkau telah membangun Indonesia menjadi maju
 Terima kasih bapak Jokowi dan ibu Iriana, sehat selalu
 Terima kasih pak Jokowi kami akan bercerita kepada anak cucu kami kelak tentang kebaikan bapak
 Terima kasih pak Jokowi beserta ibu, sehat selalu
-Waduh sudah ambil start duluan ini mas Emil ketemu bapak xemoticonx xemoticonx
+Waduh sudah ambil start duluan ini mas Emil bertemu bapak xemoticonx xemoticonx
 Pak Jokowi dan ibu sudah bisa tidur tanpa memikirkan agenda yang padat xemoticonx
-Eh pantas tadi pas lihat siaran langsung di Kompas TV, seperti melihat pak Emil Dardak ikut iringan-iringan pak Jokowi di Solo. Ternyata benar lagi ikut menyambut di Solo ternyata
+Eh pantas tadi waktu melihat siaran langsung di Kompas TV, seperti melihat pak Emil Dardak ikut iringan-iringan pak Jokowi di Solo. Ternyata benar lagi ikut menyambut di Solo ternyata
 Terbaik bapak xmentionx dan ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih pak Jokowi, sehat-sehat selalu xemoticonx xemoticonx
-Terima kasih pak Jokowi dan ibu sehat selalu, tadi ikut hadir di acara di Istana Negara sedih juga lihat bapak sudah selesai tugasnya, sekali lagi terima kasih pak xemoticonx
+Terima kasih pak Jokowi dan ibu sehat selalu, tadi ikut hadir di acara di Istana Negara sedih juga melihat bapak sudah selesai tugasnya, sekali lagi terima kasih pak xemoticonx
 xmentionx apakah kita berdua bawa perasaan xemoticonx
 Terima kasih pak Jokowi, presiden tersabar di dunia xemoticonx xemoticonx
-Berkali-kali saya lihat video ini xemoticonx xemoticonx xemoticonx
+Berkali-kali saya melihat video ini xemoticonx xemoticonx xemoticonx
 Masyaallah wakil gubernur saya pak Emil orangnya santun baik hati, sehat selalu ya bapak dan dalam lindungan Allah amin xemoticonx xemoticonx
 Bapak ibu kebanggaan Jawa Timur xemoticonx, santun sekali pak Emil dan bu Arumi
 Saya doakan semoga kelak jadi pemimpin nasional amin
@@ -5243,7 +5243,7 @@ Selamat menikmati purna tugas pak Jokowi sehat selalu bahagia selalu dan dalam l
 Terbaik
 Terbaik
 Sehat selalu ya pak Jokowi xemoticonx xemoticonx
-Ternyata pak Luhut di Solo, tadi saya lihat istri beliau di Halim
+Ternyata pak Luhut di Solo, tadi saya melihat istri beliau di Halim
 Kok mengandung bawang xemoticonx terima kasih pak Jokowi xemoticonx ibu xemoticonx xemoticonx selamat istirahat di kampung halaman xemoticonx xemoticonx
 Terima kasih pak Jokowi pengabdiannya untuk Indonesia 10 tahun, sehat selalu xemoticonx
 Tahun 2029 RI satu pak AHY RI dua pak Emil Dardak semoga saja ya Allah xemoticonx xemoticonx xemoticonx
@@ -5266,7 +5266,7 @@ Pak Emil dan bu Arumi xemoticonx xemoticonx
 Pasti kangen Bapak sama Ibu, sehat selalu ya xemoticonx xemoticonx
 Terima kasih Bapak presiden terbaikku pengabdianmu akan selalu di kenang
 Terima Kasih Bapak dan Ibu atas semuanya Amin
-Kok sedih ya lihat pak Jokowi pamitan xemoticonx
+Kok sedih ya melihat pak Jokowi pamitan xemoticonx
 Terima kasih Pak Jokowi Presiden Terbaik Indonesia sepanjang masa
 Sehat selalu pak xmentionx terima kasih atas semuanya pak sehat selalu beserta keluarga xemoticonx xemoticonx
 Terima kasih pak Jokowi xemoticonx xemoticonx xemoticonx
@@ -5275,7 +5275,7 @@ Pak Wiii xemoticonx xemoticonx terima kasih
 Terima kasih Bapak Jokowi dan Ibu, Terima kasih sudah menjaga bangsa ini selama 10 tahun. Sehat selalu
 Ada bapak Datok Tahir xemoticonx xemoticonx
 xemoticonx xemoticonx terima kasih
-xmentionx tadi lihat bapak presidenku di TV saya tiba-tiba menangis tersedu-sedu waktu lihat beliau naik ke pesawat, rasanya kok cepat sekali, Terima kasih pak xmentionx sudah mengabdi semoga bapak dan ibu sehat selalu panjang umur, perjuangan bapak akan selalu dikenang oleh masyarakat Indonesia xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+xmentionx tadi melihat bapak presidenku di TV saya tiba-tiba menangis tersedu-sedu waktu melihat beliau naik ke pesawat, rasanya kok cepat sekali, Terima kasih pak xmentionx sudah mengabdi semoga bapak dan ibu sehat selalu panjang umur, perjuangan bapak akan selalu dikenang oleh masyarakat Indonesia xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih pak Jokowi, telah membangun Indonesia lebih maju, sehat selalu bapak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah Terima kasih Bapak Jokowi xmentionx presiden terbaik setelah Soekarno sepanjang sejarah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah banyak yang sayang sama pakde dan ibu negara Iriana xemoticonx xemoticonx xemoticonx xemoticonx
@@ -5289,7 +5289,7 @@ Kang Emil santunnya Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx
 Selamat beristirahat dari tugas pak, Semoga sehat selalu, terima kasih sudah bikin kampung halaman saya Tasikmalaya punya waduk Leuwikeris yang beberapa minggu lalu baru diresmikan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ada perasaan sedih melihat pak Jokowi pulang ke kampung halaman diiringi hujan xemoticonx terima kasih pak Jokowi atas pengabdiannya kepada negara selama 10 tahun, semoga bapak sehat selalu xemoticonx xemoticonx
 Terima kasih banyak pak Jokowi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Pak Emil itu orangnya kok santun sekali sih, kapan-kapan kalau ketemu boleh foto bareng ya pak
+Pak Emil itu orangnya kok santun sekali sih, kapan-kapan kalau bertemu boleh foto bareng ya pak
 Sumpah menangis saya, dulu waktu pertama mencalonkan diri, mertua saya malam-malam telepon karena besoknya mau mencoblos, terus dia bilang put jangan lupa pilih pak Jokowi jangan yang lain bapak dukung dia. Kini sudah 10 tahun saja ya pak, sehat terus la pak, amin salam sayang saya pak melepas dirimu
 Sehat-sehat selalu ya orang-orang baik, Tuhan memberkati
 Calon pemimpin masa depan Indonesia, sehat rukun selalu ya mas Emil mbak Arumi, pasangan idola ibu sekali ini xemoticonx xemoticonx xemoticonx xemoticonx
@@ -5297,7 +5297,7 @@ Kita tunggu cerita-cerita bagus dari beliau selama mengabdi demi bangsa yang kit
 Masyaallah
 Selamat menikmati masa pensiun buatan bapak presiden Jokowi, semakin tua semakin bahagia xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx semoga bapak dan ibu senantiasa diberi kesehatan, terima kasih tak terhingga atas segala daya upaya membuat negara ini menjadi lebih baik selama 10 tahun masa kerja
-Pak xmentionx ganteng santun xemoticonx tadi ketemu dan foto di depan kediaman bapak xmentionx
+Pak xmentionx ganteng santun xemoticonx tadi bertemu dan foto di depan kediaman bapak xmentionx
 Terima kasih bapak Jokowi Tuhan senantiasa memberkati bapak sekeluarga selalu bapak akan menjadi presiden terbaik dan kesayangan kami masyarakat NTT kami cinta anda bapak Jokowi xemoticonx xemoticonx
 Presiden Indonesia terbaik bapak Jokowi tetap di hati rakyat kecil semoga Allah swt selalu melindungi anda ya Pak Sehat selalu amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih bapak Joko Widodo xemoticonx ibu sudah membangun Indonesia, tetap sehat ya xemoticonx xemoticonx
@@ -5310,7 +5310,7 @@ Kenapa ya saya kok meneteskan air mata tapi bangga atas kepemimpinannya yang dua
 Terharu sekali xemoticonx xemoticonx xemoticonx
 Pak Emil xemoticonx
 Alhamdulillah semoga bapak dan keluarga selalu diberikan kesehatan, keberkahan rezeki, kebahagiaan, dan selamat menikmati masa purna tugas dengan damai. Terima kasih banyak untuk pengabdian bapak selalu bertahun-tahun ini. Presiden terbaik saya xemoticonx xemoticonx xemoticonx xemoticonx
-Sukses selalu buat Pak Emil dan keluarga
+Sukses selalu untuk Pak Emil dan keluarga
 Salut sama pak Jokowi presiden terbaik xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga sehat selalu Bapak beserta ibu Jokowi xhashtagx xemoticonx xemoticonx xhashtagx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih Bapak xmentionx dan Ibu Iriana, sehat selalu selamat duduk kembali di Solo xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -5323,7 +5323,7 @@ Sikap pak Emil masyaallah xemoticonx xemoticonx
 Opung xemoticonx xemoticonx xemoticonx
 Terima kasih bapak Jokowi xemoticonx
 Teduh sekali pembawaan pak Jokowi. Untuk Pak Emil semoga terpilih kembali membawa Jawa Timur ke arah lebih baik, dan baik lagi.
-Kenapa saya menangis lihat video ini ya pak xmentionx, sehat selalu ya Bapak xmentionx dan Ibu Iriana, berbahagia selalu Presiden kebanggaanku xemoticonx xemoticonx
+Kenapa saya menangis melihat video ini ya pak xmentionx, sehat selalu ya Bapak xmentionx dan Ibu Iriana, berbahagia selalu Presiden kebanggaanku xemoticonx xemoticonx
 10 tahun berlalu xemoticonx xemoticonx xemoticonx
 Selamat beristirahat Presidenku, selamat menikmati pensiun.
 Wah mbak Arumi pak Emil ke Solo ya.
@@ -5359,7 +5359,7 @@ Kak Arumi selalu menjadi idola sejak duduk di bangku sekolah cantiknya natural s
 Mas Emil masyaallah adabnya luar biasa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ada Airin?
 Sedih banget melepaskan presiden kali ini xemoticonx terima kasih bapak Jokowi selama 10 tahun kepemimpinanmu untuk memajukan bangsa Indonesia semoga bapak beserta keluarga sehat selalu xemoticonx xemoticonx xemoticonx
-Paling suka lihat gaya berpakaiannya mbak, tetap jadi panutan idolaku
+Paling suka melihat gaya berpakaiannya mbak, tetap jadi panutan idolaku
 Sehat selalu pak Jokowi.
 Saya warga Jawa Timur, Lanjutkan xemoticonx
 Semoga pak Emil Dardak terpilih kembali sebagai wakil gubernur Jawa Timur
@@ -5395,7 +5395,7 @@ Sedihnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kenapa bersedih begini ya xemoticonx xemoticonx
 Bapak ibu Jokowi semoga sehat selalu terima kasih bapak telah memimpin kami rakyat Indonesia semoga bapak sukses selalu amin
 Pak Emil keren, masih muda pintar dengan sikap bagus
-Senang bisa lihat pak Jokowi walaupun melalui media sosial, terima kasih bu Emil sudah ditayangkan xemoticonx xemoticonx
+Senang bisa melihat pak Jokowi walaupun melalui media sosial, terima kasih bu Emil sudah ditayangkan xemoticonx xemoticonx
 Ya Allah rasanya sesak banget semoga Allah SWT selalu memberikan kesehatan kepada Pak Jokowi dan Ibu Iriana amin xemoticonx
 Ke depannya Bapak Emil bisa bersanding dengan Agus Harimurti memjadi presiden xemoticonx xemoticonx
 Terima kasih Pak Jokowi, selesai sudah mengemban tugas negara, semoga selalu sehat.
@@ -5412,19 +5412,19 @@ Terima kasih atas 10 tahun pengabdiannya xemoticonx xemoticonx
 Terima kasih Bapak Presiden xmentionx semoga Bapak sekeluarga senantiasa sehat walafiat dan selalu dalam lindungan Allah Swt amin ya rabbal alamin xemoticonx xemoticonx xemoticonx
 Selamat menikmati hari tua bersama Ibu Iriana serta cucu-cucu tercinta semoga Bapak dan Ibu selalu diberi kesehatan, terima kasih atas pengabdiannya untuk ibu pertiwi.
 Terima kasih Bapak Jokowi dan Ibu Iriana atas pengabdiannya selama ini kepada bangsa dan negara seluruh rakyat Indonesia xemoticonx xemoticonx xemoticonx
-Terima kasih Bapak tercinta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx presiden terbaikku sehat selalu buat Pak Jokowi dan Bu Iriani.
-Kenapa setiap lihat Bapak Jokowi aku selalu menangis xemoticonx xemoticonx. Semoga selalu sehat Bapak dan Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Terima kasih Bapak tercinta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx presiden terbaikku sehat selalu untuk Pak Jokowi dan Bu Iriani.
+Kenapa setiap melihat Bapak Jokowi aku selalu menangis xemoticonx xemoticonx. Semoga selalu sehat Bapak dan Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bapak Jokowi purna tugas pun langit menurunkan hujan untuk menyambut kepulangan Bapak Jokowi ke kampung halaman xemoticonx xemoticonx
 Sehat selalu Bapak Jokowi bersama seluruh keluarga xemoticonx xemoticonx xemoticonx
 Mas Emil sehat selalu beserta keluarga, pemimpin masa depan Indonesia xemoticonx xemoticonx xemoticonx
 Sehat-sehat ya Pak xmentionx xemoticonx
 Ya Tuhan sisakan satu laki-laki seperti Pak Emil di bumi ini amin xemoticonx
 Jadi ingin menangis xemoticonx xemoticonx
-Senang sekali lihat auranya Ibu Iriana xemoticonx xemoticonx
+Senang sekali melihat auranya Ibu Iriana xemoticonx xemoticonx
 Presiden terbaik xemoticonx xemoticonx xemoticonx xemoticonx saya cinta Pak xmentionx dari Kota Kupang NTT xemoticonx
 Kenapa aku menangis xemoticonx terima kasih untuk 10 tahun yang luar biasa Presiden xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Doaku, semoga Bapak Emil Dardak dan Ibu Arumi, semakin dipakai Tuhan untuk bangsa dan negara Indonesia, sehat selalu dan semakin sukses. Seperti Ibu Iriana yang luar biasa mendampingi Bapak Jokowi, Ibu Arumi pun pasti bisa seperti itu, dan suaminya semakin cemerlang tugas dan panggilannya dalam mengabdi dengan baik, benar, dan jujur xemoticonx xemoticonx
-Kenapa sedih ya lihat Pak Jokowi xemoticonx selamat beristirahat Pak, sekarang Bapak tidak pusing lagi memikirkan rakyat, bisa tiap hari main sama cucu-cucunya.
+Kenapa sedih ya melihat Pak Jokowi xemoticonx selamat beristirahat Pak, sekarang Bapak tidak pusing lagi memikirkan rakyat, bisa tiap hari main sama cucu-cucunya.
 Mas Emil mantap, ikut berdoa semoga menjadi bagian pemimpin Indonesia, tidak usah tergesa-gesa Mas, habis Jawa Timur II satu periode lagi, terus Jawa Timur I dua periode, habis itu sudah matang untuk berkiprah nasional.
 Pak xmentionx semoga bisa menjadi the next generation. Jadi pemimpin bangsa ini, amin xemoticonx Saya DUKUNG!
 Terima kasih Pak xmentionx dan Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -5473,7 +5473,7 @@ Merinding.
 Terharu, Bun.
 Damai tenang di kampung halaman Pakde, terima kasih sudah memimpin 10 tahun saya yang kerja lapangan sudah merasakan kemudahan dalam setiap perjalanan sekali lagi terima kasih Pakde Tuhan memberkati xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx nah iya kan.
-Jujur baru kali ini lihat para pejabat bahasa tubuhnya bersalaman xemoticonx xemoticonx
+Jujur baru kali ini melihat para pejabat bahasa tubuhnya bersalaman xemoticonx xemoticonx
 xemoticonx masyaallah selalu sehat Bapak negarawan Pak Jokowi dan Ibu Iriana.
 Semoga menular xemoticonx xemoticonx xemoticonx
 Selamat purna Bapak dan Ibu.
@@ -5547,7 +5547,7 @@ Selamat bertugas Pak semoga amanah
 Semoga selalu mendapat rahmat dari Allah SWT di manapun tinggal
 Sehat selalu Abah xemoticonx xemoticonx
 Kalau Pak Maaruf pulang ke mana ya?
-Sehat selalu buat Pak Maruf Amin xemoticonx xemoticonx
+Sehat selalu untuk Pak Maruf Amin xemoticonx xemoticonx
 Sehat selalu pak
 Sehat sehat selalu amin
 Selamat beristirahat presidenku xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -5577,7 +5577,7 @@ Terima kasih bapak presiden xmentionx Kamu mengakhiri dengan bagus
 Dari semua video perjalanan pak Jokowi, baru di postingan pak Emil yang membuat saya xemoticonx
 Alhamdulillah kang menipu rakyat sudah keluar dari Istana
 Sedih xemoticonx
-Adem sekali xemoticonx xemoticonx terima kasih buat semuanya
+Adem sekali xemoticonx xemoticonx terima kasih untuk semuanya
 Yah, kok sudah selesai saja pak, padahal saya belum dapat sepeda. Terima kasih bapak Jokowi semoga selalu sehat di masa pensiunnya
 Sehat selalu bapak xmentionx xemoticonx
 Terharu xemoticonx xemoticonx
@@ -5593,7 +5593,7 @@ Terima kasih pakde xemoticonx xemoticonx
 Semoga sehat selalu pak xemoticonx xemoticonx xemoticonx xemoticonx
 Presiden terbaik Indonesia
 Terima kasih pak Jokowi. Anda tetap salah satu putra dan presiden terbaik di negeri ini. Terima kasih dan tetap penuh keberkahan sehat-sehat selalu ya untuk pak Jokowi dan keluarga xemoticonx xemoticonx
-Ah pagi-pagi sudah bikin menangis xemoticonx xemoticonx lihat video ini. Sangat menginspirasi pakde ini. I didnt my way
+Ah pagi-pagi sudah bikin menangis xemoticonx xemoticonx melihat video ini. Sangat menginspirasi pakde ini. I didnt my way
 Keren videonya pak xemoticonx xemoticonx xemoticonx
 Terima kasih bapak xmentionx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx merinding membaca hal-hal baik dan bermanfaat yang nyata-nyata dirasakan oleh rakyat yang disuarakan dengan jujur apa adanya oleh petinggi-petinggi wakil rakyat yang berhatinurani bersih xemoticonx xemoticonx xemoticonx Tuhan itu nyata. Tuhan itu cinta. Orang-orang baik masih dan selalu ada xemoticonx xemoticonx xemoticonx banyak terima kasih untuk mereka xemoticonx xemoticonx xemoticonx semua orang-orang baik xemoticonx xemoticonx Tuhan memberkati hati baik kita xemoticonx xemoticonx
@@ -5601,7 +5601,7 @@ xhashtagx atas 10 tahun kepemimpinan membangun hingga pelosok Indonesia, tradisi
 Terima kasih pak Jokowi, 10 tahun yang wow. Videonya menyentuh jati xemoticonx
 Terima kasih Pak xmentionx untuk semua kerja keras dan pengabdiannya
 Sudah ribuan sepeda beliau bagikan untuk rakyatnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx xemoticonx nangis lihat video perjalanan pak Jokowi selamat 10 tahun xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx nangis melihat video perjalanan pak Jokowi selamat 10 tahun xemoticonx xemoticonx xemoticonx
 Lagu dan video bikin nangis xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx Presiden terbaikku
 Terima kasih bapak jokowi. Pak jokowi yang terbaik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -5637,28 +5637,28 @@ Politisi santri di hari santri
 Sehat sehat selalu Pak xmentionx xemoticonx xemoticonx
 Betul. Dia calon Presidenku setelah Pak Prabowo
 Lanjut periode kedua xmentionx
-Malah kebalik mamanya yang manja langsung lari minta dipangku. Anaknya diam saja cuek xemoticonx. Suka sekali lihat pasangan ini xemoticonx xemoticonx
+Malah kebalik mamanya yang manja langsung lari minta dipangku. Anaknya diam saja cuek xemoticonx. Suka sekali melihat pasangan ini xemoticonx xemoticonx
 Pak Emil tuh masih muda tapi tenang mengemong stabil sekali pembawaannya, seimbang sama mbak Arumi yang ceria xemoticonx xemoticonx
 Bismillah. Allahumma sholi ala sayyidina Muhammad semoga anak saya mendapatkan suami seperti pak Emil Dardak. Amin xemoticonx xemoticonx
-Cara bapak melihat ke istri tercinta itu lo penuh cinta. Senang kita melihatnya coba perhatikan video-video lainnya. Selalu seperti itu xemoticonx xemoticonx xemoticonx xemoticonx sayang selalu buat kalian berdua xemoticonx xemoticonx
-Mama peluk Papa. Anaknya malah gemas amat maunya dipeluk Papa ya xemoticonx
+Cara bapak melihat ke istri tercinta itu lo penuh cinta. Senang kita melihatnya coba perhatikan video-video lainnya. Selalu seperti itu xemoticonx xemoticonx xemoticonx xemoticonx sayang selalu untuk kalian berdua xemoticonx xemoticonx
+Mama peluk Papa. Anaknya malah gemas sekali maunya dipeluk Papa ya xemoticonx
 Wao romantis terus xemoticonx
 Padahal ini dijodohkan kan ya, bukan yang pakai pacaran-pacaran bagaimana begitu. Mungkin karena itu jadi kebudak cintaannya tidak selesai-selesai karena tidak habis saat pacaran hahaha xemoticonx xemoticonx xemoticonx xemoticonx
 Allahumma Bariik xemoticonx senang sama pasangan ini xemoticonx xemoticonx xemoticonx sakinah mawadah warrahmah selalu kakak
-Senangnya lihat pasangan ini xemoticonx xemoticonx xemoticonx
+Senangnya melihat pasangan ini xemoticonx xemoticonx xemoticonx
 Tatapannya Pak Emil adalah tatapan maut, menawan terlihat cinta dan sayangnya seorang suami terhadap istri xemoticonx
 Suka keluarga kalian. Ya Tuhan lindungilah keluarga ini. Selalu bahagia sehat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mas kameramen, bagaimana perasaan anda melihat merekam kemesraan macam begini tiap hari?
-Ya Allah pak. Tiap hari lihat boneka Barbie hidup xemoticonx cantik sekali istrinya
+Ya Allah pak. Tiap hari melihat boneka Barbie hidup xemoticonx cantik sekali istrinya
 Salah satu yang aku suka dari pasangan ini adalah saling melengkapi. Mas Emilnya pembawaannya tenang, sedang untuk Arumi selalu ceria. Jadi klop. Sayang kamu xemoticonx xemoticonx xemoticonx
 Mas Emil suami idaman para istri. Tenang, penyayang keluarga dan kalem
 Tatapan bang Emil ke istri benar-benar buat iri xemoticonx
-Mas Emil mungkin sungkan sama tukang potografernya xemoticonx xemoticonx xemoticonx sambil melirik si tukang foto. Coba kalau berdua aja dan sudah kangen lama. Membayangkan lebih mesra dari gendongan dong. Anak perempuan kok kurang semangat begitu ya. Biasanya perempuan tuh dekat sekali sama ayahnya. Dan yang jelas menurunkan sifat ayahnya. Kalem, cool dan tidak banyak omong xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx beda sama maminya xemoticonx xemoticonx xemoticonx
+Mas Emil mungkin sungkan sama tukang potografernya xemoticonx xemoticonx xemoticonx sambil melirik si tukang foto. Coba kalau berdua saja dan sudah kangen lama. Membayangkan lebih mesra dari gendongan dong. Anak perempuan kok kurang semangat begitu ya. Biasanya perempuan tuh dekat sekali sama ayahnya. Dan yang jelas menurunkan sifat ayahnya. Kalem, cool dan tidak banyak omong xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx beda sama maminya xemoticonx xemoticonx xemoticonx
 Cinta dengan keluarga Beliau xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Cantik sekali anaknya Arumi xemoticonx
 Pak Emil seperti punya dua anak gadis wkwk sangat harmonis
-Pak Emil bisa tidak kalau lihat mbak Arumi tu biasa aja begitu lo xemoticonx
-Pak Emil itu tatapannya ke mbak Arumi selalu dalam, dari pertama kali aku lihat waktu melamar di bioskop dulu sampai sekarang, tatapan pak Emil tidak berubah sedikitpun, dalam dan hangat penuh cinta xmentionx xmentionx sampai surga kalian. Amin amin
+Pak Emil bisa tidak kalau melihat mbak Arumi itu biasa saja begitu lo xemoticonx
+Pak Emil itu tatapannya ke mbak Arumi selalu dalam, dari pertama kali aku melihat waktu melamar di bioskop dulu sampai sekarang, tatapan pak Emil tidak berubah sedikitpun, dalam dan hangat penuh cinta xmentionx xmentionx sampai surga kalian. Amin amin
 Semoga punya menantu seperti mas Emil, amin ya rabbal alamin
 Kalau ini sih definisi istri tapi jadi anak gadis paling besar xemoticonx xemoticonx Biasa suami jadi anak paling besar xemoticonx ini kebalikan
 Bagaimana Pak Emil tidak menatap penuh cinta, yang menyambut saja bidadari cantiknya Masyaallah. Mungkin lain tatapannya kalau yang menyambut Lek Damis xemoticonx xemoticonx
@@ -5669,22 +5669,22 @@ Tatapan selalu begitu, dalam hati pak Emil bini saya cantik sekali dah xemoticon
 Semoga selamanya menjadi keluarga yang sakinah mawadah warahmah dunia akhirat amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx
 Kompak sekali pasangan ini xemoticonx
 Aku senyum senyum sendiri padahal belum nikah xemoticonx
-Pak kalau menatap mbak Arumi, bisa tidak biasa saja xemoticonx, mbak Arumi yang ditatap seluruh cewek yang lihat videonya yang iri dan salah tingkah xemoticonx
-Belum sarapan lihat beginian berasa ingin makan suami xemoticonx xemoticonx menyala mas Emil xemoticonx
+Pak kalau menatap mbak Arumi, bisa tidak biasa saja xemoticonx, mbak Arumi yang ditatap seluruh cewek yang melihat videonya yang iri dan salah tingkah xemoticonx
+Belum sarapan melihat beginian berasa ingin makan suami xemoticonx xemoticonx menyala mas Emil xemoticonx
 Kak Arumi mirip sama keponakan saya
 Tatapan istri ke suami setiap tanggal 25 juga begitu xmentionx xmentionx xmentionx xmentionx
-Lihat bagian terakhir peluknya, lakinya seperti kasih cubitan kode ke tangannya si Arumi
+melihat bagian terakhir peluknya, lakinya seperti kasih cubitan kode ke tangannya si Arumi
 Pokoknya mencoblos suami anda mbak Arumi semoga selalu harmonis ya salam saja untuk mas Emil dari sidoarjo
 xmentionx Ini penggemarmu Mbak Rumi
 Ya Allah putrinya seperti noni belanda
 Sehat terus bapak ibu xemoticonx anak-anak xemoticonx xemoticonx
 Paling suka sama pasangan ini xemoticonx
 Bang Emil kayanya tidak pernah marah. Tenang sekali
-Sisain satu buat mantuku amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Sisain satu untuk mantuku amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sehat selalu mbak Arumi beserta keluarganya, amin
-Tidak pernah bosan lihat kak Arumi
+Tidak pernah bosan melihat kak Arumi
 Tatapan mas Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx senang sekali lihat keluarga Pak Emil xemoticonx Bu Arumi
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx senang sekali melihat keluarga Pak Emil xemoticonx Bu Arumi
 Keluarga kesayanganku xemoticonx
 Mimin cemburu xemoticonx xemoticonx xemoticonx
 Lumer
@@ -5710,15 +5710,15 @@ Ganteng dan Setia seperti Beliau itu Langka xemoticonx xemoticonx
 Ini drama korea apa bagaimana sih manis sekali xemoticonx
 Suami aku pulang wkwk senang sekali sih xemoticonx xemoticonx
 Tatapan pak Emil itu yang selalu menggetarkan hati kaum hawa xemoticonx xemoticonx xemoticonx
-Seperti lihat milk and mocha bear versi nyata tidak sih? yang satu tenang, yang satu lagi ceria hihi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Seperti melihat milk and mocha bear versi nyata tidak sih? yang satu tenang, yang satu lagi ceria hihi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bikin iri xemoticonx xemoticonx xemoticonx xemoticonx tatapan pak Emil. Penuh cinta dan cinta xxxxxxxx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Senyum-senyum sendiri kalau lihat postingan keluarga ini bahagia selalu keluarga ini xemoticonx xemoticonx xemoticonx
+Senyum-senyum sendiri kalau melihat postingan keluarga ini bahagia selalu keluarga ini xemoticonx xemoticonx xemoticonx
 Jadi seperti anak pertama ya bu xemoticonx xemoticonx xemoticonx haha xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sudah kuputar tujuh kali nih heheh suka sekali
 Sehat-sehat selalu bu Arumi dan keluarga
-Suka sekali lihat perlakuan pak Emil ini ke mbak Arumi xemoticonx
+Suka sekali melihat perlakuan pak Emil ini ke mbak Arumi xemoticonx
 Ih gemas
-Tidak bosan-bosan lihat keluarga pak Emil dan bu Arumi xemoticonx xemoticonx xemoticonx xemoticonx
+Tidak bosan-bosan melihat keluarga pak Emil dan bu Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Mbak, kalau suaminya nanti daftar calon presiden atau wakil presiden Insyaallah saya dukung xemoticonx xemoticonx xemoticonx xemoticonx
 Pak Emil sabar sekali dengar ocehan istri xemoticonx xemoticonx
 Keluarga harmonis. Tidak dibuat-buat. Natural sekali. Sesederhana itu. Panutan sekali xemoticonx xemoticonx
@@ -5726,15 +5726,15 @@ Kok bikin senyum-senyum ya xemoticonx
 Mbak. Pernahkah bertengkar?
 Amalan apa ya mbak Arum dapat suami seperti begitu. Keluarga yang sempurna lagi xemoticonx
 Kameramen bagaimana kabarnya? Aman?
-Masyaallah selalu indah lihat pasangan Pak Emil xemoticonx mbak Arumi. Bahagia sampai surga insyaallah xemoticonx xemoticonx xemoticonx
+Masyaallah selalu indah melihat pasangan Pak Emil xemoticonx mbak Arumi. Bahagia sampai surga insyaallah xemoticonx xemoticonx xemoticonx
 Tolong dong mbak Arumi. Jangan bikin saya mengiri xemoticonx xemoticonx xemoticonx
 Hahaha
-Semoga jadi contoh buat pasangan muda lainnya. Langgeng terus sampai akhir ya. Ikut bahagia melihatnya
+Semoga jadi contoh untuk pasangan muda lainnya. Langgeng terus sampai akhir ya. Ikut bahagia melihatnya
 Senang sekali melihat pasangan ini xemoticonx xemoticonx
-Pak Emil bisa tidak kalau lihati aku xhashtagx Mbak Arumi, biasa aja. Salah tingkah nih xemoticonx
-Rasa Anak gadis ketemu ayahnya pulang dinas xemoticonx
+Pak Emil bisa tidak kalau lihati aku xhashtagx Mbak Arumi, biasa saja. Salah tingkah nih xemoticonx
+Rasa Anak gadis bertemu ayahnya pulang dinas xemoticonx
 Ih gemas sekali lihatnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Masyaallah, senang dan bahagia. Lihat mbak Arumi dicintai, disayangi dan lainnya sama pak Emil xemoticonx xemoticonx
+Masyaallah, senang dan bahagia. melihat mbak Arumi dicintai, disayangi dan lainnya sama pak Emil xemoticonx xemoticonx
 Keren
 Terus bersama sampai maut memisahkan ya. Kalian the terbaik xemoticonx xemoticonx
 Sayangnya
@@ -5748,10 +5748,10 @@ Impian sekali xemoticonx
 Bismillah semoga suami saya bisa berubah jadi pak Emil xemoticonx xemoticonx xemoticonx
 Membuat romantis
 Salah fokus sama kemejanya Bu Arumi. Bagus
-Suka sekali lihat pasangan ini, sehat xemoticonx selalu ya bapak ibu, semangat
+Suka sekali melihat pasangan ini, sehat xemoticonx selalu ya bapak ibu, semangat
 Kebagian cengar-cengir saja xemoticonx
 Pak Emil orangnya tenang sekali, sederhana tetapi berkelas xemoticonx
-Sehat terus Pak Emil, senang lihat keluarga ini xemoticonx
+Sehat terus Pak Emil, senang melihat keluarga ini xemoticonx
 Mbak Arumi paling bersemangat daripada anaknya, jadi gemas xemoticonx
 Malah ibunya yang lebih bersemangat ketimbang anaknya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Benar-benar suami anti pelakor ini, sehat terus Pak Emil dan Bu Arum xemoticonx xemoticonx xemoticonx
@@ -5767,24 +5767,24 @@ Ya Allah Pak Emil beruntung sekali istrimu
 Sumpah adem sekali melihatnya xemoticonx xemoticonx xemoticonx xemoticonx
 Pak Emil memang beda dari yang lain, teduh kalem tatapan ke istri itu bikin adem, semoga anak menantuku seperti Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx
 Tidak tua-tua dilihatnya xemoticonx xemoticonx xemoticonx
-Tidak pernah bosan lihat kemesraan ini xemoticonx xemoticonx
+Tidak pernah bosan melihat kemesraan ini xemoticonx xemoticonx
 Tatapan Pak Emil seperti suami saya saat natap HP
 Tolong jangan ada yang ganggu keluarga ini xemoticonx xemoticonx xemoticonx
 Bahagia selalu Pak Emil dan istri xemoticonx
 Agak berlebihan
 Mau punya suami seperti ini, pulang kerja tersenyum, mau memeluk istri, sayang istri dan anak, bukan sayang anak saja, sayang istri kalau ada maunya saja xemoticonx xemoticonx xemoticonx xemoticonx
 Pandangan Mas Emil, menyejukkan xemoticonx xemoticonx xemoticonx xemoticonx
-Lihat anak gadis, sepertinya mulai malu-malu dicium peluk papanya xemoticonx
+melihat anak gadis, sepertinya mulai malu-malu dicium peluk papanya xemoticonx
 Pulang dinas dapat amplop nih
 Patut untuk contoh xemoticonx
 Arumi HPnya apa itu?
 Pasangan yang saling melengkapi dan menyempurnakan, Masyaallah xemoticonx xemoticonx
-Pak Emil ini, mengayomi sekali sama istri, senang lihatnya dan rasanya, bahagia sekali lihat mereka berdua xemoticonx
+Pak Emil ini, mengayomi sekali sama istri, senang lihatnya dan rasanya, bahagia sekali melihat mereka berdua xemoticonx
 Anaknya cantik, bule sekali xemoticonx xemoticonx
 Enak ya kalau sudah suami istri tinggal main peluk xemoticonx kasihan sekali yang masih jomlo sampai 2024 xemoticonx
-Ikut bahagia lihat keluarga ini Masyaallah xemoticonx xemoticonx
+Ikut bahagia melihat keluarga ini Masyaallah xemoticonx xemoticonx
 Anaknya cantik sekali secantik mamanya xemoticonx xemoticonx xemoticonx
-Bagian menyengir saja xemoticonx xemoticonx
+Bagian tersenyum saja xemoticonx xemoticonx
 Keluarga muda terhormat idolaku xemoticonx xemoticonx xemoticonx xemoticonx
 Iya bikin iri, cemburu aku
 Semoga aku punya menantu seperti Mas Emil
@@ -5795,12 +5795,12 @@ Manjanya melebihi sang anak xemoticonx
 HP yang dipakai Kak Arumi apa ya
 Cantik sekali putrinya
 Semoga suami anakku nanti seperti Pak Emil ya
-Senang lihat keluarga Pak Emil sama Bu Arumi semoga suamiku berubah seperti Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx
+Senang melihat keluarga Pak Emil sama Bu Arumi semoga suamiku berubah seperti Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx
 Anaknya yang perempuan persis ibunya xemoticonx xemoticonx
-Senang lihat mereka
-Saya senang sekali lihat Pak Emil Masyaallah
+Senang melihat mereka
+Saya senang sekali melihat Pak Emil Masyaallah
 Kameramennya kalau jomlo nangis darah nih
-Masyaallah, Aku tersenyum xemoticonx sendiri lihat beliau. Tak putar bolak-balik tetap tersenyum xemoticonx sendiri
+Masyaallah, Aku tersenyum xemoticonx sendiri melihat beliau. Tak putar bolak-balik tetap tersenyum xemoticonx sendiri
 Sehat xemoticonx selalu ya xemoticonx xemoticonx
 Anak sudah pada besar masih mesra sekali, Masyaallah
 Masyaallah, Senang lihatnya xemoticonx xemoticonx
@@ -5808,15 +5808,15 @@ Gemas sekali
 Suka sekali sama pasangan ini. Masyaallah xemoticonx
 Tatapan Pak Emil persis seperti tatapan suami saya ke telepon genggamnya saat ada WA dari grup teman memancingnya xemoticonx
 Pasangan suami istri yang saling menyayangi dan mengasihi. Punya anak-anak yang cantik seperti mamanya ganteng seperti papanya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Saya selalu senang lihat pasangan ini rasanya ikut bahagia, tatapan mata Pak Emil penuh cinta dan Bu Arumi bisa bermanja-manja
+Saya selalu senang melihat pasangan ini rasanya ikut bahagia, tatapan mata Pak Emil penuh cinta dan Bu Arumi bisa bermanja-manja
 Pasangan yang selalu bikin cinta xemoticonx xemoticonx
 Masyaallah, memang keluarga yang ter so sweet xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat-sehat sekeluarga sukses selalu amin ya rabbal alamin xemoticonx xemoticonx
 Kalau dulu ada Soeharto-Tien, Habibie-Ainun, SBY-Ani dan lain-lain. Selanjutnya Emil-Arumi xemoticonx xemoticonx
 Kapan ya bisa dicintai sepenuhnya begitu
 salah fokus sama HPnya
-Saya ulang-ulang terus lihat videonya kok gemas lihat Bu Arumi manja xemoticonx
+Saya ulang-ulang terus melihat videonya kok gemas melihat Bu Arumi manja xemoticonx
 Bagi para hadirin dipersilakan cengar-cengir xemoticonx xemoticonx xemoticonx sabar jomlo
-Benar-benar mirip sekali seperti aku kalau menyambut suami tatapan Pak Emil juga sama sekali seperti tatapan suamiku haha xemoticonx berasa ngaca kalau lihat mereka semoga tertular rezekinya kebahagiaannya Amin
+Benar-benar mirip sekali seperti aku kalau menyambut suami tatapan Pak Emil juga sama sekali seperti tatapan suamiku haha xemoticonx berasa mengaca kalau melihat mereka semoga tertular rezekinya kebahagiaannya Amin
 Mereka selalu pamer tapi pamer kehangatan berumah tangga dan berkeluarga jadi suka lihatnya xemoticonx xemoticonx
 Diet ya Mbak, sudah kelihatannya kok xemoticonx xemoticonx xemoticonx xemoticonx
 Pak Emil kalau butuh pelayanan transportasi boleh dong mampir ke Instagram nya xmentionx
@@ -5835,49 +5835,49 @@ Pembawaan suaminya tenang sekali, kalem
 Ganteng cantik kaya xemoticonx xemoticonx
 bismillah Pak Emil selanjutnya Wakil Presiden xemoticonx xemoticonx
 Ini adalah definisi nyata ibu anak seperti adik kakak
-Bikin nenek terpesona lihat yang ini, semoga langgeng xemoticonx xemoticonx
+Bikin nenek terpesona melihat yang ini, semoga langgeng xemoticonx xemoticonx
 Suka sekali cara Pak Emil memperlakukan Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx bermanja xemoticonx begitu dan dibalas dengan penuh cinta xemoticonx xemoticonx xemoticonx
 Ya Allah senang lihatnya adem
 Kabelnya menjurai, mohon dirapikan
 Ini suaminya terbuat dari apa sih kok ekspresi tenang terus adem begitu ya. xemoticonx
 Rumah tangga seperti surga itu yang seperti ini xemoticonx
-Istri cantik manis menggemaskan energik, pokoknya jos sekali
-Anaknya cantik amat xemoticonx
+Istri cantik manis menggemaskan energik, pokoknya mantap sekali
+Anaknya cantik sekali xemoticonx
 Selalu suka sekali sama postingannya Ibu Arumi sama Pak Emil xemoticonx
 Mantap orang kaya
 xemoticonx Masyaallah romantisnya
-Anaknya mukanya seperti orang luar. Cantik amat xemoticonx xemoticonx
+Anaknya mukanya seperti orang luar. Cantik sekali xemoticonx xemoticonx
 Papah pulang yang antusias xemoticonx heboh xemoticonx anak xemoticonx. Istri tercinta xemoticonx xemoticonx xemoticonx anaknya malah meleyot
 Tolong buatlah suamiku seperti Pak Emil ini ya Allah, Pak Emil tatapan matanya penuh dengan cinta dan kekaguman, apa daya suamiku kalau menatap malah seram seperti mengajak tawur xemoticonx
-Senang lihat Nak Emil, mudah-mudahan jodoh anakku karakter seperti Nak Emil
+Senang melihat Nak Emil, mudah-mudahan jodoh anakku karakter seperti Nak Emil
 Habibie dan Ainun xemoticonx xemoticonx
-xemoticonx xemoticonx senang sekali lihat pasangan ini. xhashtagx surga
+xemoticonx xemoticonx senang sekali melihat pasangan ini. xhashtagx surga
 Keluarga ini, bagus sekali
 Assalamualaikum Mbak cantik xemoticonx xemoticonx sehat selalu sekeluarga banyak rezeki tambah sukses ya Bang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lagi-lagi salah fokus sama HPnya lo xemoticonx dimana yang lain pakai yang
 Sepertinya hanya dia yang tidak pakai HP iPhone. Sederhananya ya Allah
 Sisakanlah laki-laki seperti itu Tuhan untukku xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx manis sekali
-Tidak ada bosan-bosannya lihat pasangan yang romantis ini, cantik dan ganteng
+Tidak ada bosan-bosannya melihat pasangan yang romantis ini, cantik dan ganteng
 Putrinya cantik sekali xemoticonx
-Suka sekali lihat pasangan ini, hangat semoga selamanya seperti ini amin xemoticonx
+Suka sekali melihat pasangan ini, hangat semoga selamanya seperti ini amin xemoticonx
 Pak Emil masih muda tapi kelihatan dewasa, bisa mengayomi istrinya
 Anaknya cantik sekali xemoticonx xemoticonx xemoticonx xemoticonx
 Loli lihat dia Loli, menurut sama ibunya hidupnya adem sekarang
 Maaf, ini rumah pribadi atau rumah dinas ya? Tampak sederhana sekali, tidak seperti kebanyakan pejabat xemoticonx artis sekarang yang rumahnya penuh kemewahan sana sini xemoticonx
-Bahagia selalu buat keluarga kalian xemoticonx xemoticonx
+Bahagia selalu untuk keluarga kalian xemoticonx xemoticonx
 Anaknya cantik sekali xemoticonx
 Semoga semua istri suaminya bisa seperti Pak Emil ya amin. Tapi kalau kita ingin yang seperti Pak Emil kita harus seperti Mbak Arumi dong xemoticonx xemoticonx
 Ikutan bahagia melihatnya xemoticonx xemoticonx xemoticonx
 Boleh tidak kita iri xemoticonx
 Ibunya lebih manja ke bapaknya daripada anaknya xemoticonx xemoticonx xemoticonx
-Kemarin lihat Pak Emil di TV lagi pidato. Sekarang lihat di HP sudah memeluk xemoticonx istrinya lagi xemoticonx dimana pelukan diulang lagi xemoticonx
+Kemarin melihat Pak Emil di TV lagi pidato. Sekarang melihat di HP sudah memeluk xemoticonx istrinya lagi xemoticonx dimana pelukan diulang lagi xemoticonx
 Cantik sekali anaknya bu
 Masyaallah sakinah mawadah warahmah dunia akhirat Kak Arumi sekeluarga. Amin ya Allah xemoticonx xemoticonx xemoticonx xemoticonx
 Pak Emil mengayomi, yang diayomi itu menurut dan menggemaskan tingkahnya. Bagaimana tidak bahagia terus coba
 Seperti suamiku, santai, pelan, dingin, meskipun aku berisik atau apa, suamiku tetap pelan, pulang kerja langsung disambut anak, dipeluk anak, pokoknya sabar
 Pak wakil xemoticonx xemoticonx
-Suka sekali tiap lihat tatapan Pak Emil ke Arumi xemoticonx xemoticonx
+Suka sekali tiap melihat tatapan Pak Emil ke Arumi xemoticonx xemoticonx
 xemoticonx xemoticonx Bu Arumi cantik ya
 Badannya tetap seperti ABG Mbak Arumi
 Tambah cantik dan awet
@@ -5895,7 +5895,7 @@ Heh
 Bu Arumi bajunya boleh dibocorkan tidak ya?
 Tadi ikut upacara HSN di Ponpes Tebuireng Jombang xemoticonx
 Masyaallah salah fokus anaknya xemoticonx xemoticonx xemoticonx
-Senang lihat pasangan ini terbaik, sampai anaknya bengong saja lihatnya, biasanya anak yang lari, ini ibunya xemoticonx semoga sakinah mawadah warahmah amin xemoticonx
+Senang melihat pasangan ini terbaik, sampai anaknya bengong saja lihatnya, biasanya anak yang lari, ini ibunya xemoticonx semoga sakinah mawadah warahmah amin xemoticonx
 Luar ruangan cantik, dalam ruangan cantik, duh ARUMI cantiknya aman, tidak perlu berias sana waktu xemoticonx xemoticonx xemoticonx
 Masyaallah tatapan Pak Emil ke Arumi penuh cinta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jarang ada suami seperti Pak Emil yang selalu memandang wajah istrinya dengan penuh cinta
@@ -5905,7 +5905,7 @@ Weh, cantik sekali anaknya
 Hati-hati ain xemoticonx
 Pasangan yang selalu bikin iri xemoticonx xemoticonx
 Ini rumah dinas apa rumah pribadi? Relatif sederhana sekelas wakil gubernur Jawa Timur xemoticonx
-Suka sekali lihat pasangan ini, suaminya itu tipe-tipe suami yang mengayomi
+Suka sekali melihat pasangan ini, suaminya itu tipe-tipe suami yang mengayomi
 Keluarga Pak Emil xemoticonx Ibu Arumi, bahagia selamanya
 xmentionx dia selalu jatuh cinta kepada istrinya Mbak
 Mas Emil laki-laki terromantis di dunia xemoticonx xemoticonx
@@ -5923,13 +5923,13 @@ Bahagia selalu Mbak Arumi dengan kasih sayang suami yang demikian besar dan Pak 
 Kameramen menderita xemoticonx xemoticonx
 Aruminya juga selalu baik dan semangat menyambut suaminya
 Anaknya cantik sekali perpaduan ibu bapaknya
-Logat Arumi sudah Jawa ya xemoticonx xemoticonx xemoticonx xemoticonx keren, suka sekali lihat Arumi sama keluarganya, semoga bahagia selalu ya xemoticonx xemoticonx xemoticonx xemoticonx
+Logat Arumi sudah Jawa ya xemoticonx xemoticonx xemoticonx xemoticonx keren, suka sekali melihat Arumi sama keluarganya, semoga bahagia selalu ya xemoticonx xemoticonx xemoticonx xemoticonx
 Aku kalau lagi cinta sama suamiku anakku cemburu, pada nangis katanya kok adik sama abang tidak disayang xemoticonx xemoticonx xemoticonx
 Anaknya cantik sekali xemoticonx
 Pak Emil semoga bisa menjadi presiden ataupun wakil presiden negeriku
 xemoticonx putrinya cantik sekali seperti mamanya xemoticonx
 Pak Emil itu kalem kebapakan sekali xemoticonx xemoticonx
-Pernah ketemu di Mr. S xemoticonx Masyaallah Bu Arumi bening sekali xemoticonx
+Pernah bertemu di Mr. S xemoticonx Masyaallah Bu Arumi bening sekali xemoticonx
 Kalem sekali ya Pak Emil
 Menatapnya jangan begitu dong kasihan kami penonton xemoticonx xemoticonx
 Dengan cinta hidup jadi indah. Dengan ilmu hidup jadi mudah. Dengan iman hidup jadi terarah xemoticonx xemoticonx
@@ -5942,8 +5942,8 @@ Cantik sekali Mama Arumi xemoticonx
 salah fokus HPnya bukan iPhone xemoticonx
 Assalamuallaikum Alhamdulillah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx juga amanah juga sakinah mawadah warahmah selalu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah, keluarga bahagia, sempurna xemoticonx xemoticonx xemoticonx xemoticonx
-Penasaran lihat Arumi berbicara bahasa Surabaya xemoticonx xemoticonx
-Gas pol
+Penasaran melihat Arumi berbicara bahasa Surabaya xemoticonx xemoticonx
+Gas penuh
 salah fokus sama anaknya. Cantik sekali.
 Masyaallah seperti aku dan suami selalu mesra xemoticonx xemoticonx
 Emil Dardak siapanya Emil Audero?
@@ -5952,25 +5952,25 @@ Bu Arumi seperti anaknya pak Emil saja
 Sakinah mawadah warahmah ya untuk selamanya
 Alhamdulillah sehat selalu pak
 salah fokus ponselnya
-Aku mau lihat sampai anaknya pada menikah baru jelas
+Aku mau melihat sampai anaknya pada menikah baru jelas
 xemoticonx xemoticonx coba jadi gubernur saya mau kerja artinya xemoticonx xemoticonx
 Ada apa ini
-Senang lihat pasangan ini, keren
+Senang melihat pasangan ini, keren
 Tenang santai sabar ya Allah mas Emil xemoticonx xemoticonx xemoticonx
 Ingin melihat ibunya, Arumi
 Pasangan terbudak cinta xemoticonx xemoticonx xemoticonx xemoticonx
-Lihat keluarga ini senang sekali. Melihatnya adem sekali
+melihat keluarga ini senang sekali. Melihatnya adem sekali
 Yang lain bagian tersenyum
 Fokus ke pelindung ponsel milik mbak Arumi. Ya Allah kalau yang lain ganti-ganti pelindung ponsel tapi mbak Arumi tetap itu-itu saja
 Kak Arumi Bachsin sejak dulu cantik dan hingga sekarang jadi seorang istri dari Mas Emil Dardak dan seorang ibu tapi kecantikannya tetap saja natural bahkan lebih cantik sekarang lebih wow. xemoticonx xemoticonx xemoticonx Tidak salah sejak dulu aku mengidolakannya xemoticonx xemoticonx xemoticonx
 Sepertinya suaminya kecapaian sekali.
-Yang ditatap siapa, yang lihat pada ikutan meleleh
+Yang ditatap siapa, yang melihat pada ikutan meleleh
 Mbak Arumi jadi medok Jawa xemoticonx
 Romantis terus xemoticonx xemoticonx xemoticonx
 Semoga bahagia selalu pak Emil, mbak Arumi. xemoticonx xemoticonx xemoticonx xemoticonx
 Suka sekali dengan pasangan ini. xemoticonx xemoticonx xemoticonx xemoticonx
 Senang sekali melihatnya
-Kalau pak Emil lihat mbak Arumi aku yang salah tingkah xemoticonx xemoticonx
+Kalau pak Emil melihat mbak Arumi aku yang salah tingkah xemoticonx xemoticonx
 Senang melihatnya ikut bahagia
 Sesayang itu kalau dalam bahasa Jawa terlihat gemati mengurus istri. Enak kali ya disayang dimanja begitu
 Rumahnya sederhana xemoticonx xemoticonx xemoticonx
@@ -6014,17 +6014,17 @@ Semoga TUHAN memberkati Provinsi Jawa Timur xemoticonx xemoticonx xemoticonx
 Mas Emil Dardak aku mengidolakan sekali
 Mas Emil saja wakil presidennya, cocok. xemoticonx
 Waktunya KHOFIFAH EMIL xemoticonx xemoticonx xemoticonx xemoticonx Rahayu
-Selamat ulang tahun bapak presiden xmentionx Kami selalu mendoakan yang terbaik buat Bapak. Semoga Bapak bertemu dengan cita-citanya dan tercapai semua xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Semoga Bapak dan keluarga pak Didit Hediprasetyo xemoticonx Bu xmentionx selalu dalam lindungan Allah SWT. Amin xemoticonx xmentionx
+Selamat ulang tahun bapak presiden xmentionx Kami selalu mendoakan yang terbaik untuk Bapak. Semoga Bapak bertemu dengan cita-citanya dan tercapai semua xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Semoga Bapak dan keluarga pak Didit Hediprasetyo xemoticonx Bu xmentionx selalu dalam lindungan Allah SWT. Amin xemoticonx xmentionx
 Amin ya rabbal alamin. Doa terbaik untuk beliau Bapak Presiden xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mas xmentionx harusnya wakil presidennya pak xmentionx xemoticonx xemoticonx
 Pak Emil keren xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kalau untuk masa depan mungkin bisa AHY-Emil Dardak xemoticonx
-Pas jadi wakil presiden Bapak Prabowo Kang Emil xemoticonx xemoticonx
+Waktu jadi wakil presiden Bapak Prabowo Kang Emil xemoticonx xemoticonx
 Keren bapak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 musik horeg sudah jadi kebudayaan apa bagaimana? Tidak ada tindakan
 Cocoknya jadi wakil presiden pak Emil
 Amin ya rabbal alamin
-Pas sekali jadi wakil pak Prabowo
+Cocok sekali jadi wakil pak Prabowo
 Selamat ulang tahun Bapak Prabowo xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga sehat selalu pak Prabowo dan pak Emil Dardak amin ya rabbal alamin
 Presiden masa kini dan Presiden masa depan
@@ -6053,7 +6053,7 @@ Lanjutkan semangat, lancar segalanya xemoticonx xemoticonx xemoticonx xemoticonx
 Ya ini calon gubernur yang bagus dan tidak banyak drama xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ke pasar Klojen juga mas Emil, bersih dan banyak makanan dan jajanan enak-enak juga
 Pasar Klojen Malang juga direkomendasikan pak Emil bu Arumi, silakan datang ke sana, xemoticonx xemoticonx xemoticonx
-Pas di Malang, menyempatkan beli jajan di sini, besar dan enak xemoticonx
+Waktu di Malang, menyempatkan beli jajan di sini, besar dan enak xemoticonx
 Jangan ke pasar kota xemoticonx saja pak xmentionx coba ke desa xemoticonx atau kampung xemoticonx banyak yang masih perlu bimbingan proses, ayo pak masuk kampung atau desa, semangat pak xmentionx dan ibu xmentionx
 Pasar Pon Trenggalek Pak, perlu sentuhan xemoticonx inovasi agar lebih maju xemoticonx berkembang
 Lanjutkan pak, xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -6103,15 +6103,15 @@ Masyaallah, xemoticonx xemoticonx xemoticonx xemoticonx
 Sayangnya saya tinggal di Jawa Tengah, seandainya saya ber KTP di daerah beliau, pasti saya pilih. Sukses selalu xemoticonx xemoticonx
 Mau mengucapkan selamat pagi juga, tapi ini kok malam xemoticonx sehat selalu mbak Arumi yang cantiknya tidak ada obat xemoticonx salam adem dari Kota Batu xemoticonx xemoticonx
 Pak Emil sama mbak Arumi keren sekali mengendarai motor, semoga lancar dan sehat-sehat selalu, amin
-Lanjutkan bang Emil, teringat waktu saya ketemu di Gresik
-Ikut bawa perasaan lihat kalian masyaallah sehat selalu ibu bapak xemoticonx xemoticonx xemoticonx xemoticonx
+Lanjutkan bang Emil, teringat waktu saya bertemu di Gresik
+Ikut bawa perasaan melihat kalian masyaallah sehat selalu ibu bapak xemoticonx xemoticonx xemoticonx xemoticonx
 Senang sekali melihat pasangan ini semoga sakinah mawadah warahmah sampai maut memisahkan xemoticonx
 Sehat, sukses, selalu menemani dalam suka dan duka xemoticonx xemoticonx
-Aduh jadi ingin menikah lihat kalian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Aduh jadi ingin menikah melihat kalian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga Pak Emil dan ibu Arumi sehat terus dan selalu bahagia, amin xemoticonx
 Ditunggu agenda jalan-jalan bareng Pejuang Rupiah di jalanan ya Ibu Barbie xmentionx dan Bapak xmentionx bersama ojek daring keliling motornya xemoticonx xemoticonx
-Sehat selalu buat teh Arumi dan pak Emil
-Rasanya senang saja kalau lihat mbak Arumi sama pak Emil xemoticonx xemoticonx
+Sehat selalu untuk teh Arumi dan pak Emil
+Rasanya senang saja kalau melihat mbak Arumi sama pak Emil xemoticonx xemoticonx
 Naik motor saja tidak ada begitu debu-debunya seperti kita
 Bahagia selalu mbak
 Semoga langgeng ya ibu xemoticonx xemoticonx xemoticonx
@@ -6157,7 +6157,7 @@ Cantik sehat selalu ibu xemoticonx xemoticonx xemoticonx xemoticonx
 Idolaku Mbak Arumi
 Terfavorit xemoticonx xemoticonx
 Ibu motornya impian anak perempuan saya, vespa warna hijau toska xemoticonx xemoticonx
-Pagi ibu, jadi senyum lihat foto ibu xemoticonx
+Pagi ibu, jadi senyum melihat foto ibu xemoticonx
 Kapan Mas dan Mbak ke Tuban? Ingin sekali berjabat tangan dengan Mas Wakil Bupati
 Baik Mbak Arumi
 Sehat bahagia selalu kakak sekeluarga xemoticonx xemoticonx xemoticonx
@@ -6177,7 +6177,7 @@ Sehat selalu Bu Arumi dan Keluarga pasangan favorit nih xemoticonx xemoticonx xe
 Assalamualaikum Arumi yang cantik dan Bung Emil Dardak senang lihatnya bisa naik motor berdua tetap sehat tetap semangat lanjutkan perjuanganmu
 Masyaallah. Selamat menjemput rezeki berkah xemoticonx xemoticonx
 Gas Pak Gubernurku
-Aku pernah bertanya sama suami, kalau aku ketemu xmentionx boleh ya aku foto bersama, jawaban suamiku boleh saja asal aku juga boleh foto sama xmentionx xemoticonx xemoticonx
+Aku pernah bertanya sama suami, kalau aku bertemu xmentionx boleh ya aku foto bersama, jawaban suamiku boleh saja asal aku juga boleh foto sama xmentionx xemoticonx xemoticonx
 Pasangan idaman, sehat selalu Bapak xemoticonx Ibu Calon Wakil Gubernur xemoticonx
 Tidak bosan-bosan melihat pasangan Mbak Arumi dan Mas Emil. Sehat selalu, kapan main di sinetron lagi Mbak Arumi
 Salam dari Kuansing Riau xemoticonx
@@ -6185,7 +6185,7 @@ Selamat pagi Bunda cantik, semangat xemoticonx xemoticonx xemoticonx
 Sehat selalu Mbak Rumi dan suaminya beserta keluarganya, amin
 Pagi Mbak Arumi xemoticonx Pak Emil
 HALO IBU ARUMI CANTIK xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Selamat pagi ibu yang cantiknya Masya Allah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat pagi ibu yang cantiknya Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pinjam vespa nya xemoticonx
 Hai cantik sekali Mbak
 Sehat selalu ya Mbak Arumi dan Mas Emil
@@ -6196,7 +6196,7 @@ Sehat selalu, kompak terus
 Masyaallah. Semoga selalu sakinah mawadah warahmah
 Lucu
 Selamat pagi
-Ari Lasso adalah yang terbaik, seniorku Mas Emil. Alumni SMAN 2 Surabaya. Bagus sekali filmnya Mas, sudah menonton Mengejar Matahari
+Ari Lasso adalah yang terbaik, seniorku Mas Emil. Alumni SMAN dua Surabaya. Bagus sekali filmnya Mas, sudah menonton Mengejar Matahari
 Pasangan favorit aku xemoticonx xemoticonx istrinya cantik ramah dan sederhana, suaminya ganteng ramah tidak malu xemoticonx tunjukkan kemesraan, melihatnya membawa kebahagiaan xemoticonx xemoticonx
 Tetap semangat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Meskipun Indonesia kalah versus China namun tetap kucinta timnas Indonesia
@@ -6226,7 +6226,7 @@ xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xem
 Saya bukan warga Jawa Timur tapi saya suka pasangan ini, andai saya punya pemimpin seperti mereka
 Pilihan saya PASTI xemoticonx xemoticonx
 Cantik dan saleh, itulah Mbak Arumi
-Selalu senang lihat pasangan ini. Semoga tetap mesra
+Selalu senang melihat pasangan ini. Semoga tetap mesra
 Saya Jawa Timur pilih Khofifah dan Emil Dardak
 Tekan tombol pasangan terbaik sepanjang masa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jawa Timur pasti Khofifah dan Emil Dardak, pasti disambut di Jember xemoticonx xemoticonx xemoticonx
@@ -6241,7 +6241,7 @@ Pak Emil yang sabar menghadapi kerandomam ibu negara xemoticonx
 Mbak, coba sekali jalan-jalan ke Ponorogo xemoticonx
 Sehat selalu ya
 Ingin sekali bertemu, semoga saja ke Jayapura bisa bertemu, langsung sukses ya cantik
-Adik makin hari makin saleh ya, makin pintar, ih gemas, sehat selalu buat adik, ibu dan Bapak Emil beserta keluarga xemoticonx
+Adik makin hari makin saleh ya, makin pintar, ih gemas, sehat selalu untuk adik, ibu dan Bapak Emil beserta keluarga xemoticonx
 Suka sekali dengan pasangan Mbak Arumi dan Mas Emil, semoga sukses dan lanjutkan dua periode xemoticonx
 Bu Arumi duta jajan nusantara xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx anak pintar sekali
@@ -6249,15 +6249,15 @@ Pintarnya mengingatkan doa dulu sebelum makan xemoticonx
 Pasangan idola saya xemoticonx
 Gas Mas, lanjut pimpin Jawa Timur lagi
 Kalau saya sih, inginnya Pak Emil jadi menteri pendidikan
-Masya Allah anak saleh xemoticonx
-Bismillah menang pasangan calon gubernur nomor 2 saya sudah bertemu sama Bunda xmentionx waktu di pasar Gedangan tangan beliau harum sekali waktu salim kapan xmentionx Emil xmentionx berkunjung ke Gedangan Sidoarjo ingin sekali bertemu pasangan idola semua orang xemoticonx
+Masyaallah anak saleh xemoticonx
+Bismillah menang pasangan calon gubernur nomor dua saya sudah bertemu sama Bunda xmentionx waktu di pasar Gedangan tangan beliau harum sekali waktu salim kapan xmentionx Emil xmentionx berkunjung ke Gedangan Sidoarjo ingin sekali bertemu pasangan idola semua orang xemoticonx
 Saya warga Sulawesi tapi suka sekali sama pasangan ini xemoticonx
 Suka sekali melihat mereka, natural tidak dibuat-buat langgeng terus ya xemoticonx xemoticonx
 Pintar anaknya, sebelum makan berdoa dulu. Barakallah anak saleh
 Duh si lucu gemas xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga menang di pemilihan gubernur dan wakil gubernur Jawa Timur
 Ya Allah, anaknya Bu Arumi sama Pak Emil pintar sekali xemoticonx
-Semoga sukses satu putaran buat Pak Emil Bu Khofifah
+Semoga sukses satu putaran untuk Pak Emil Bu Khofifah
 Ibu Arumi semoga sakinah mawadah warahmah
 Barakallah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Raffi Ahmad, bukan membandingkan, ini panutan, harus rendah hati suami dan istri, tidak pernah perlihatkan bau-bau kemewahan, ini baru namanya pejabat yang diridai kepemimpinannya xemoticonx xemoticonx maaf xmentionx ini kritik membangun xemoticonx xemoticonx
@@ -6281,7 +6281,7 @@ Lanjutkan xemoticonx xemoticonx Jejaring Relawan Jawa Timur
 Jika boleh jujur, kemungkinan persaingan akan berat Pak xmentionx karena jika saya tanya secara langsung ke masyarakat yang ada di sekitar saya mereka akan pilih ibu mantan walikota, tapi tetap semangat berikhtiar
 Pasangan muda idola xemoticonx xemoticonx
 Masyaallah, Mbak Arumi cantik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Masyaallah cantiknya diambil sendiri Bu Arumi tidak bosan xemoticonx lihat ibu dan bapak pejabat yang satu ini xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah cantiknya diambil sendiri Bu Arumi tidak bosan xemoticonx melihat ibu dan bapak pejabat yang satu ini xemoticonx xemoticonx xemoticonx xemoticonx
 Calon pemimpin masa depan. Semoga Allah rida. Pasangan yang serasi
 Cocok muda, berbakat, jiwa pemimpin, cerdas, ganteng dan cantik tidak bosan lihatnya semangat terus Mas Emil dan Mbak Arumi salam dua jari pasti menang xemoticonx
 Tetap tampil apa adanya Bu xemoticonx xemoticonx xemoticonx xemoticonx
@@ -6298,7 +6298,7 @@ Sehat terus dan semangat terus Pak Emil sukses xemoticonx xemoticonx xemoticonx 
 Terbaik xemoticonx xemoticonx
 Semoga menang Bapak dan Ibu Khofifah tetap santun dan beretika xemoticonx xemoticonx
 Sukses selalu Bapak Emil dan Bunda Arumi
-Assalamualaikum Bapak, semoga Allah memberi kesehatan jasmani dan rohani buat Bapak dan keluarga, biar selalu bisa melayani masyarakat Jawa Timur
+Assalamualaikum Bapak, semoga Allah memberi kesehatan jasmani dan rohani untuk Bapak dan keluarga, biar selalu bisa melayani masyarakat Jawa Timur
 Kalau sudah menjabat jangan lupa tetap blusukan Pak
 Kemudian transportasi Jawa Timur Malang-Surabaya
 Semangat sukses selalu Bapak Emil dan Ibu Arumi
@@ -6332,7 +6332,7 @@ Selamat Pak xmentionx semakin sukses kedepannya bersama Bu Khofifah amin xemotic
 Selamat Bapak xmentionx xemoticonx xemoticonx xemoticonx
 Keren Pak Emil xemoticonx xemoticonx
 Semangat untuk periode selanjutnya Pak
-Gas pol Pak Emil untuk Jawa Timur di periode selanjutnya
+Gas penuh Pak Emil untuk Jawa Timur di periode selanjutnya
 Insyaallah lanjut dua periode ya Pak
 Emil Dardak Wakil Gubernur yang bijaksana, cerdas, dan berpotensi luar biasa
 Mantap Pak Emil semoga sukses selalu
@@ -6366,7 +6366,7 @@ Mantap sekali pak wakil gubernur memang terbaik
 Keren sekali pak wakil gubernur xemoticonx xemoticonx xemoticonx
 Sukses terus pak wakil gubernur xemoticonx
 Mas Emil memang terbaik, semakin salut
-Saya sangat kagum sama pak Emil ini orangnya cerdas, saya suka lihat waktu debat pemilihan gubernur Jawa Timur, jawabannya runtut dan enak didengar sangat menguasai betul xemoticonx xemoticonx
+Saya sangat kagum sama pak Emil ini orangnya cerdas, saya suka melihat waktu debat pemilihan gubernur Jawa Timur, jawabannya runtut dan enak didengar sangat menguasai betul xemoticonx xemoticonx
 Menyala mas Emil, sukses terus mas
 Lancar dan sukses terus mas Emil
 Selamat mas Emil semoga semakin sukses
@@ -6380,7 +6380,7 @@ Luar biasa mas Emil cerdas kreatif tetap semangat ya mas Emil sehat selalu semog
 Selamat dan semangat menuju Jawa Timur satu periode dua xemoticonx xemoticonx xemoticonx xemoticonx
 Alhamdulillah, lanjut pak, semangat xemoticonx xemoticonx xemoticonx xemoticonx
 Super
-Selamat xemoticonx Saya suka lihat tatapan bapak kepada istrinya, dalam sekali, cinta sekali. Masyaallah xemoticonx sakinah sampai surga xemoticonx xemoticonx
+Selamat xemoticonx Saya suka melihat tatapan bapak kepada istrinya, dalam sekali, cinta sekali. Masyaallah xemoticonx sakinah sampai surga xemoticonx xemoticonx
 Terbaik mas Emil xemoticonx
 Terbaik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Selamat pak Emil semoga sukses xemoticonx xemoticonx xemoticonx xemoticonx
@@ -6395,10 +6395,10 @@ Mas Emil kalau maju presiden, pastinya luar biasa xemoticonx
 Cocok jadi presiden dan wakil di periode selanjutnya
 Saya senang dengan mas Emil. Karena, kedua orang tua kita dulu pernah dalam satu kementerian
 Aku mau ganti nama Emil juga ah Biar sama nasibnya xemoticonx xemoticonx
-Pak Emil ketemu Emil xemoticonx
+Pak Emil bertemu Emil xemoticonx
 Pak nanti kalau sudah terpilih, tolong berantas musik horeg ya, kasihan pak rumah-rumah pada rusak efek dari suara musik yang menggelegar xemoticonx
 Bukan 'Kang' tapi 'Bang' xemoticonx
-Ketika kang Emil ketemu mas Emil, diramaikan dengan adanya Paramitha Rusa
+Ketika kang Emil bertemu mas Emil, diramaikan dengan adanya Paramitha Rusa
 Kang xmentionx untuk DKI dan mas xmentionx untuk Jawa Timur semoga menang pemilihan gubernur ya semangat kampanyenya cari pendukungnya
 Seperti adik kakak sama kang Ridwan Kamil
 Calon pemimpin Indonesia yang sesungguhnya nih
@@ -6414,14 +6414,14 @@ Harusnya dua Emil bersatu untuk DKI satu dan dua di pak xmentionx
 Mas Emil istrinya bidadari Jawa Timur, kang Emil istrinya bidadari Jawa Barat. Masyaallah
 Calon presiden dan wakil presiden RI selanjutnya xemoticonx xemoticonx xemoticonx xemoticonx
 Duo Emil xemoticonx xemoticonx xemoticonx
-Tertawa pak Emil ketemu pak Emil xemoticonx
+Tertawa pak Emil bertemu pak Emil xemoticonx
 Duo Emil xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga sukses mas Emil dan pak RK
 Ya Allah bapak berdua ini jadi pemimpin negeri yang cocok sekali
 Senang mas Emil maju untuk Jawa Timur
 Menyala terus mas Emil xemoticonx xemoticonx xemoticonx
 Sukses selalu mas Emil untuk kemajuan Indonesia
-Wah ada mbak Paramitha Rusady xemoticonx film idola saya dari dulu pak. Senang sekali bisa ketemu mbak Paramita, bintang film
+Wah ada mbak Paramitha Rusady xemoticonx film idola saya dari dulu pak. Senang sekali bisa bertemu mbak Paramita, bintang film
 Dobel Emil, orang-orang hebat ini xemoticonx
 Kompak selalu nih mas Emil
 Calon petinggi bangsa yang sangat membanggakan
@@ -6442,11 +6442,11 @@ Orang-orang hebat berkumpul xemoticonx xemoticonx xemoticonx
 Idolaku pada kumpul. Keren nih xemoticonx
 Jawa Timur sukses bersama mas Emil
 Jawa Timur maju dan jaya. Dukung mas Emil selalu
-Sangat cocok nih mas Emil buat Jawa Timur
-Gas pol buat mas Emil
+Sangat cocok nih mas Emil untuk Jawa Timur
+Gas penuh untuk mas Emil
 Jawa Timur menunggumu mas Emil
-Mas Emil menyala mas buat Jawa Timur xemoticonx
-Pas sekali nih calon pemimpin Jawa Timur
+Mas Emil menyala mas untuk Jawa Timur xemoticonx
+Cocok sekali nih calon pemimpin Jawa Timur
 Santun dan cerdas ya sosok mas Emil ini
 Memang pantas jadi calon pemimpin nih mas Emil
 Maju terus mas Emil
@@ -6457,14 +6457,14 @@ Jawa Timur bisa ayo bisa. Mas Emil yang pimpin
 Auranya bagus nih, cocok jadi calon pemimpin mas Emil
 Mas Emil kami mendukungmu
 Jaya terus Jawa Timur dan maju bersama mas Emil
-Orang hebat bersatu buat Indonesia xemoticonx
+Orang hebat bersatu untuk Indonesia xemoticonx
 Menyala mas Emil untuk Jawa Timur xemoticonx
 Sukses ya mas Emil semoga menang
 Orangnya memang top mas Emil ini
 Mas Emil memang terbaik xemoticonx xemoticonx xemoticonx
 Pertemuan orang-orang hebat nih
 Mas Emil kudoakan lancar dan menang
-Pasti bisa mas Emil buat Jawa Timur jaya
+Pasti bisa mas Emil untuk Jawa Timur jaya
 Mas Emil terbaik xemoticonx
 Mas Emil orangnya baik juga cerdas
 Mas Emil yakin pasti bisa pimpin Jawa Timur
@@ -6480,8 +6480,8 @@ Salam dari BPD HIPMI Bengkulu
 UMKM bukan solusi kemajuan ekonomi, tidak ada bangsa di dunia yang maju karena UMKM
 Terima kasih tum xmentionx dan mas wakil gubernur xmentionx berkenan mampir ke xmentionx xmentionx
 Masyaallah sukses terus kak xmentionx
-Seru sekali, mas Emil! Diskusi santai di warung kopi memang selalu menghadirkan suasana yang guyub dan penuh ide segar. Senang lihat generasi muda bisa berkumpul, bertukar pikiran, dan tetap santai dengan permainan seru seperti Werewolf. Semoga momen seperti ini terus mempererat kebersamaan dan melahirkan gagasan-gagasan hebat untuk masa depan! xemoticonx xemoticonx
-Terima kasih pak Emil. Jawa Timur jos xemoticonx
+Seru sekali, mas Emil! Diskusi santai di warung kopi memang selalu menghadirkan suasana yang guyub dan penuh ide segar. Senang melihat generasi muda bisa berkumpul, bertukar pikiran, dan tetap santai dengan permainan seru seperti Werewolf. Semoga momen seperti ini terus mempererat kebersamaan dan melahirkan gagasan-gagasan hebat untuk masa depan! xemoticonx xemoticonx
+Terima kasih pak Emil. Jawa Timur mantap xemoticonx
 Semoga menang lagi ya bapak. Jawa Timur terkenal dengan bapak xemoticonx
 Keren xemoticonx xemoticonx
 Terima kasih banyak pak Emil sudah datang di acara pelantikan pengurus daerah Pelajar Islam Indonesia xemoticonx PD PII xemoticonx kota Surabaya periode 2024-2025, insyaallah kami akan terus berkomitmen untuk mengabdi, membina dan menciptakan para pemimpin-pemimpin bangsa melalui penguatan di bidang pendidikan, semoga kita bisa selalu berkolaborasi dan bersinergi pak xemoticonx
@@ -6518,8 +6518,8 @@ Selamat provinsi Jawa Timur semoga damai dan sejahtera selalu di bawah kepemimpi
 Dirgahayu Jawa Timur, semoga anda dan bunda xmentionx kembali diberi amanah memimpin Jawa Timur
 Dirgahayu provinsi Jawa Timur xemoticonx semoga makin maju, sejahtera, aman, di bawah kepemimpinan ibu Khofifah dan bapak xmentionx xemoticonx Semoga bapak xmentionx berkenan suatu saat mendengar lagu persembahan untuk provinsi Jawa Timur yang dinyanyikan vokal grup dari anak-anak kami xmentionx dan bisa dinyanyikan di ulang tahun provinsi Jawa Timur selanjutnya, tentunya di bawah kepemimpinan ibu xmentionx dan bapak xmentionx amin ya rabbal alamin xemoticonx xemoticonx
 Kira-kira jajan apa saja ya nih?
-Senang kalau lihat pak Emil xemoticonx bu Arumi sosok yang sangat sederhana ramah panutan buat kita. Sehat selalu buat keluarga pak Emil. Amin
-Tenang bu Arumi nanti 27 November suara saya akan saya berikan buat bu Khofifah dan pak Emil untuk melanjutkan Jawa Timur lebih baik xemoticonx xemoticonx xemoticonx
+Senang kalau melihat pak Emil xemoticonx bu Arumi sosok yang sangat sederhana ramah panutan untuk kita. Sehat selalu untuk keluarga pak Emil. Amin
+Tenang bu Arumi nanti 27 November suara saya akan saya berikan untuk bu Khofifah dan pak Emil untuk melanjutkan Jawa Timur lebih baik xemoticonx xemoticonx xemoticonx
 Celananya keren bu xemoticonx xemoticonx
 Saya belum pernah ke pasar unik bu Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jago sekali bahasa Jawanya Arumi
@@ -6554,7 +6554,7 @@ Menyala pak xmentionx ibu xmentionx terima kasih sudah hadir xemoticonx xemotico
 Mas xmentionx itu mbah yang jualan donat mengekos di rumah mama saya, memang orangnya sangat xemoticonx pekerja keras sekali, sehat selalu mbah xemoticonx
 Sukses selalu bapak Emil dan mbak Arumi, pejabat sederhana dekat dengan semua kalangan xemoticonx
 Kota mbahku, aduh xemoticonx xemoticonx xemoticonx Trenggalek.
-Satu suara saya buat anda pak bu, semoga sukses, amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Satu suara saya untuk anda pak bu, semoga sukses, amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bu xmentionx barangkali minat wedel bandeng Mengare Gresik bu xemoticonx xemoticonx xemoticonx xemoticonx
 Beliau berdua adalah sosok inspirasi yang patut kita contoh, pokoknya Bapak xmentionx dan Ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jujur saya malas xemoticonx muak melihat tingkah para pejabat negara. Karena di mata saya mereka hanya pencitraan, hanya topeng, hanya sampul. Melakukan apa pun hanya demi kepentingannya sendiri bukan demi rakyat, bangsa dan negara. Tapi entah hanya dengan pasangan ini saya suka. Bahkan sejak mas Emil jadi Bupati Trenggalek. Di antara istri-istri pejabat juga hanya mbak Arumi ini yang orangnya apa adanya dan biasa saja di mata saya. Tidak perlu pamer atau pencitraan seperti yang lain-lain. Tapi justru menarik dan menyenangkan dilihatnya. Semoga kalian sehat dan rukun selalu. Jodoh dunia akhirat xemoticonx xemoticonx
@@ -6569,7 +6569,7 @@ Ingin bertemu kalian berdua, bapak Emil, ibu Arumi, masyaallah xemoticonx apalag
 Bu Arumi orangnya menyenangkan xemoticonx xemoticonx xemoticonx
 Selalu sehat dan sukses selalu.
 Mbak Arumi aku dari Bali penggemar mbak Arumi, mbak pakai topi dong mbak Arumi kasihan mukanya yang mulus dipanaskan matahari.
-Ya ini gubernur yang benar bukan hanya datang buat film ftv datang drama marah-marah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Ya ini gubernur yang benar bukan hanya datang untuk film ftv datang drama marah-marah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bu cumi hitamnya sudah bu, kalau Jabodetabek tidak ada cumi hitam xemoticonx
 Betul sekali memang mereka pantas jadi pemimpin Jawa Timur muda berbakat baik tidak pernah sirik sama yang lain.
 Salam sehat ibu xemoticonx xemoticonx xemoticonx
@@ -6581,7 +6581,7 @@ Masyaallah tabarakallah xemoticonx xemoticonx xemoticonx
 Makanan khas Trenggalek apa mas Emil-Arumi?
 Saat pulang dari ziarah Sunan Ampel. Mampir ke taman Bungkul ternyata ada warung Trenggalek di pojok, lalu salat subuh di Masjid Al Akbar xemoticonx xemoticonx
 Sehat selalu pak wakil gubernur xemoticonx xemoticonx xemoticonx xemoticonx
-Hm maaf mbak xmentionx terpampang.
+hem maaf mbak xmentionx terpampang.
 Zaman saya kuliah di Surabaya, taman Bungkul masih sepi dan tidak terurus, ramainya kalau malam banyak yang jualan, sekarang bagus dan ramai ya, wisata kuliner juga tuh, dekat rumah pakde saya di jalan Darmokali.
 Salam hormat dari warga Semarang Jawa Tengah pak xemoticonx xmentionx
 Komentar kedua disapa langsung dong bu xemoticonx xemoticonx xemoticonx
@@ -6591,7 +6591,7 @@ Wah senangnya yang bisa bertemu Pak Emil xemoticonx Bu Arumi.
 Suka sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Calon wakil presiden Indonesia tahun 2034 xemoticonx
 Sehat selalu bapak Emil ibu Arumi yang selalu berbagi semoga amal baiknya dibalas Allah SWT xemoticonx xemoticonx
-Senang sekali lihat pasangan ini adem dan bahagia terus xemoticonx xemoticonx
+Senang sekali melihat pasangan ini adem dan bahagia terus xemoticonx xemoticonx
 Taman Bungkul ya min?
 Semoga selalu diberi kelancaran dan kesuksesan untuk anda Bapak dan Ibu Wakil Gubernur, amin ya rabbal alamin.
 Akan menang kembali xemoticonx
@@ -6623,7 +6623,7 @@ Sukses selalu Bapak xmentionx dan ibu xmentionx semoga selalu sehat dan bisa jad
 Subhanallah ibu xmentionx bersinar cerah seperti berlian xemoticonx
 Sering-sering menongkrong bareng warga pak Emil, agar bisa menjadi solusi dari keluhan masyarakat.
 Kak Arumi semakin cantik ya xemoticonx
-Saya yang orang Depok senang lihat pasangan mas Emil dan mbak Arumi, sukses dan bahagia dunia akhirat, amin ya rab.
+Saya yang orang Depok senang melihat pasangan mas Emil dan mbak Arumi, sukses dan bahagia dunia akhirat, amin ya rab.
 Bu Sarmi yang jualan aneka jajan pasar, buatan beliau sendiri, silakan dibeli xemoticonx xemoticonx xemoticonx
 Aduh dekat dengan Sidoarjoku silakan mampir mbak ayu xemoticonx
 Lanjutkan bang.
@@ -6642,7 +6642,7 @@ Dia adalah orang pintar.
 Senang sekali dengan pasangan ini, semoga langgeng selalu dan dijauhkan dari hal-hal buruk, amin.
 Sehat selalu Bu Arumi dan pak Emil xemoticonx xemoticonx
 Ini yang harusnya jadi wakil presiden, muda berprestasi dan penuh ide kreatif xemoticonx, insyaallah.
-Saya paling senang kalau lihat pak Emil sudah naik panggung untuk menyanyi atau main musik keren keren, jadi pejabat oke karena pintar, jadi pemusik oke, jadi penyanyi tambah oke, lengkap pokoknya xemoticonx xemoticonx
+Saya paling senang kalau melihat pak Emil sudah naik panggung untuk menyanyi atau main musik keren keren, jadi pejabat oke karena pintar, jadi pemusik oke, jadi penyanyi tambah oke, lengkap pokoknya xemoticonx xemoticonx
 Bagus sekali suaranya Mas calon wakil gubernur prima xemoticonx xemoticonx xemoticonx
 Generasi muda pemimpin bangsa Indonesia pada berkumpul xemoticonx xemoticonx
 Bapak keren xemoticonx xemoticonx xemoticonx xemoticonx
@@ -6688,12 +6688,12 @@ MAAF BERTANYA BULAN BERAPA DAN TANGGAL BERAPA PEMILIHAN GUBERNUR JAWA TIMUR.
 Semoga JAWA TIMUR satu tetap Khofifah xemoticonx Emil.
 Permisi gedung apa ya ini pak?
 Sukses selalu mas Dardak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Masyaallah senangnya lihat pak Emil yang selalu adem, nyaman tenang rasanya kalau sudah berdialog-dialog, semoga lancar sukses xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah senangnya melihat pak Emil yang selalu adem, nyaman tenang rasanya kalau sudah berdialog-dialog, semoga lancar sukses xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 MANTAP Mas Emil, kapan ke Banyuwangi menyapa petani kopi di sana?
 Kopi Indonesia itu rasanya juara, beda sekali sama kopi luar yang kadang biasa saja.
 Kopi luar itu rasanya datar, kopi Indonesia lebih nendang!
 Ponorogo juga ada Kopi Toyomarto mas xemoticonx
-Assalamualaikum Bapak, semoga Allah selalu memberikan kesehatan buat bapak dan keluarga dan lancar dalam tugas xemoticonx
+Assalamualaikum Bapak, semoga Allah selalu memberikan kesehatan untuk bapak dan keluarga dan lancar dalam tugas xemoticonx
 Wah bapak wakil gubernur waktu kopi xemoticonx xemoticonx
 Masyaallah luar biasa pak Emil tanpa lelah keliling menyambangi masyarakat, semoga selalu diberi sehat oleh Allah.
 Kami dari Ngawi mendukung pak Emil.
@@ -6731,14 +6731,14 @@ Masyaallah tabarakallah mbak Arumi, senang melihatnya xemoticonx xemoticonx
 Cinta kamu banyak-banyak kakak, sehat selalu kak rezeki berlimpah amin ya Allah.
 Masyaallah tabarakallah merakyat sekali xemoticonx
 Masyaallah sempurna sekali pasangan ini pejabat yang merakyat tidak bosan melihatnya cantik dan ganteng sekali xemoticonx xemoticonx xemoticonx xemoticonx
-Masyaallah mbak xmentionx aku suka sekali nonton vlog anda yang blusukan begini. Sempat terucap kok tidak ada terdengar kabar anda ke Mojokerto. Ternyata pas ke Mojokerto saya nya kerja xemoticonx. Terima kasih sudah menyempatkan untuk xemoticonx menyapa warga Mojokerto. Sehat-sehat selalu xemoticonx xemoticonx
+Masyaallah mbak xmentionx aku suka sekali nonton vlog anda yang blusukan begini. Sempat terucap kok tidak ada terdengar kabar anda ke Mojokerto. Ternyata waktu ke Mojokerto saya nya kerja xemoticonx. Terima kasih sudah menyempatkan untuk xemoticonx menyapa warga Mojokerto. Sehat-sehat selalu xemoticonx xemoticonx
 Asyik ditemani sama istri dong pastinya ya bapak xmentionx
 Ibu xmentionx pak xmentionx semoga sehat selalu dan sukses amin.
 Ya Allah Bu Arumi, anda makan jongkok dekat knalpot saja kok tetap cantik xemoticonx
 Sekarang sepi bu pasar Tanjung bagian dalam ini xemoticonx dulu awal ke Mojokerto tahun 2009 di sini rame sekali xemoticonx
 Masyaallah mbak Arumi cantik.
 Seorang Arumi beli daster 100 xemoticonx tiga xemoticonx, merakyat ya.
-Gas pol
+Gas penuh
 Aku sangat suka dengan dua orang ini xemoticonx xemoticonx xemoticonx
 Aku sih setuju untuk calon wakil gubernur dan istri
 Suka merakyat tidak hanya pencitraan
@@ -6754,12 +6754,12 @@ Saya warga Malang pasti pilih pak Emil bu
 Orang cantik itu begitu, disejajarkan apa saja tetap cantik. Sejajar knalpot, sejajar pot, sejajar saya, mbak Arumi ya begitu itu modelnya. Luar biasa
 Itu yang dimakan sambil jongkok apa namanya?
 Mbak kok cantik sekali xemoticonx xemoticonx
-Senang sekali lihat mbak Arumi sama pak Emil sehat ya mbak
+Senang sekali melihat mbak Arumi sama pak Emil sehat ya mbak
 Bu Arumi meleyot dikedip pak Emil xemoticonx
 Baju kebesaran kaum terkuat di bumi
 Bapak Emil dan ibu yang sederhana, suka melihatnya tetap sehat ya xemoticonx xemoticonx
 Mbak Arumi semoga Allah melindungi mbak dan suami ya xemoticonx
-Pas beli daster mengerti barang murah langsung teringat mbak xmentionx xemoticonx xemoticonx xemoticonx
+Waktu beli daster mengerti barang murah langsung teringat mbak xmentionx xemoticonx xemoticonx xemoticonx
 xmentionx mas Emil belikan daster
 Assalamualaikum xemoticonx xemoticonx xemoticonx ibu cantik mau juga dasternya xemoticonx xemoticonx xemoticonx
 Dibeli dibeli xemoticonx xemoticonx aku mau dong mbak Arumi dasternya xemoticonx xemoticonx
@@ -6778,11 +6778,11 @@ Hahaha kita sama bukan, sukanya berdaster kalau di rumah
 Bu Arumi memilih daster warnanya semua kesukaanku xemoticonx ungu dan kuning xemoticonx
 Masyaallah bahagia tidak harus keluar negeri ya bu, diajak blusukan saja sudah senang apalagi dibelanjakan xemoticonx
 Kirim di Wakatobi sebagian dasternya bu xemoticonx
-Kak Arumi masya Allah cantiknya xemoticonx
+Kak Arumi masyaallah cantiknya xemoticonx
 Masyaallah, beliau natural sekali, bapak senyum-senyum, tenang pak, ibu tidak borong sepasar kok xemoticonx
 Masyaallah. Hahaha kocak xemoticonx xemoticonx
 Masa aku harus ke Mars terus sih xemoticonx xemoticonx xemoticonx
-Senang sekali setiap lihat pasangan ini, serasi dan selalu manis. Semoga langgeng sampai akhir dan selalu sehat-sehat dan berbahagia xemoticonx xmentionx xmentionx
+Senang sekali setiap melihat pasangan ini, serasi dan selalu manis. Semoga langgeng sampai akhir dan selalu sehat-sehat dan berbahagia xemoticonx xmentionx xmentionx
 Ya Allah pak Emil sampai kaget kedipannya xemoticonx xemoticonx xemoticonx
 Setuju atau tidak Jawa Timur makin bagus dengan mereka xemoticonx xemoticonx
 Mbak Arumi tetap begini ya rendah hati dan merakyat saya salut sekali xemoticonx
@@ -6800,7 +6800,7 @@ Kapan Madiun nih xemoticonx
 Sakinah mawadah warahmah terus Bu Arumi dan Bapak Emil xemoticonx xemoticonx
 Ah si bapak begitu ya, Mbak xmentionx Arumi
 Kuning bagus itu ya
-Kemarin tidak sempat salaman pas di Mercure. Sehat selalu ya
+Kemarin tidak sempat salaman ketika di Mercure. Sehat selalu ya
 xemoticonx cantiknya
 Suka sekali xemoticonx xemoticonx
 Adab makan harus tetap diutamakan ya! Mantap
@@ -6809,7 +6809,7 @@ Pokoknya cinta bu Arumi xemoticonx
 Pasar Tanjung Mojokerto
 Suka sekali ibu pejabat yang ini, ekspresif xemoticonx xemoticonx xemoticonx
 Aku suka mbak Arumi dengan Mas Emil pasti bercanda terus, ikut tertawa melihatnya xemoticonx xemoticonx
-Paling senang lihat keromantisan pasangan satu ini xemoticonx
+Paling senang melihat keromantisan pasangan satu ini xemoticonx
 Suka sekali dengan pasangan rendah hati ini xemoticonx xemoticonx xemoticonx xemoticonx
 Arumi orang keturunan Manna kabupaten Bengkulu Selatan, provinsi Bengkulu
 Mudahan terwujud ya Mbak Arumi xemoticonx xemoticonx
@@ -6819,10 +6819,10 @@ Mbak Arumi cantiknya, saya cinta kamu, saya cinta kamu
 Suka sekali
 Ekspresi mbak Arumi ketika ibunya bilang 100 ribu dapat tiga, otomatis diborong semua xemoticonx
 Rukun, bahagia dan sukses untuk pak Emil dan bu Arumi xemoticonx xemoticonx
-Masya Allah mbak, enak adem sekali lihat kalian berdua
+Masyaallah mbak, enak adem sekali melihat kalian berdua
 Bismillah insyaallah menang ya mbak Arumi dan mas Emil, suka sekali pasangan muda yang cerdas
 Semoga berikutnya bisa jadi presiden RI xemoticonx
-Satu bu dasternya buat saya xemoticonx xemoticonx xemoticonx
+Satu bu dasternya untuk saya xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx suka sekali melihat mereka ini
 Salah tingkah dengan suamimu sendiri ya mbak Arumi xemoticonx
 Sama senangnya seperti saya kalau dapat harga murah meriah xemoticonx
@@ -6830,18 +6830,18 @@ xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx suka apa pak Emil ditanya
 Sekelas Bu Arumi tahu harga 100 ribu dapat tiga langsung girang apalagi kita xemoticonx xemoticonx xemoticonx
 Hahahaha
 Saya orang Mojokerto mendukung Anda pak Emil
-Kenapa ya lihat bu Arumi xemoticonx suami selalu membuat cengir-cengir sendiri xemoticonx
+Kenapa ya melihat bu Arumi xemoticonx suami selalu membuat cengir-cengir sendiri xemoticonx
 Masyaallah istri mas Emil cantik sekali, semoga sukses selalu mas Emil dan mbak Aruminya xemoticonx
 Alhamdulillah Pak Emil sama Bu Arumi juga mencoba Sate Daging Pak Jamil depan alun-alun Kota Mojokerto
 Dan Pak Emil juga Bu Arumi merakyat sekali
-xmentionx saya jadi teringat sama ibu Mufidah Kalla di pameran sebelum H. Yusuf Kalla menjadi wakil presiden ya, beliau memilih barang yang biasa saja seperti kamu xmentionx, masya Allah sungguh rendah hati dan sederhana, bisa jadi rezeki Arumi seperti Hajjah Mufidah, kelak suaminya menjadi wakil presiden
+xmentionx saya jadi teringat sama ibu Mufidah Kalla di pameran sebelum H. Yusuf Kalla menjadi wakil presiden ya, beliau memilih barang yang biasa saja seperti kamu xmentionx, masyaallah sungguh rendah hati dan sederhana, bisa jadi rezeki Arumi seperti Hajjah Mufidah, kelak suaminya menjadi wakil presiden
 Seperti maneken
 Laris manis istriku xmentionx, terima kasih pak xmentionx dan bu xmentionx sudah mampir
 Segar
 Kedipannya pak Emil yang membuat jatuh hati ya xmentionx
 Ya Allah orang kok sederhana sekali beli baju daster 100 ribu dapat tiga. Kamu itu ya cantik bisa-bisanya beli baju semurah itu. Sudah tidak ada alasan suamimu mau korupsi kalau istri seperti ini xemoticonx xemoticonx xemoticonx xemoticonx
 Mau dasternya xemoticonx xemoticonx xemoticonx
-Senang sekali aku lihat mbak Arumi ini cantiknya luar biasa xemoticonx
+Senang sekali aku melihat mbak Arumi ini cantiknya luar biasa xemoticonx
 Mbak Arumi memang pantas mendampingi mas Emil bakal menang menjadi wakil gubernur Jawa Timur, hatinya mulia tulus tidak pernah menjatuhkan orang lain kecuali yang itu yang sirik tanda tidak mampu melawan mas Emil sama mbak Arumi yang kece badai
 Terima kasih sudah mampir ke Mojokerto ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Idola xemoticonx dulu waktu di Cito Sidoarjo ingin minta foto tapi saya sungkan, akhirnya diam-diam foto dari jauh. Beliau memang serendah hati itu xemoticonx. Sehat-sehat terus Ibu Arumi dan Bapak Emil xemoticonx xemoticonx
@@ -6877,7 +6877,7 @@ Berikutnya Bangkalan-Sumenep
 Pak Emil ayo bangun KRL rute Jawa Timur, dengan kereta cepat mobilitas ekonomi juga semakin cepat
 Lanjutkan dua periode bos
 Pak Emil keren sekali
-Saya yakin supirnya pelan-pelan, santai, dan membuat nyaman karena ada Pak Wakil Gubernur. Tidak seperti biasanya yang cenderung gas pol membuat pusing dan mual wkwk
+Saya yakin supirnya pelan-pelan, santai, dan membuat nyaman karena ada Pak Wakil Gubernur. Tidak seperti biasanya yang cenderung gas penuh membuat pusing dan mual wkwk
 Lanjutkan Allah SWT selalu melindunginya
 Terbaik mas Emil, insya Allah menang
 Mojokerto-Pasuruan kapan bapak?
@@ -6901,7 +6901,7 @@ Kalau ini kesenangan ibu Arumi jajanan pasar xemoticonx
 Amin amin amin
 Silakan dikunjungi pasar Legi Ponorogo Pak Calon Wakil Gubernur, saya yang jarang ke pasar pasti akan ke pasar kalau ada anda dan ibu Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Pasangan terbaik sukses dua periode mas xmentionx salam dari Sewulan xemoticonx xemoticonx xemoticonx
-Ibu xmentionx, saya orang Kamal, tetapi karena lagi kerja tidak ada kesempatan ke pasar. Padahal ingin bertemu dan foto-foto. Sehat dan sukses terus buat Ibu Arumi dan Bapak Emil xemoticonx xemoticonx
+Ibu xmentionx, saya orang Kamal, tetapi karena lagi kerja tidak ada kesempatan ke pasar. Padahal ingin bertemu dan foto-foto. Sehat dan sukses terus untuk Ibu Arumi dan Bapak Emil xemoticonx xemoticonx
 Boronglah Arumi xemoticonx xemoticonx xemoticonx
 Kelihatan menikmatinya bapak dan ibu
 Duta jajan diberikan untuk ibu xmentionx
@@ -6918,7 +6918,7 @@ Agenda Gresik dong
 Ke Sidoarjo pak
 Betul pak, pasar Kamal pasar terlengkap, mau cari apapun ada xemoticonx
 Pasar termurah se-Bangkalan, aku yang dari Bangkalan kota rela berbelanja sampai ke Kamal demi lengkap xemoticonx murahnya
-Semoga pas terpilih tetap melakukan seperti ini, dan tidak membiarkan Madura tambah terpuruk
+Semoga waktu terpilih tetap melakukan seperti ini, dan tidak membiarkan Madura tambah terpuruk
 Kalau ke Pamekasan sudah ya
 Kapan ke pasar Lamongan bapak ibu Emil Dardak
 Kapan pak bu main ke Palembang
@@ -6934,7 +6934,7 @@ Mas Eri mas Emil paten dilanjutkan xemoticonx
 Sering searching di Google kepemimpinan ibu xmentionx pak xmentionx banyak yang puji, merangkul semua kalangan, harmonis ke semua elemen xemoticonx xemoticonx
 xmentionx ada abah
 Ini baru yang cerdas boleh dicontoh lo xmentionx sekolah sampai S3 dulu baru pegang jabatan, harus pantas jadi panutan rakyat Indonesia xemoticonx xemoticonx
-Mas nanti kalau jadi lagi, tolong pengeras suara masjid dikendalikan, pengeras suara luar buat azan saja, kalau berkegiatan pakai pengeras suara dalam saja xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Mas nanti kalau jadi lagi, tolong pengeras suara masjid dikendalikan, pengeras suara luar untuk azan saja, kalau berkegiatan pakai pengeras suara dalam saja xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih banyak pak xmentionx
 Emil-Eri for 2029
 Batiknya bagus pak
@@ -6954,7 +6954,7 @@ Jangan lupa bapak xmentionx dan ibu xmentionx sesekali lari bersama kami xmentio
 Semoga lancar dan sukses, sehat dan terpilih wakil gubernur Jawa Timur soal keren dan pintar muda berbakat dan lincah dalam menangani Jawa Timur
 Semoga sehat selalu, semoga semuanya dilancarkan Tuhan memberkati usahanya xemoticonx xemoticonx
 Mas Emil kalau terpilih jadi wakil gubernur berarti peran istri sangat besar lo xemoticonx xemoticonx
-Masya Allah langgeng xemoticonx
+Masyaallah langgeng xemoticonx
 Terima kasih sudah berkunjung ke pasar Tanjung Anyar Mojokerto pak Emil
 Semoga sehat selalu pak ibu
 Sehat-sehat bu Arumi dan pak Emil xemoticonx xemoticonx xemoticonx xemoticonx
@@ -6968,12 +6968,12 @@ Masyaallah ibu Arumi cantik sekali xemoticonx
 Penampilan sederhana dia sudah cantik sekali diberikan Allah jadi tidak perlu ada tambahan perhiasan di tubuhnya
 salah fokus sama ucapan untuk ibu Annisa, banyak yang memberi ucapan kepada xemoticonx si penerima gelar xemoticonx tapi tidak banyak yang memberi ucapan kepada xemoticonx pendamping xemoticonx nya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx ini yang aku terapkan kalau mengucapkan HBD ke teman-teman anakku, ke orang tuanya juga harus mengucapkan sebagai bentuk dukungan orang tua ke orang tua xemoticonx xemoticonx
 Masyaallah cantik bu xemoticonx
-Anggun xemoticonx cantik sekali bu Arumi xemoticonx xemoticonx xemoticonx selamat buat pak AHY xemoticonx
+Anggun xemoticonx cantik sekali bu Arumi xemoticonx xemoticonx xemoticonx selamat untuk pak AHY xemoticonx
 Bu Arumi sudah xemoticonx doktor xemoticonx di hati kita xemoticonx. Ujiannya bisa dilihat dari keseharian terhadap suami dan anak-anak. Salut ibu xemoticonx
 Selamat dan sukses xemoticonx
 Ah selalu cantik, pakaian sopan, simpel tapi tetap mewah. Pasangan favorit aku xemoticonx xemoticonx xemoticonx xemoticonx
 Senang sekali melihat pasangan ini. Langgeng sakinah mawadah warahmah ya
-Cantiknya masya Allah xemoticonx
+Cantiknya masyaallah xemoticonx
 Ibu cantik sekali xemoticonx
 Cantiknya bu
 Ini baru doktor sungguhan berkualitas bukan abal-abal xemoticonx xemoticonx
@@ -6989,18 +6989,18 @@ Cantik
 Semakin banyak saja yang bergelar doktor di Indonesia xemoticonx xemoticonx
 Suka sekali dengan pasangan ini Arumi bersahaja xemoticonx
 Orang Surabaya xemoticonx
-Mbak Arumi sudah cantik dan amat sederhana pula. Selamat mas Agus Harimurti Yudhoyono sejak bersekolah memang pintar dan selalu juara. Dahulu SMA nya di Taruna Nusantara Magelang, terus masuk Akmil juga selalu juara. Beberapa kali saya melihat mas Agus ketika pendidikan di Magelang.
+Mbak Arumi sudah cantik dan sekali sederhana pula. Selamat mas Agus Harimurti Yudhoyono sejak bersekolah memang pintar dan selalu juara. Dahulu SMA nya di Taruna Nusantara Magelang, terus masuk Akmil juga selalu juara. Beberapa kali saya melihat mas Agus ketika pendidikan di Magelang.
 Selain Raffi dengan istri, Agus Harimurti dengan istri, ini juga salah satu idolaku sekali xemoticonx xemoticonx
 Bajunya sederhana tapi cantiknya xemoticonx xemoticonx
 Cantik xemoticonx rendah hati xemoticonx
-Mbak Arumi cantik sekali memakai kebaya warna biru cantik sekali, mas Emil sayang sekali dengan mbak Arumi, tidak bosan-bosan melihat pasangan ini, sukses sehat-sehat buat mas Emil xemoticonx mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Mbak Arumi cantik sekali memakai kebaya warna biru cantik sekali, mas Emil sayang sekali dengan mbak Arumi, tidak bosan-bosan melihat pasangan ini, sukses sehat-sehat untuk mas Emil xemoticonx mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sopan santun, rendah hati, riang xemoticonx itulah mbak Arumi
 xemoticonx xemoticonx Bu Arumi sama pak Emil Dardak wajib jadi panutan cerdas merakyat semoga selalu diberikan kemudahan untuk membangun negeri ini khususnya Jawa Timur, amin
 Wah cantik sekali Arumi
 Semua mata tertuju sama ibu Arumi sekarang cantiknya ibu ini, masyaallah, idola aku dari dulu xemoticonx xemoticonx xemoticonx xemoticonx
 Profil istri pejabat yang bersahaja, beliau memang beda, spesial pokoknya xemoticonx xemoticonx
 Cantiknya mbak Arumi
-Sudah cantik santun pula, cinta sudah buat bu Arumi xemoticonx
+Sudah cantik santun pula, cinta sudah untuk bu Arumi xemoticonx
 Semoga mas Emil terpilih wakil gubernur Jawa Timur karena muda, cekatan, damai, dan berprestasi
 Cantik sekali
 Masyaallah menyala xemoticonx xemoticonx
@@ -7028,7 +7028,7 @@ Pak xmentionx ke Malang dong
 Tahun ini memilihnya di Jawa Timur, sudah pindah dari DKI. Akhirnya bisa ikut memilih. Semoga sukses dan terpilih kembali. Lanjutkan xemoticonx
 Ke pasar Kwanyar kabupaten Bangkalan - Jawa Timur
 Sebenarnya pak Emil Dardak kok tidak jadi wakil presiden saja sih
-Terima kasih buat bapak Emil dan ibu Arumi sudah berkunjung ke pasar menganti kami xemoticonx xemoticonx xemoticonx
+Terima kasih untuk bapak Emil dan ibu Arumi sudah berkunjung ke pasar menganti kami xemoticonx xemoticonx xemoticonx
 Halo kakak aku yang di pasar tadi Bangkal xemoticonx yang tadi kakak belikan telur gulung xemoticonx xemoticonx ma
 Minimal wakil presiden itu pintar seperti ini xemoticonx
 Coba ke sini dong bu ke pasar Kwanyar kabupaten Bangkalan - Jawa Timur
@@ -7074,10 +7074,10 @@ Kita satu tim bu Arumi, takut sekali kalau soal goreng menggoreng xemoticonx xem
 Sederhana sekali suami istri ini
 Semoga mbak Arumi selalu di samping mas Emil terus walaupun nanti mbak Arumi kalau kembali jadi artis lagi dan ke mana pun selalu di sampingnya dan saya doakan mas Emil terpilih menjadi wakil gubernur Jawa Timur
 Pak jadi wakil presiden saja pak, gantikan itu
-Tip buat bu ibu semua, kalau goreng-goreng agar tidak meletus minyaknya ada caranya lo, sebelum menggoreng tunggu minyak sampai panas setelah itu taburi dengan tepung terigu baru masukkan bahan yang akan digoreng, dijamin aman dan anti meledak-ledak minyaknya
-Paling kalau lihat keluarga ini
+Tip untuk bu ibu semua, kalau goreng-goreng agar tidak meletus minyaknya ada caranya lo, sebelum menggoreng tunggu minyak sampai panas setelah itu taburi dengan tepung terigu baru masukkan bahan yang akan digoreng, dijamin aman dan anti meledak-ledak minyaknya
+Paling kalau melihat keluarga ini
 Pintar cantik tapi tetap bisa menempatkan diri sebagai seorang istri xemoticonx
-Aku takut xemoticonx, itu pak Emil bawa sendiri buat anak buahnya, salut
+Aku takut xemoticonx, itu pak Emil bawa sendiri untuk anak buahnya, salut
 Arumi kalau bicara acak sekali xemoticonx
 Bismillah insyaallah Allah amanahkan tugas lagi di periode yang akan datang sebagai wakil gubernur Jawa Timur, amin ya Allah amin
 Daftar jadi asisten rumah tangga boleh mbak Arumi, saya suka keluarga sederhana biar jadi pejabat
@@ -7134,10 +7134,10 @@ Sudah jadi orang Jawa medok xemoticonx xemoticonx xemoticonx
 Mirip papahnya yang lelaki
 Kulitnya begitu mulus
 Semangat bapak wakil gubernur Jawa Timur
-Wah, keren mas Emil, sudah mampir di Tulungagung. Terima kasih dan sukses selalu buat mas Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Wah, keren mas Emil, sudah mampir di Tulungagung. Terima kasih dan sukses selalu untuk mas Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bapak wakil gubernur semua bisa tetap kalem dan berwibawa, semoga mendapat amanah lagi
 Akustikan dong Mil, di kedai saya, Candu Coffee House, cie. Tapi masih konsep belum direalisasi xemoticonx xemoticonx xemoticonx xemoticonx
-Gas pol, semoga bisa mencetak atlet nasional olahraga air dari kolam renang ini. Maju terus Jawa Timur
+Gas penuh, semoga bisa mencetak atlet nasional olahraga air dari kolam renang ini. Maju terus Jawa Timur
 Keren pak Emil suaranya. xemoticonx xemoticonx
 Sukses terus pak Emil. Muda inovatif, kreatif dan visioner. Ditunggu kedatangannya kembali di Tulungagung.
 Terima kasih Bapak xmentionx sudah singgah di Tulungagung. xemoticonx
@@ -7178,7 +7178,7 @@ Panutan anak muda, lanjutkan dua periode mas Emil
 Pemuda Jawa Timur semua dukung mas Emil, semangat terus pak memajukan Jawa Timur
 Lanjutkan perjuangan mas Emil sehat xemoticonx terus ya xemoticonx
 Meskipun muda tetap jadi yang teladan
-Contoh keren buat anak muda ya Pak Emil. xemoticonx xemoticonx
+Contoh keren untuk anak muda ya Pak Emil. xemoticonx xemoticonx
 Masyaallah sehat dan semangat terus ya Pak Emil
 Maju terus pak xmentionx. xemoticonx xemoticonx
 Memang sosok pemimpin muda yang teladan pak Emil xemoticonx
@@ -7186,7 +7186,7 @@ Masyaallah bapak Emil. Lanjutkan dua periode! Sukses selalu
 Wah mas Emil panutan muda mudi sekali. Menyala mas Emil xemoticonx xemoticonx xemoticonx
 Maju terus bang Emil, ini masanya anak muda yang maju xemoticonx
 Semoga sukses pak! xemoticonx xemoticonx xemoticonx
-Contoh baik buat muda mudi. Lanjutkan bapak Emil
+Contoh baik untuk muda mudi. Lanjutkan bapak Emil
 Memang pak Emil panutan sekali jadi pemimpin pemuda
 Kediri Kota hadir. Bolone mase semantapnya. xemoticonx
 Mantap mas Emil xemoticonx xemoticonx
@@ -7203,7 +7203,7 @@ Yang datang ini kan koordinator Se-Jawa Timur, kalau baca di media xemoticonx xe
 Lanjutkan dua periode pak xemoticonx
 Lanjutkan dua periode mas Emil xemoticonx
 Panutan muda-mudi, semangat pak
-Sehat dan sejahtera selalu buat bapak xemoticonx xemoticonx
+Sehat dan sejahtera selalu untuk bapak xemoticonx xemoticonx
 Mas Emil kamu adalah panutan bagi anak muda untuk Jawa Timur
 Semangat Pak Emil jalankan dua periode xemoticonx xemoticonx
 Pasti bisa dua periode pak, semangat xemoticonx
@@ -7227,14 +7227,14 @@ Lanjut dua periode dari kabupaten Pasuruan
 Pak xmentionx selalu menjalin silaturahmi yang hangat melalui acara keagamaan xemoticonx xemoticonx
 Masyaallah tabarakallah semoga Allah selalu melindungi keluarga pak Emil. Amin
 Memang legendaris sate ini Bu. Sop buntutnya juga enak
-Duh lihat pak Emil adem sekali, sehat selalu pasangan terbaik pak Emil and ibu Arumi xemoticonx
-Semoga sehat selalu buat bapak dan ibu, dilancarkan segala rencananya. Semoga Jawa Timur menjadi semakin baik ke depannya.
+Duh melihat pak Emil adem sekali, sehat selalu pasangan terbaik pak Emil and ibu Arumi xemoticonx
+Semoga sehat selalu untuk bapak dan ibu, dilancarkan segala rencananya. Semoga Jawa Timur menjadi semakin baik ke depannya.
 Sehat-sehat selalu ya idolaku. xemoticonx
 Sudah jatuh cinta kepada pasangan ini. Lebih cocok untuk gubernur saja. Semangat dan sehat selalu bapak Emil.
 Ayo bangkit pariwisata Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Saya dari Mojokerto. Suka sekali dengan makanan di warung pak Djamil
 Sate pak Djamil memang legendaris endul. xemoticonx xemoticonx xemoticonx
-Mantap mbak xmentionx mas xmentionx. Kalau lihat sate pak Djamil, jadi ingat bu xmentionx. Sudah lama tidak menyantap dan ngopi di Rumah Rakyat Pemkot Mojokerto
+Mantap mbak xmentionx mas xmentionx. Kalau melihat sate pak Djamil, jadi ingat bu xmentionx. Sudah lama tidak menyantap dan ngopi di Rumah Rakyat Pemkot Mojokerto
 xmentionx xmentionx xmentionx sate komoh ini saya suka
 Bismillah nomor dua untuk Jawa Timur. xemoticonx Lanjutkan Bu xmentionx dan Mas xmentionx xemoticonx xemoticonx
 Hadir
@@ -7259,7 +7259,7 @@ Sate Jamil alun-alun Mojokerto. Mantap sekali. xemoticonx xemoticonx
 Berak
 Waduh. makannya top.
 Weh. xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Sate khas dengan menu pecel, sayur asem dan rawon. Sayur asemnya segar.
-Semangat terus buat mas Emil. xemoticonx Insya Allah berkah mas perjuanganmu bareng ningrat.
+Semangat terus untuk mas Emil. xemoticonx Insya Allah berkah mas perjuanganmu bareng ningrat.
 Mbak Arumi kalau ke Mojokerto lagi mampir ke lapak saya ya mbak, mencicipi bubur kacang hijau ketan hitam
 Wah ke Mojokerto
 Lanjutkan. Lanjutkan. Semangat dan semangat terus pak Emil beserta Ibu Khofifah. xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -7283,7 +7283,7 @@ Sukses selalu bapak xmentionx dan ibu xmentionx xemoticonx xemoticonx xemoticonx
 Berdua selalu romantis pak Emil sama bu Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Wah saya kok tidak tahu kalau ada calon wakil gubernur ke Mojokerto. Pasti juara satu lanjutkan
 Mudah-mudahan tetap jadi wakil gubernur terpilih xemoticonx xemoticonx
-Senang kalau lihat mbak Arumi sama pak Emil xemoticonx xemoticonx
+Senang kalau melihat mbak Arumi sama pak Emil xemoticonx xemoticonx
 Pak Emil dan mbak Rumi datang dong ke Banyuwangi xmentionx
 Wisata alam di Jawa Timur harus dipelihara dan diperbanyak pak. Bangun banyak taman kota yang megah dan bagus. Jadi banyak wisatawan yang mau datang. Orang kotanya sendiri juga dapat wisata gratis
 Yang anak SMK itu tetangga depan rumah
@@ -7317,7 +7317,7 @@ Ya Allah saya pernah makan bersama almarhum pak
 Rumah eyangnya mas Emil dekat rumah orang tua saya
 Memang daerah Trenggalek tidak ada obatnya apalagi daerah Kampak, daerah eyang juga. Rindu xemoticonx
 Dekat dengan rumah saya pak Emil
-Pak Emil kecilnya bukan di Jakarta ya? Di Pondok Kelapa kompleks DPU DKI, dulu masih punya adik Alisha saja, baru 2 anaknya pak Hermanto Dardak dan ibu Wid
+Pak Emil kecilnya bukan di Jakarta ya? Di Pondok Kelapa kompleks DPU DKI, dulu masih punya adik Alisha saja, baru dua anaknya pak Hermanto Dardak dan ibu Wid
 Saya dan keluarga besar selalu menjadi pendukung bapak Emil di pemilihan gubernur 2024
 Ubin zaman dulu, segar
 Pak Emil Dardak memang keturunan orang kaya, dari kakek moyang sudah punya nama xemoticonx xemoticonx xemoticonx xemoticonx
@@ -7369,7 +7369,7 @@ Kata siapa sepi. Ini ramai. Semoga jadi tambah ramai pak wakil gubernur
 Semangat Pak Emil, keluarga yang di Jawa Timur harus pilih Pak Emil nih
 Terminalnya Kediri bagus lo
 Calon wakil gubernur Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx menyala BOS
-Semoga kalau pulang kampung ke Trenggalek ketemu Pak Emil
+Semoga kalau pulang kampung ke Trenggalek bertemu Pak Emil
 Semoga sehat selalu dan sukses terus pak
 Bapak wakil gubernur banyak melakukan terobosan mulai dari bupati dulu tetap rendah profil xemoticonx
 Mbak Aruminya mana pak
@@ -7440,7 +7440,7 @@ Idaman sekali sih pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticon
 Orang Trenggalek memang keren xemoticonx xemoticonx xemoticonx xemoticonx
 Bahagia sekali melihatnya
 Saya juga mau dijemput pak suami xemoticonx xemoticonx xemoticonx xemoticonx
-Lolly harus lihat ini
+Lolly harus melihat ini
 Beruntung saya tidak menjadi kameramennya xemoticonx cemburu pasti, sambil garuk-garuk kamera xemoticonx xemoticonx xemoticonx
 Masyaallah xemoticonx
 Kak Arumi kerja dimana kak? xmentionx
@@ -7501,7 +7501,7 @@ Pasangan terfavorit. Ibu kagum xemoticonx xemoticonx salam kenal dari Jakarta Se
 Keduanya tokoh masyarakat yang menjaga adab, saling cinta tapi sangat santun
 Masyaallah senang sekali melihat pasangan ini apalagi pandangan pak Emil ke istrinya selalu membuat meleleh
 Keinginanku cuman satu punya istri cantik seperti mbak Arumi xemoticonx xemoticonx
-Pak Emil kalau sudah lihat bu Arumi seperti macam mau memeluk dan mencium saja xemoticonx
+Pak Emil kalau sudah melihat bu Arumi seperti macam mau memeluk dan mencium saja xemoticonx
 Ya Allah berikan satu pasangan seperti pak Emil yang selalu menyayangi istrinya xemoticonx
 Bagaimana rasanya pak xmentionx punya istri cantiknya seperti Barbie hidup xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga sampai akhir jangan hanya hangat di awal akhirnya bercerai lagi, semoga tidak xemoticonx
@@ -7528,7 +7528,7 @@ Aduh keren sudah pintar rendah hati baik jago nyanyi musik, paket komplit cocok 
 Masih cocok pak
 Gantengnya ya Allah
 Cocok pak, seperti generasi Z xemoticonx
-Satu kata buat pak wakil gubernur xmentionx keren
+Satu kata untuk pak wakil gubernur xmentionx keren
 Semua diborong sih pak xemoticonx xemoticonx xemoticonx xemoticonx
 Keren sekali xemoticonx xemoticonx xemoticonx
 Cocok xemoticonx
@@ -7539,11 +7539,11 @@ Sukses selalu pak Emil xemoticonx xemoticonx xemoticonx
 Sukses selalu Pak Emil bismillah
 Maju terus orang pintar dan pandai pak Emil terbaik xemoticonx xemoticonx
 Jadwal ke Tulungagung kapan Pak
-Tenteram lihat mas Emil bekerja untuk rakyat
+Tenteram melihat mas Emil bekerja untuk rakyat
 Terima kasih sudah datang ke kampung kami, mas xemoticonx xemoticonx xemoticonx
 Dukung pak Emil
 Lanjutkan rompi oranye
-Semoga sukses Pak xmentionx jadi ingin pulang kampung kalau lihat video begini xemoticonx
+Semoga sukses Pak xmentionx jadi ingin pulang kampung kalau melihat video begini xemoticonx
 Semoga sukses pak xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Wkwkwkwk lagu lama ambil aksi mulai syuting ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lupa, Trenggalek ya
@@ -7556,7 +7556,7 @@ xemoticonx xemoticonx xemoticonx xemoticonx lanjutkan terus
 Semangat terus ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Saya membaca banyak sekali yang mengapresiasi 02, banyak prestasi dan mampu merangkul semua elemen masyarakat. Semoga menang 02 amin xemoticonx xemoticonx
 Bismillah lancar Mas Emil dan Mbak Arumi, kami selalu mendukung xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat dan sukses selalu buat mas Emil dan mbak Arumi
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat dan sukses selalu untuk mas Emil dan mbak Arumi
 Lanjutkan pak Emil, semoga sukses
 Lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bismillah ya Allah lancar sehat selalu Allah jaga selalu kami sekeluarga pilihannya
@@ -7591,14 +7591,14 @@ Di Gresik Utara, pak. Tetangganya Bungah
 ACARA APA INI KOK TIDAK TAHU xemoticonx xemoticonx xemoticonx
 MENCARI SUARA YA xemoticonx xemoticonx xemoticonx
 Biasa, menjelang pemilihan umum
-Sudah tahu di Gresik, saya orang Gresik lihat jalan provinsi rusak parah banyak yang jatuh dan meninggal dunia. Jalan rusak parah bergelombang parah dan cuma ditambal sekotak-sekotak itu jalan provinsi dikira gubuk apa asal tambal-tambal jalannya saja, lebih bagus jalan desa saya
+Sudah tahu di Gresik, saya orang Gresik melihat jalan provinsi rusak parah banyak yang jatuh dan meninggal dunia. Jalan rusak parah bergelombang parah dan cuma ditambal sekotak-sekotak itu jalan provinsi dikira gubuk apa asal tambal-tambal jalannya saja, lebih bagus jalan desa saya
 Gresik pilih bunda xmentionx dan Pak xmentionx
 Merakyat
 Semangat pak Emil semoga perjuangannya tidak sia-sia sehingga bisa mengangkat perekonomian masyarakat pesisir
 Sukses terus Kang Emil. Semoga bisa membuat program-program yang semakin sukses ke depannya
 Terima kasih Pak Emil atas dedikasinya hingga bisa membuat terobosan untuk memberdayakan masyarakat pesisir agar ekonomi meningkat
 Program yang sangat bermanfaat untuk masyarakat dan lingkungan. Terima kasih Pak Emil
-Terima kasih pak Emil atas program yang sangat bermanfaat buat para masyarakat di pesisir
+Terima kasih pak Emil atas program yang sangat bermanfaat untuk para masyarakat di pesisir
 Senang melihatnya mas, semoga perikanan Indonesia bisa semakin maju xemoticonx
 Artinya program pemerintahnya jalan, mantap pokoknya mas Emil
 Semoga hasil bincang-bincang dan serap aspirasi ini bisa memberikan manfaat positif untuk nelayan
@@ -7609,10 +7609,10 @@ Ekowisata dan mangrove sekarang sudah bisa dinikmati hasilnya ya mas xemoticonx 
 Terima kasih mas Emil dan ibu Khofifah sudah peduli pada nelayan kecil
 Maju terus perikanan Indonesia, semangat mas Emil dalam bekerja xemoticonx xemoticonx
 Kalau kerja dari hati insyaallah bahagia ya mas Emil
-Suka sekali lihat mas Emil kalau bekerja itu benar-benar dilakukan dengan penuh tanggung jawab. Semoga semua pemimpin di Indonesia bisa seperti ini
+Suka sekali melihat mas Emil kalau bekerja itu benar-benar dilakukan dengan penuh tanggung jawab. Semoga semua pemimpin di Indonesia bisa seperti ini
 Tahu, di Gresik
 Kerja nyata Kang Emil, dengan kunjungan begini pasti nelayan senang
-Lihat ikan begini jiwa memasakku meronta
+melihat ikan begini jiwa memasakku meronta
 Ini keren sekali, nelayan memang butuh perhatian lebih
 Merakyat. Ini keren sekali
 Tidak membeli kepiting apa pak xmentionx xemoticonx
@@ -7695,8 +7695,8 @@ Ke Kediri pak Emil. Desa Sukoharjo Kecamatan Kayen Kidul. Beli pupuk subsidi har
 Mas xmentionx mohon maaf sedikit masukan dan saran, untuk motto khususnya petani adalah petani bahagia dimana sarana dan prasarana untuk menunjang budidaya pertanian terpenuhi dan juga regenerasi petani harus juga digalakkan, sehingga generasi penerus pertanian terus berjalan yang muda-muda tidak malu dan tidak gengsi bahkan bangga dan maju ikut andil peran dalam pembangunan pertanian
 BERANTAS stunting
 Pasangan yang rendah hati xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Menyenangkan sekali lihat pejabat yang merakyat xemoticonx xemoticonx xemoticonx xemoticonx
-Pak Emil dan Bu Arumi Masya Allah tabarakallah sangat ramah sekali xemoticonx itu saya yang minta foto kemarin xemoticonx xemoticonx
+Menyenangkan sekali melihat pejabat yang merakyat xemoticonx xemoticonx xemoticonx xemoticonx
+Pak Emil dan Bu Arumi Masyaallah tabarakallah sangat ramah sekali xemoticonx itu saya yang minta foto kemarin xemoticonx xemoticonx
 Salam saya warga Jombang pak
 xemoticonx xemoticonx xemoticonx xemoticonx ibu benar-benar cantik dan ramah. Terima kasih ya sudah mau foto kemarin xemoticonx xemoticonx
 Walaupun aku bukan orang Jawa Timur aku pribadi sangat mendukung mas Emil akan menjadi pemimpin di Jawa Timur lagi jilid dua karena Jawa Timur lima tahun ini luar biasa perkembangannya
@@ -7709,7 +7709,7 @@ Sama mbak tidak pernah puas dengan satu jajanan harus dicoba semua xemoticonx ga
 Bu xmentionx saya orang Jombang. Terima kasih sudah berkunjung xemoticonx xemoticonx xemoticonx
 Bahagia itu sederhana
 xmentionx hahaha aku yang mau jajan saja harus berpikir 1000 kali xemoticonx xemoticonx
-Aduh tempat main anak-anak kalau pas pulang kampung alun-alun Jombang xemoticonx xemoticonx
+Aduh tempat main anak-anak kalau waktu pulang kampung alun-alun Jombang xemoticonx xemoticonx
 Serasi xemoticonx xemoticonx xemoticonx sekali
 Pak, kalau ada program pencegahan stunting. Kami ingin gabung. Semoga berkenan xemoticonx
 Mampir ke Trenggalek pak
@@ -7719,7 +7719,7 @@ xemoticonx xemoticonx Terima kasih sudah datang ke Jombang
 Kalau tahu mau ada mbak Arumi aku tidak pulang dulu kemarin
 Jajanan emperan tapi tidak murahan mantap kang, inilah produk UMKM masyarakat yang tidak kalah dengan restoran
 Mas Emil mbak Arumi ke Madiun xemoticonx
-Suatu kebanggaan buat para pedagang, pejabat tinggi provinsi tidak risih jajan di pedagang gerobak, sehat dan sukses selalu Bapak dan Ibu wakil gubernur, semoga dagangan para pedagang laris manis
+Suatu kebanggaan untuk para pedagang, pejabat tinggi provinsi tidak risih jajan di pedagang gerobak, sehat dan sukses selalu Bapak dan Ibu wakil gubernur, semoga dagangan para pedagang laris manis
 Ke Car Free Day Tulungagung pak Emil
 Yang mencalonkan suami yang kampanye istri. Klop
 Masa gubernur diberi makan begitu, itu sih kurang hati atau ayam atau jerohan atau lele atau xemoticonx. Bisa lemas saya dibuat begitu xemoticonx xemoticonx
@@ -7782,7 +7782,7 @@ Cantik, pintar, dan sederhana. Paket komplit deh xemoticonx
 Masyaallah selalu harmonis ya semoga allah selalu lindungi rumah tangga mereka amin ya rabbal alamin xemoticonx xemoticonx
 Sehat selalu, sakinah, mawadah, warahmah amin
 Pasangan yang terbaik xemoticonx xemoticonx xemoticonx xemoticonx
-Sentuhan fisik si bapak, selalu bikin yang lihat adem, semoga langgeng hingga akhir
+Sentuhan fisik si bapak, selalu bikin yang melihat adem, semoga langgeng hingga akhir
 Mengidolakan sekali sama Arumi basin sekarang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Keren, cantik, pintar xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bu Arumi Emil Dardak keren ini pasti mentor bapak Emil Dardak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -7792,14 +7792,14 @@ Mbak xmentionx tidak ingin juga mulai meniti karier di politik? Saya rasa sudah 
 xmentionx Masyaallah cantik sekali sih kakak Arumi
 Masyaallah mbak Arumi pintar sekali masih muda selalu siap ditampilkan dimana saja tetap ok sukses ya mbak Arumi xemoticonx xemoticonx
 Pasangan yang serasi xemoticonx ideal xemoticonx
-Terbaik pokoknya mbak Arumi, sosok wanita yang luar biasa ramah dan selalu menebar senyum dimana pun berada xemoticonx dalam sambutan yang di sampaikan selalu memotivasi buat kita semua
+Terbaik pokoknya mbak Arumi, sosok wanita yang luar biasa ramah dan selalu menebar senyum dimana pun berada xemoticonx dalam sambutan yang di sampaikan selalu memotivasi untuk kita semua
 Masyaallah pintar cantik pula
 Manis sekali sih kalian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kakak cantik seperti ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah selalu harmonis xemoticonx xemoticonx
 Ibu pejabat satu ini memang beda dari yang lain. Sederhana, sopan, pakaiannya menunjukkan kecantikan hatinya. Tidak terlihat pakai baju minim-minim. Cantik paras dan hati subhanallah xemoticonx xemoticonx
-Suka lihat keluarga ini semoga makin tambah langgeng pernikahannya
-Mbak Arumi itu penampilannya bersahaja, tidak mentang-mentang istri pejabat terus menjinjing tas ratusan juta produk luar, tapi beda pas kampanyenya pakai tas lokal. Mereka benar-benar serasi, tidak pencitraan
+Suka melihat keluarga ini semoga makin tambah langgeng pernikahannya
+Mbak Arumi itu penampilannya bersahaja, tidak mentang-mentang istri pejabat terus menjinjing tas ratusan juta produk luar, tapi beda waktu kampanyenya pakai tas lokal. Mereka benar-benar serasi, tidak pencitraan
 Semoga sampai hayat memisahkan ya kak budak cinta kalian berdua senang deh melihatnya xemoticonx xemoticonx xemoticonx
 Mesra selalu ya dan bersahaja xemoticonx xemoticonx
 Sehat selalu ibu Arumi dan keluarga
@@ -7808,17 +7808,17 @@ Sama lagi sakit gigi juga nih xemoticonx
 Masyaallah keren sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Aku akan setia dan dukung terus dibarisan mas ahy dan mas Emil Dardak semangat orang-orang pintar dan hebat
 Keisha xemoticonx Qeinan sudah besar ya Bu
-Yang lihat, Ikut senang nih Bu xmentionx
-Betul sekali dan kalau diajak makan bersama pas berkunjung apa saja mau tidak pilih-pilih layanannya enak sekali tidak merepotkan diundang selalu mengusahakan bisa datang. Baik itu mau pemilihan kepala daerah atau tidak istri pejabat idaman ibu-ibu
+Yang melihat, Ikut senang nih Bu xmentionx
+Betul sekali dan kalau diajak makan bersama waktu berkunjung apa saja mau tidak pilih-pilih layanannya enak sekali tidak merepotkan diundang selalu mengusahakan bisa datang. Baik itu mau pemilihan kepala daerah atau tidak istri pejabat idaman ibu-ibu
 Asalamualaikum mbak Arumi semoga sehat selalu cantik sekali
 Kereta api Madura kapan pak? xemoticonx
 Manis sekali pasangan yang serasi dan bersahaja serta santun dengan masyarakat xemoticonx xemoticonx xemoticonx
 Perkumpulan keluarga ini mah xemoticonx xemoticonx xemoticonx
 Sehat terus ya mbak
-Aduh bawa perasaannya lihat idolaku xemoticonx xemoticonx xemoticonx
+Aduh bawa perasaannya melihat idolaku xemoticonx xemoticonx xemoticonx
 Genggaman tangan sama tatapan mata pak Emil selalu buat gagal fokus xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah keren mbak
-Waktu acara ini lihat mbak Arumi, ya ampun cantiknya, seperti boneka hidup xemoticonx xemoticonx
+Waktu acara ini melihat mbak Arumi, ya ampun cantiknya, seperti boneka hidup xemoticonx xemoticonx
 Keluarga idaman ibu pejabat yang santun dan cantik keren ibu Arumi bahagia dan sehat selalu beserta keluarga xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mbak Arumi kayaknya orangnya tidak pernah marah ya xemoticonx senang melihatnya senyum terus xemoticonx
 Lepas tangan kiri pegang tangan kanan xemoticonx xemoticonx
@@ -7833,7 +7833,7 @@ Keren xemoticonx xemoticonx xemoticonx
 Suaranya bagus sekali pak
 Keren pak luar biasa xemoticonx
 Suaramu bagus xemoticonx xemoticonx
-Barusan lihat langsung, keren ternyata xemoticonx xemoticonx xemoticonx
+Barusan melihat langsung, keren ternyata xemoticonx xemoticonx xemoticonx
 Mantap suara xemoticonx
 Keren sekali suaranya mas Emil
 Bagus sekali suaranya Pak, keren xemoticonx xemoticonx xemoticonx xemoticonx
@@ -7853,18 +7853,18 @@ Menyala Mas xemoticonx xemoticonx
 Zepi apa dipanggil KPK
 Mantap
 Gabung kahitna pak haha
-Bapak ini pembawaannya kalem ya, lembut, benar kata mbak Arumi pas acara pagi-pagi ambyar xemoticonx kalau suaminya kaya air, tenang xemoticonx Masyaallah keren sih. Tipe pemimpin
-Senang kalau lihat pak Emil beliau sosok orang penyabar, penyayang dan setia terhadap keluarga, terutama kepada sang Istri setia, sayang dan baik pokoknya senang lihat keluarga ini saling menyayangi semua, sehat-sehat pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bapak ini pembawaannya kalem ya, lembut, benar kata mbak Arumi waktu acara pagi-pagi ambyar xemoticonx kalau suaminya kaya air, tenang xemoticonx Masyaallah keren sih. Tipe pemimpin
+Senang kalau melihat pak Emil beliau sosok orang penyabar, penyayang dan setia terhadap keluarga, terutama kepada sang Istri setia, sayang dan baik pokoknya senang melihat keluarga ini saling menyayangi semua, sehat-sehat pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Dari zaman mereka pacaran sampai sekarang suka sekali xemoticonx bahagia selalu ya kalian berdua xemoticonx xemoticonx
 Kale sudah besar ya nak sehat selalu Kale
 Hidup sesederhana, seindah dan semudah ini, bersahaja apa adanya pada hal apa-apanya ada luar biasa keluarga baik Anda ada level jadi tokoh negeri ini nomor satu kalau perlu xemoticonx xemoticonx xemoticonx
 Keluarga idolaku xemoticonx
-Adem sekali lihat keluarga bahagia ini xemoticonx xemoticonx
+Adem sekali melihat keluarga bahagia ini xemoticonx xemoticonx
 Sehat-sehat bapak ibu sekeluarga xemoticonx xemoticonx
 Bapak ini sepertinya bapak yang baik dan suami yang baik
 Banyakin video Kale dong xemoticonx xemoticonx masyaallah
 Beruntungnya mbak Arumi memiliki mas Emil yang kelihatannya sabar dan sayang sekali sama istri dan anak-anak xemoticonx xemoticonx
-Ketemu pak Emil beberapa kali diacara kampus. Salah satu momen pada saat beliau memberikan sambutan. Luar biasa, dengan gaya bicara yang santun, langsung ke intinya, lembut, dan tegas, terlihat sekali pak Emil sangat cerdas dan rendah hati. Salut untuk pak Emil dan bu Arumi. Semoga keluarga selalu dalam keberkahan
+Bertemu pak Emil beberapa kali diacara kampus. Salah satu momen pada saat beliau memberikan sambutan. Luar biasa, dengan gaya bicara yang santun, langsung ke intinya, lembut, dan tegas, terlihat sekali pak Emil sangat cerdas dan rendah hati. Salut untuk pak Emil dan bu Arumi. Semoga keluarga selalu dalam keberkahan
 Semoga menjadi keluarga sakinah, mawadah, warrohmah bahagia dunia sampai akhirat
 Bu xmentionx pak Emil itu pernah marah tidak sih? Kok kayaknya tenang sabar begitu, apalagi kalau sudah sama ibu berdua ya Allah yang lain berasa mengontrak. Tatapan sayang dan cintanya ke ibu masyaallah sekali Sehat-sehat selalu bapak ibu wakilku salam dari Ponorogo ya
 Salah satu wanita yang beruntung adalah Aurel dan Arumi
@@ -7874,11 +7874,11 @@ Perasaan kemarin masih bayi, tahu-tahu sudah besar
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx adem lihatnya
 Kale xemoticonx
 Karena papa sudah mulai sibuk dengan kegiatan sebagai wakil gubernur Jawa Timur xemoticonx I xemoticonx xemoticonx xemoticonx
-Lihat pak Emil itu tenang orangnya, rendah hati sekali semoga bisa jadi presiden RI selanjutnya xemoticonx
+melihat pak Emil itu tenang orangnya, rendah hati sekali semoga bisa jadi presiden RI selanjutnya xemoticonx
 Suka aku melihatnya Pak Emil dan istri tidak banyak omong santun orangnya
 Pak Emil kaya suamiku dingin sekali
-Boleh satu saja buat jodoh hamba ya tuhan xemoticonx xemoticonx
-sakinah mawadah warrahmah buat bu Arumi dan pak Emil
+Boleh satu saja untuk jodoh hamba ya tuhan xemoticonx xemoticonx
+sakinah mawadah warrahmah untuk bu Arumi dan pak Emil
 Rumahnya nampak sederhana
 Sepertinya bapak ini nada bicaranya selalu Do tidak pernah sampai ke Sol
 Masyaallah xemoticonx xemoticonx untuk keluarga kecil ini
@@ -7905,7 +7905,7 @@ Sekarang kalendra sudah besar sehat selalu ya anak ganteng
 Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Subhanallah yang jadi ibunya Arumi pasti bahagia terus karena punya mantu lemah lembut saleh abdi negara jadi Meri melihati Semoga anakku perempuan dapat jodoh seperti pak Dardak penyayang keluarga bismillah kunfayakun amin ya rabbal alamin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Suaminya adem sekali bu tenang dan dewasa sabar juga beruntungnya bu xmentionx
-Senang lihat Bapak xmentionx layak jadi RI satu nih
+Senang melihat Bapak xmentionx layak jadi RI satu nih
 Andai dia yang mencalonkan diri jadi presiden bakal kupilih dengan segala kerelaan hati
 Contoh suami idaman, sehat selalu suami idamannya mbak Arumi
 Kalendra muka pak Emil sekali
@@ -7922,13 +7922,13 @@ Suami dan Bapak idaman xemoticonx
 Presiden selanjutnya
 Sehat selalu anak ganteng Kale
 Sehat terus bapak dan keluarga
-Hm suami seperti ini langka deh kayaknya semoga sehat dan langgeng terus xemoticonx
+hem suami seperti ini langka deh kayaknya semoga sehat dan langgeng terus xemoticonx
 Suka sekali sama pak Emil xemoticonx xemoticonx xemoticonx
 Idolaku dari dulu, semoga sehat selalu pak Emil dan mbak Arumi xemoticonx
 Masyaallah, Kale xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah semoga keluarga pak Emil selalu dilindungi Allah Amin
 Alhamdulillah saya bukan beruntung tapi berbahagia sesuai dengan porsinya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Senang saja lihat keluarga Emil dan Arumi semoga selalu Bahagia dan selalu dalam Lindungan Allah Amin xemoticonx xemoticonx xemoticonx xemoticonx
+Senang saja melihat keluarga Emil dan Arumi semoga selalu Bahagia dan selalu dalam Lindungan Allah Amin xemoticonx xemoticonx xemoticonx xemoticonx
 Kalemnya xemoticonx xemoticonx xemoticonx xemoticonx idaman wanita
 Masyaallah Tabarakallah sehat-sehat ya orang-orang baik sakinah mawadah warrahmah selamanya sehidup se-Syurganya Allah Ta'ala
 Bu tidak sowan ke Trenggalek
@@ -7936,14 +7936,14 @@ Aku melihat Arumi dan Emil senang sekali Emil terlihat sangat mengayomi keluarga
 Si Cantik kalem.
 Bapak yang baik dan perhatian keluarga xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mas Emil persis suami saya bawaan xemoticonx penampilan xemoticonx tenang xemoticonx
-Lihat Emil adem sekali pembawannya
+melihat Emil adem sekali pembawannya
 Di rumah jadi bapak yang baik untuk keluarga, di luar rumah jadi bapak untuk masyarakat Provinsi Jawa Timur, milik masyarakat Jawa Timur xemoticonx xemoticonx
 Kelompoknya fufufafa Mulyono asal bicara
 Seharusnya tahun ini calon gubernur bukan wakil gubernur. 2029 wakil presiden dengan mas gibran
 Kelihatan kalau sabar ya Pak Emil ini xemoticonx xemoticonx
 Masyaallah kang Emil Dardak calon pemimpin masa depan amin xemoticonx xemoticonx xemoticonx
 Tadi saya bacanya KALENDER xemoticonx
-Sisakan satu yang seperti begini xmentionx buat anak perempuanku ya Allah, amin xemoticonx xemoticonx
+Sisakan satu yang seperti begini xmentionx untuk anak perempuanku ya Allah, amin xemoticonx xemoticonx
 Masyaallah suami idaman, semoga kelak anak perempuanku mendapatkan jodoh yang seperti Pak Emil cara memperlakukan istri dan anak-anaknya dengan baik. Amin ya rab
 Ingin punya suami seperti Pak Emil amin
 Pak Emil seperti yang suka di drama-drama cina film pendek benar-benar pembawaannya kalem, tenang, perhatian sama pasangan peka
@@ -7961,7 +7961,7 @@ Pak Emil benar-benar sosok yang tenang, kalem pembawaannya, dan juga jenius. Sem
 Saya sangat senang melihat Mas Emil dan Mbak Arumi
 Bapak yang penyayang pada putra putrinya. Sehat selalu semuanya
 Mengapa juga jongkok-jongkok di situ Pak
-Lihat Pak Emil sosok yang sabar masyaallah
+melihat Pak Emil sosok yang sabar masyaallah
 Semoga Allah SWT selalu melindungi dan memberkati Anda dan keluarga, amin
 Si kalem semoga RI satu berikutnya
 Semoga menjadi Pak Gubernur terpilih. Kita dukung ayo. SIAP MENANGKAN
@@ -7974,11 +7974,11 @@ Wah, seandainya Pak Emil yang jadi presiden, rakyatnya bisa makmur semua
 Seterusnya jadi bapak yang baik biar makin banyak anak xemoticonx yang bahagia dan negara NKRI ini banyak tumbuh pemimpin yang hebat dan jujur. Karena dari keluarga baik xemoticonx akan tumbuh anak xemoticonx yang baik
 Loli, ayo menurut ibumu, banyak anak perempuan yang menurut, akhirnya bahagia, percayalah, saya pernah jadi anak dan sekarang saya jadi ibu. Loli, manut ya, menurut ya
 Bapak Emil beliau orangnya tenang, berwibawa, sehat selalu Pak Emil dan keluarga xemoticonx
-Lihat Mas Emil orangnya adem, tenang, beruntung sekali Arumi semoga langgeng ya
+melihat Mas Emil orangnya adem, tenang, beruntung sekali Arumi semoga langgeng ya
 Calon gubernur berikutnya xemoticonx ingin Jawa Timur punya gubernur laki-laki
 Sayang anak keluarga bahagia
 Pak Emil orang sabar, tidak banyak bicara
-Keluarga ini yang jadi panutan buat kita semua xemoticonx
+Keluarga ini yang jadi panutan untuk kita semua xemoticonx
 Maaf kak saya awalnya bacanya kalender xemoticonx xemoticonx xemoticonx, ternyata Kalendra xemoticonx
 Suka sekali sama bapak ini xemoticonx xemoticonx
 Amin, pasangkan sama Pak Anis Baswedan bagus Pak Emil Dardak
@@ -7987,12 +7987,12 @@ Insyaallah semoga terpilih kembali menjadi wakilnya Ibu Khofifah
 Lanjut dua periode xemoticonx xemoticonx xemoticonx xemoticonx
 Lah sampingnya ada calon bupati Pasuruan xemoticonx xemoticonx
 Lanjut dua periode, semoga lelah Pak Emil menjadi alhamdulillah, semangat xemoticonx xemoticonx xemoticonx
-Pas berkunjung ke pasar Pandaan tidak lewat ke tempat saya sedih deh
+Waktu berkunjung ke pasar Pandaan tidak lewat ke tempat saya sedih deh
 Keren
-Semoga terpilih lagi karena memang paling pas 02, sehat selalu Pak xmentionx, dilancarkan ikhtiarnya, dijauhkan dari mara bahaya serta orang-orang yang tidak bertanggung jawab xemoticonx xemoticonx
-JAWA TIMUR 2024-2029 Nomor 2 xemoticonx xemoticonx xmentionx xemoticonx xmentionx Lanjutkan
+Semoga terpilih lagi karena memang paling cocok 02, sehat selalu Pak xmentionx, dilancarkan ikhtiarnya, dijauhkan dari mara bahaya serta orang-orang yang tidak bertanggung jawab xemoticonx xemoticonx
+JAWA TIMUR 2024-2029 Nomor dua xemoticonx xemoticonx xmentionx xemoticonx xmentionx Lanjutkan
 Masyaallah tabarakallah lanjut dua periode ya Bapak xmentionx
-Pas sesuai lagunya Bapak xmentionx, oke gas, oke gas nomor dua bismillah saya dukung dua periode
+Cocok sesuai lagunya Bapak xmentionx, oke gas, oke gas nomor dua bismillah saya dukung dua periode
 Kang xmentionx, kurang sedikit dekat pasar Bangil. Mampir sini juga bareng Bu xmentionx xemoticonx
 Pasar Rembang dong xmentionx
 Datang ke pasar Trewung Grati Om
@@ -8012,7 +8012,7 @@ Kayaknya Emil baik sekali
 Cantik sekali
 Semoga sakinah mawadah warahmah ya Pak Emil dan Bu Arum xemoticonx xemoticonx xemoticonx
 Makan terus tapi badan tetap langsing, tipnya apa Bu xmentionx xemoticonx xemoticonx
-Lucu sekali pasangan ini gemas xemoticonx xmentionx Bu Arumi enak sekali tidak ribet orangnya. Pernah ketemu super ramah sekali
+Lucu sekali pasangan ini gemas xemoticonx xmentionx Bu Arumi enak sekali tidak ribet orangnya. Pernah bertemu super ramah sekali
 Sama dengan saya ini xemoticonx Persis sama xemoticonx Untuk mengembalikan suasana hati saat sedang bete caranya dengan makan xemoticonx xemoticonx xemoticonx
 Seperti boneka Barbie, cantik sekali Arumi xemoticonx
 Romantis sekali, makan, simpel sekali jawabannya
@@ -8029,7 +8029,7 @@ Kalau saya sedang makan pasti bilang sayang. Apalagi kalau jajan sate atau mi ay
 Calon pemimpin bangsa. Semoga istrinya jadi pendamping yang baik tidak pamer kemewahan
 Kok kita samaan ya, saya kalau lagi ngambek gampang sekali dibujuknya cukup bawakan makanan saja
 Ah sama sekali
-Lucu amat sih xemoticonx
+Lucu sekali sih xemoticonx
 Sama seperti saya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ah semua gender juga kalau sedang lapar inginnya marah-marah terus xemoticonx
 Beli Toyota di xmentionx xemoticonx xemoticonx xemoticonx
@@ -8048,8 +8048,8 @@ Suka makan tapi tidak gemuk ya
 Pak Emil coba calon gubernur mana saja saya dukung semoga tercapai ya Pak Emil dari Kertosono orang Palembang
 Cantik sekali
 Kayaknya semua istri seperti itu ternyata termasuk saya xemoticonx
-Ternyata yang marah pas lapar tidak Umma saja Abi wkwkwk xmentionx xemoticonx xemoticonx
-Nyaman sekali lihat setiap aktivitas mereka, apa adanya
+Ternyata yang marah waktu lapar tidak Umma saja Abi wkwkwk xmentionx xemoticonx xemoticonx
+Nyaman sekali melihat setiap aktivitas mereka, apa adanya
 Benar Mbak
 Cocok yang satu dewasa mengayomi yang lain manja cerewet
 Tapi tidak gemuk xemoticonx xmentionx tapi solusi makan tidak baik ya Bu
@@ -8065,11 +8065,11 @@ Kalau saya kalau kurang tidur biasanya suasana hatinya jelek
 Salam interaksi
 Kok enak ya habis makan lupa masalah, kalau saya masalah 10 tahun lalu tetap saya ungkit-ungkit
 Saya, kalau sedang ngambek atau bete diajak suami belanja saja langsung bahagia xemoticonx xemoticonx
-Berarti sama seperti saya kalau saya bilang lapar harus langsung kalau nanti-nanti masih keliling-keliling pas disuguhkan sate saya mending mogok duduk pinggir jalan terus taksi pada berhenti dikira nunggu taksi xemoticonx xemoticonx xemoticonx
+Berarti sama seperti saya kalau saya bilang lapar harus langsung kalau nanti-nanti masih keliling-keliling waktu disuguhkan sate saya mending mogok duduk pinggir jalan terus taksi pada berhenti dikira nunggu taksi xemoticonx xemoticonx xemoticonx
 Ya Allah berikanlah jodoh terindah untuk kedua putriku nanti, seperti halnya mereka berdua ini, saya ingin melihatnya di umur senja saya menjadi hiburan saya setiap hari, amin xemoticonx
 Makin cantik saja ya
 Kok sama ya xemoticonx xemoticonx
-Suka sekali lihat pasangan ini, apa adanya dan sangat merakyat xemoticonx xemoticonx xemoticonx
+Suka sekali melihat pasangan ini, apa adanya dan sangat merakyat xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx lupa masalahnya xemoticonx
 Siap hadir xemoticonx
 Wajib nonton
@@ -8082,25 +8082,25 @@ Saya juga suka dengan tokoh ini, sayang sekali sama keluarga dan selalu mesra de
 Operatornya robot Fufufafa ketika debat pemilihan presiden kemarin xemoticonx
 Sukses ya Bang Emil Dardak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pasangan calon 02 selalu menjalin harmoni ke semua kalangan dari dulu, sangat rajin kegiatan keagamaan, salut
-Ya Allah, senang sekali lihat beliau membaur dengan warga, semoga lanjut ke periode selanjutnya ya, calon presiden yang akan datang, amin xemoticonx xemoticonx
+Ya Allah, senang sekali melihat beliau membaur dengan warga, semoga lanjut ke periode selanjutnya ya, calon presiden yang akan datang, amin xemoticonx xemoticonx
 Terima kasih banyak Pak Emil sudah sowan ke Milad WMG sukses dan sehat selalu Pak Emil kebanggaan Jawa Timur
 Pak Gubernur
 Insyaallah Pak Dardak menang
 Insyaallah Bapak Wakil Gubernur Jawa Timur periode kedua
 Lanjutkan dua periode Mas Emil
 Barisan SAKERA MADURA siap mengawal lanjutkan dua periode
-Lanjutkan Pak Wakil Gubernur Jawa Timur harus ada perubahannya gas pol
+Lanjutkan Pak Wakil Gubernur Jawa Timur harus ada perubahannya gas penuh
 Ada ustad xmentionx
 Di Bungur makan soto, Gubernur Jawa Timur ya nomor dua xemoticonx aah keren xemoticonx xemoticonx
 Hebat Mas Emil. Pejabat cerdas dan dekat sama masyarakat. Semoga nanti Mas Emil bisa menjadi orang nomor satu xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx omong-omong mengiler ikan asinnya Pak xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Semoga menjabat lagi ya Nak Solgan dan Ibu Arumi Solcan, doa saya untuk Anda ya Nak xemoticonx xemoticonx xemoticonx xemoticonx
 Calon wakil gubernur muda ganteng pintar adem begini ya masa tidak dipilih teman-teman xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx salam gas pol
+xemoticonx xemoticonx xemoticonx salam gas penuh
 Ih xemoticonx
 Insyaallah, 02 JADI! xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lanjutkan yang sudah baik
-Maju terus buat Ibu Khofifah dan Bapak Emil semoga dapat mengemban tugas dengan baik
+Maju terus untuk Ibu Khofifah dan Bapak Emil semoga dapat mengemban tugas dengan baik
 Menyala Pak xmentionx dan Ibu xmentionx xemoticonx xemoticonx xemoticonx insyaallah untuk keduanya xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Pak
 Sukses terus, amin
@@ -8127,7 +8127,7 @@ Itu pasarnya sudah bagus Kang, itu lo macetnya Waru segera diatasi
 Bapak Wakil Gubernur selalu diterima dengan hangat dimanapun berada, baik, religius, ramah, santun, berwibawa, ganteng xemoticonx xemoticonx
 Dua periode Pak xemoticonx xemoticonx xemoticonx xemoticonx
 Lanjutkan xemoticonx xemoticonx Periode xemoticonx xemoticonx
-Emil ini tipe orang yang cocok dan pas masuk ke komunitas apapun. Di politik tajam, di pesantren nyantri, di akademisi ilmiah, di konser menyanyi, di pasar santun, di warung ngopi, benar-benar dia jadi panutan pemimpin
+Emil ini tipe orang yang cocok dan tepat masuk ke komunitas apapun. Di politik tajam, di pesantren nyantri, di akademisi ilmiah, di konser menyanyi, di pasar santun, di warung ngopi, benar-benar dia jadi panutan pemimpin
 Lanjut Mas Emil xemoticonx periode semoga amanah xemoticonx xemoticonx
 Mantap jiwa Mas Emil
 Terima kasih Bang xmentionx
@@ -8156,7 +8156,7 @@ Begini kali ya kalau menurutin nasihat orang tua, terutama nasihat ibu. Hidupnya
 Pastinya mas Emil tidak pernah bosan memandang istrinya yang cantik jelita xemoticonx xemoticonx xemoticonx
 Wanita di tangan yang tepat, tatapan mata yang selalu jatuh cinta, sakinah mawadah warahmah sampai akhir hayat, amin xemoticonx xemoticonx ya rabbal alamin xemoticonx xemoticonx xemoticonx
 Masyaallah Bu Arumi sayang, sakinah mawadah warahmah selalu sampai surga ya dengan Bapak Emil xemoticonx xemoticonx xemoticonx
-Kenapa sedotannya bergerak xemoticonx begitu ya, saking meleleh lihat pasangan yang masyaallah xemoticonx
+Kenapa sedotannya bergerak xemoticonx begitu ya, saking meleleh melihat pasangan yang masyaallah xemoticonx
 Ini sih definisi, selalu jatuh cinta setiap hari pada pasangan sendiri, karena dari pandangannya selalu penuh cinta, ini dulu bu Arumi doanya apa sih bisa dapat suami yang penyayang begini xemoticonx
 Mengikuti berita Arumi dari remaja, senang sekali waktu dia menikah dengan Emil, tuh kan kalau menurut sama orang tua, bahagia xemoticonx xemoticonx
 Pandangannya seperti suami-suami kita pada HP masing-masing xemoticonx
@@ -8165,23 +8165,23 @@ Masyaallah, tatapan Pak Emil ke Ibu Arumi penuh cinta, bersyukurlah ketika istri
 Mesra xemoticonx masyaallah tabarakallah
 Masyaallah begini ya rasanya ketika kita bercerita mengungkapkan sesuatu didengarkan dengan tulus xemoticonx
 Salah fokus sama sedotannya, sehat mas Emil mbak Arumi xemoticonx
-Info ke planet Mars teman-teman xemoticonx, mereka yang saling lihat, aku yang salah tingkah xemoticonx xemoticonx
-Ya Allah sisakan satu yang seperti mas Emil Dardak, buat anak gadisku
-Sedotan xemoticonx ah aku bergerak sendiri nih, diabaikan saja lihat orang tatapannya mesra sekali xemoticonx
+Info ke planet Mars teman-teman xemoticonx, mereka yang saling melihat, aku yang salah tingkah xemoticonx xemoticonx
+Ya Allah sisakan satu yang seperti mas Emil Dardak, untuk anak gadisku
+Sedotan xemoticonx ah aku bergerak sendiri nih, diabaikan saja melihat orang tatapannya mesra sekali xemoticonx
 Pasangan yang saling jatuh cinta setiap hari xemoticonx mencintai kalian berdua xemoticonx xemoticonx
 Tatapan matanya penuh kasih sayang dan ketulusan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xmentionx memilih ini lagi saja cyn xemoticonx xemoticonx
 Posisi sedang di rumah santai dia main gim lalu aku keraskan bicara seperti ini xemoticonx masyaallah mas Emil kalau melihat xmentionx saat sedang mengobrol mendalam sekali, istrinya mengajak mengobrol fokus melihat ke mata istri tidak sibuk dengan gimnya beruntung sekali ya punya sosok suami seperti pak xmentionx, seketika itu gimnya suami dimatikan lalu menghampiri aku di sofa belakang xemoticonx xemoticonx xemoticonx memang harus disindir keras
 Bu Arumi yang dipandang, saya yang meleyot xemoticonx
 Masyaallah xemoticonx
-Tatapan Emil Dardak itu ya Allah ke wanitanya hm syahdu, jujur, tulus, tidak ada yang dibuat-buat, menusuk sampai ke sanubari xemoticonx xemoticonx xemoticonx
+Tatapan Emil Dardak itu ya Allah ke wanitanya hem syahdu, jujur, tulus, tidak ada yang dibuat-buat, menusuk sampai ke sanubari xemoticonx xemoticonx xemoticonx
 Suamiku kalau menatap aku juga begini sepertinya xemoticonx xmentionx
 Bu Arumi istri yang sedap dipandang mata, masyaallah, cantik dan sederhana
 Fokus ke sedotannya, kenapa itu xemoticonx
-Seharian saya betah lihat konten mas Emil xemoticonx mbak Arumi rasanya nyaman sekali hatiku pasangan teromantis sejagat raya, apalagi kalau mas Emil sedang menatap mbak Arumi adem kalau melihat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Seharian saya betah melihat konten mas Emil xemoticonx mbak Arumi rasanya nyaman sekali hatiku pasangan teromantis sejagat raya, apalagi kalau mas Emil sedang menatap mbak Arumi adem kalau melihat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kok aku salah fokus sama sedotan yang bergerak sendiri, benar tidak sih xemoticonx xemoticonx
 Keberangkatan ke planet mars siap berangkat, silakan yang mau ikut xemoticonx xemoticonx
-Salah fokus sama sedotan yang di gelas bergerak xemoticonx sendiri mungkin saking terpesona lihat pasangan romantis xmentionx
+Salah fokus sama sedotan yang di gelas bergerak xemoticonx sendiri mungkin saking terpesona melihat pasangan romantis xmentionx
 Kok aku jadi fokus ke sedotan itu ya, bisa bergerak begitu
 Yang dilihat bu Arumi kenapa aku yang berdebar-debar
 Bikin cemburu para istri yang tidak pernah dapatkan tatapan mesra dari para suami xemoticonx
@@ -8189,31 +8189,31 @@ Kemesraan ini janganlah cepat berlalu
 Kira-kira begini dialognya xemoticonx
 Ternyata banyak juga yang salah fokus sama gerakan sedotan xemoticonx
 Malah fokus ke sedotan yang bergerak sendiri xemoticonx
-Masyaallah senang sekali lihat pasangan ini, harmonis yang natural suaminya benar-benar mengayomi, bijak xemoticonx sayang sama istrinya xemoticonx begitu pula sebaliknya istrinya pun membalasnya dengan kasih sayang xemoticonx kebaikan, di sini kita bisa lihat fix ya bahwa suami itu benar-benar jadi imam yang baik maka istri pun merasa dibahagiakan oleh suaminya, itu kali ya kategori keluarga yang sakinah mawadah warahmah, semoga menular ke keluargaku
-Seram, lihat sedotan goyang kiri, kanan xemoticonx
-Lihat orang-orang kok pada bahagia xemoticonx
+Masyaallah senang sekali melihat pasangan ini, harmonis yang natural suaminya benar-benar mengayomi, bijak xemoticonx sayang sama istrinya xemoticonx begitu pula sebaliknya istrinya pun membalasnya dengan kasih sayang xemoticonx kebaikan, di sini kita bisa melihat pasti ya bahwa suami itu benar-benar jadi imam yang baik maka istri pun merasa dibahagiakan oleh suaminya, itu kali ya kategori keluarga yang sakinah mawadah warahmah, semoga menular ke keluargaku
+Seram, melihat sedotan goyang kiri, kanan xemoticonx
+melihat orang-orang kok pada bahagia xemoticonx
 Apa aku harus jadi xmentionx biar dipandang suami seperti itu xemoticonx xemoticonx xemoticonx
 Cara menatapnya bikin adem xemoticonx
 Bahagia dunia akhirat untuk xmentionx dan xmentionx
 Manis sekali xemoticonx xemoticonx xemoticonx
 Tatapan pak Emil selalu penuh cinta ke Bu Arumi xemoticonx
-Senang dan ikut bahagia lihat pasangan ini, Semoga anak-anak kita semua dapat pasangan yang tepat Ya Allah xemoticonx xemoticonx xemoticonx
+Senang dan ikut bahagia melihat pasangan ini, Semoga anak-anak kita semua dapat pasangan yang tepat Ya Allah xemoticonx xemoticonx xemoticonx
 Aku kalau punya suami tatapannya seperti pak Emil tiap hari pasti grogi xemoticonx
 Berasa sedang nonton drama cina ini, tetapi kalau ini drama lokal ya bu? Hehehehe xemoticonx xemoticonx
 Kapan lah suami saya menatap saya seperti itu ya, mungkin aku bisa puber lagi xemoticonx xemoticonx xemoticonx
-Aku kalau jadi pak Emil, juga akan begitu. Cantik sekali istriku, tidak bosan lihat bu Arumi xemoticonx xemoticonx
+Aku kalau jadi pak Emil, juga akan begitu. Cantik sekali istriku, tidak bosan melihat bu Arumi xemoticonx xemoticonx
 Salah fokus sama sedotan dalam gelasnya xemoticonx
 Sedotan saja salah tingkah melihatnya, sampai bergerak-gerak sendiri xemoticonx
 Mesra sekali, ya, mungkin kalau sedang marahan, mbak Arumi marah, mas Emil tetap tenang diam membujuk memperhatikan, aduh, seperti drama Korea pasangan ini, selalu menjadi yang terbaik ya mbak Arumi xemoticonx xemoticonx
 Masyaallah xemoticonx xemoticonx xemoticonx
-Senang sekali lihat pasangan ini xemoticonx
+Senang sekali melihat pasangan ini xemoticonx
 Itu sedotan bergerak terus xemoticonx
 Masyaallah pasangan ini bikin bawa perasaan xemoticonx xemoticonx xemoticonx
 Ah manisnya, tatapan mata penuh cinta xemoticonx xemoticonx xemoticonx
 xmentionx seperti tatapan anak itu dulu ke aku. Dulu aku saat berbicara. HP dia langsung ditaruh. Mendengarkan aku bicara. Anak itu yang selalu mengiyakan saja apa yang aku ucap.
 xmentionx kamu seperti ini juga tidak sih? Wkwkw
 xemoticonx xemoticonx xemoticonx masyaallah, pasangan yang bikin iri xemoticonx xemoticonx colek suami xmentionx
-Masyaallah, senang lihat keromantisan pasangan muda, rumah tangga yang bahagia
+Masyaallah, senang melihat keromantisan pasangan muda, rumah tangga yang bahagia
 xmentionx ini kira-kira sedang membicarakan apa ya?
 Fokus pada gelasnya, eh kok goyang ya
 Kalau bertatapan seperti ini itu biasanya membicarakan apa sih?
@@ -8252,7 +8252,7 @@ Cara pandang suami yang selalu membuat jatuh cinta terus, betul kamu xmentionx x
 Mbak xmentionx adiknya pak Emil ada yang cowok tidak ya? Sudah siap nih xemoticonx xemoticonx xemoticonx
 Suka xemoticonx
 Masyaallah ikut senyum-senyum sendiri xemoticonx xemoticonx
-Bahkan sedotan saja meleyot malu-malu lihat mereka xemoticonx
+Bahkan sedotan saja meleyot malu-malu melihat mereka xemoticonx
 Saya ditatap seperti itu pak Emil sama pasangan saya, malu sendiri
 Selalu kagum dengan mereka berdua sehat-sehat kak Arumi sekeluarga xemoticonx xemoticonx
 Pandangannya seperti suamiku memandangi aku kan xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -8260,13 +8260,13 @@ Yang merekam membatin apa ya
 Duh, enak sekali lihatnya nyaman, awet selalu ya
 Di mie gacoan kencannya xemoticonx
 Pasangan favorit xemoticonx
-Ii seram lihat sedotan xemoticonx
-Lembut sekali lihat mas Emil tuh xemoticonx
+Ii seram melihat sedotan xemoticonx
+Lembut sekali melihat mas Emil tuh xemoticonx
 Salah fokus sama sedotannya bikin merinding xemoticonx xemoticonx xemoticonx
 Pandang terus pak xemoticonx
 Pemandangan paling indah
 xemoticonx xemoticonx menyesek sekali
-Lihat pasang berdua jadi senang
+melihat pasang berdua jadi senang
 Semoga sakinah mawadah warahmah ya xemoticonx xemoticonx bapak Emil dan bu Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Apa kalau saya secantik Arumi, laki saya bakalan seperti itu juga
 Manis sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx intinya kalau mau seperti ini komunikasi harus bagus sama suami. HP di nomor sekiankan.
@@ -8275,12 +8275,12 @@ Ya ampun kencannya kok sama seperti aku di Mie Gacoan xemoticonx xemoticonx xemo
 sedotan pun ikut cemburu melihat serasinya mereka makanya goyang sendiri xemoticonx
 Masyaallah, sangat manis, barakallahu fiikum xemoticonx xemoticonx xemoticonx xemoticonx
 Mbak bahagia ya bagaimana rasanya dipandang sama suami seperti itu xemoticonx xemoticonx xemoticonx
-Senang lihat pasangan ini xemoticonx xemoticonx
+Senang melihat pasangan ini xemoticonx xemoticonx
 Eh serius sedotannya bergerak sendiri?
 Benar
 Salah fokus sama sedotan
 Begini nih kalau dapat lelaki yang cintanya LEBIH BESAR, bukan SETARA lagi xemoticonx, berasa iri sekali ditatap seperti begini xemoticonx xemoticonx xemoticonx
-Pak Emil sopan sekolah di luar negeri, kalau diajak ngomong pasti lihat muka yang ngomong, adat bule, tidak seperti orang kita, diajak ngomong muka kemana, kalau bule pasti tersinggung, saya sekarang diajak ngomong harus lihat muka atau mulut sedang bicara
+Pak Emil sopan sekolah di luar negeri, kalau diajak ngomong pasti melihat muka yang ngomong, adat bule, tidak seperti orang kita, diajak ngomong muka kemana, kalau bule pasti tersinggung, saya sekarang diajak ngomong harus melihat muka atau mulut sedang bicara
 Masyaallah, aku iri sama pasangan ini ya Allah xemoticonx xemoticonx xemoticonx xemoticonx
 Pandangan suamiku ke ayam-ayamnya xemoticonx
 Sedotannya sampai bergerak-gerak xemoticonx xemoticonx
@@ -8290,7 +8290,7 @@ Hahaha benar sekali mbak xemoticonx
 Ini kalau laki-laki yang rasa cintanya lebih besar xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bicara itu dua arah bukan satu. Sok mesra dah
 Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Aku kok malah fokus melihat sedotannya yang bergerak-gerak sendiri, ya tidak sih? Coba deh diperbesar, takutnya aku salah lihat xemoticonx
+Aku kok malah fokus melihat sedotannya yang bergerak-gerak sendiri, ya tidak sih? Coba deh diperbesar, takutnya aku salah melihat xemoticonx
 Tatapannya itu ya ampun
 Aku cewek saja melihat mbak Arumi tidak membosankan, kalau mas Emil nyaman melihatnya
 Mana pernah mengobrol sambil tatap, mengobrol paling sambil menyapu mengepel mencuci itu juga mengomel sekali
@@ -8308,18 +8308,18 @@ Mbak Arumi yang dilihat begitu kok aku yang berdebar-debar ya xemoticonx
 xemoticonx xemoticonx ada lagi tidak sih yang begini. Kalau sedang mengobrol benar-benar menatap mata istrinya berasa nyaman sekali begitu
 Kita buat romantis xemoticonx xemoticonx
 Sedotannya bergerak sendiri, seram xemoticonx
-Selalu suka sekali lihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
+Selalu suka sekali melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
 sedotan kok bergerak sendiri xemoticonx
 Pak Emil pandangannya seperti suami saya ke burungnya xemoticonx
 Saya kira Raffi Ahmad
-Senang lihat pasangan ini ikut senang xemoticonx
+Senang melihat pasangan ini ikut senang xemoticonx
 bawa perasaan xemoticonx xemoticonx xemoticonx Ya Allah, ingin merasakan hal yang sama
 Saya sering memandangi istri saya diam-diam seperti Emil memandangi istrinya xemoticonx xemoticonx
 Tatapan Abang Emil masyaallah bikin meleleh, bikin salah tingkah, bikin pusing, bikin berdebar-debar, bikin tersipu
 Boleh iri tidak sih xemoticonx xemoticonx suamiku kapan ya memandangku seperti ini lagi, sudah lama tidak soalnya xemoticonx xemoticonx benar kata komentar lain mending mantengin HP xemoticonx xemoticonx
 Mi xmentionx kita harus seperti bu Arumi dulu biar di tatap seperti pak Emil xemoticonx
-Nyaman sekali lihat mbak Arumi dan suaminya, bahagia dunia akhirat ya mbak xemoticonx xemoticonx xemoticonx xemoticonx
-Mantan aku mirip pak Emil jadi suka bagaimana begitu kalau lihat pak Emil teh xemoticonx
+Nyaman sekali melihat mbak Arumi dan suaminya, bahagia dunia akhirat ya mbak xemoticonx xemoticonx xemoticonx xemoticonx
+Mantan aku mirip pak Emil jadi suka bagaimana begitu kalau melihat pak Emil teh xemoticonx
 Langgeng terus kalian xemoticonx xemoticonx
 Ya ampun mie gacoan pun terasa estetik kalau yang makan minya ibu Arumi sama bapak Emil xemoticonx
 Salah fokus sama sedotan xemoticonx
@@ -8328,9 +8328,9 @@ Syaratnya biar dicintai sebegitu hebatnya adalah kita harus cantik xemoticonx
 Bahagia selalu kak xmentionx
 Meleleh xemoticonx
 Sedotannya bergerak-gerak sendiri xemoticonx
-Senang lihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
+Senang melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
 Bersyukur sekali dapat suami seperti Emil bahagia dunia akhirat amin
-Bagaimana sedotan bisa bergerak-gerak ya atau aku saja yang salah lihat xemoticonx
+Bagaimana sedotan bisa bergerak-gerak ya atau aku saja yang salah melihat xemoticonx
 Kereta menuju Neptunus ada yang siap berangkat tidak ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Melihatnya sejuk Mbak Arumi sama Mas Emil sakinah mawadah warahmah ya langgeng sampai surga amin xemoticonx xemoticonx
 Sedotannya kok bergerak xemoticonx xemoticonx
@@ -8345,10 +8345,10 @@ Mengobrol begini sepertinya sederhana tetapi tidak semua pasangan bisa xemoticon
 Pandangan mata suamiku memang sekarang tidak seperti itu, karena aku juga tidak semenggemaskan itu xemoticonx tapi aku yakin aku tetap prioritasnya, karena aku tahu semua lelahnya adalah untuk aku dan anak-anakku. Semoga kelak kami dikumpulkan di surga Adn bersama xemoticonx xemoticonx
 Sedotannya kenapa itu, kok bergerak sendiri xemoticonx xemoticonx
 Mbak xmentionx iri sekali aku
-Senang sekali lihat pasangan ini xemoticonx xemoticonx
+Senang sekali melihat pasangan ini xemoticonx xemoticonx
 Masyaallah ikut bahagia melihatnya. Arumi sedang mengobrol sangat diperhatikan bapaknya xemoticonx
 Tatapannya membuat bawa perasaan
-Masyaallah lihat Pak Emil dari badannya senyumnya cara duduknya mirip sekali dengan om saya yang begitu mencintai istrinya, tapi beliau sudah dipanggil lebih dahulu oleh Allah SWT pada saat era covid xemoticonx
+Masyaallah melihat Pak Emil dari badannya senyumnya cara duduknya mirip sekali dengan om saya yang begitu mencintai istrinya, tapi beliau sudah dipanggil lebih dahulu oleh Allah SWT pada saat era covid xemoticonx
 Sampai nenek dan kakek ya
 Pasangan favorit xemoticonx
 Masyaallah benar-benar suami yang mengerti isi hati wanita bisa menjadi teman cerita yang baik xemoticonx xemoticonx xemoticonx xemoticonx
@@ -8367,9 +8367,9 @@ Ini yang ikut menghafal di debat calon presiden xemoticonx xemoticonx xemoticonx
 Tatapannya bapak sama persis sama tatapan suami saya waktu bermain ponsel xmentionx
 Salah fokus sama sedotannya xemoticonx
 Ibu-ibu jangan bawa perasaan ya suami kita juga seperti ini tatapannya tetapi ke ponsel xemoticonx
-Aku suka sekali kalau Mas Emil Dardak lihat Mbak Arumi sepertinya cinta sekali dan sayang. Sampai surga ya kalian
+Aku suka sekali kalau Mas Emil Dardak melihat Mbak Arumi sepertinya cinta sekali dan sayang. Sampai surga ya kalian
 Banyak yang komentar soal sedotan ini saya bagi jawabannya ya itu sedotan mau kabur ke planet mars takut kehabisan tiket katanya xemoticonx xemoticonx xemoticonx xemoticonx
-Aw manis sekali xemoticonx
+aduh manis sekali xemoticonx
 Beruntung, cantik, dan sederhana xemoticonx xemoticonx
 Cintanya tidak pernah habis xemoticonx
 Kenapa sedotannya bergerak-gerak
@@ -8377,7 +8377,7 @@ Sedotan bergerak sendiri
 Pernah bertemu aslinya masyaallah cantik sekali
 SEDOTANNYA BERGERAK-GERAK SENDIRI xemoticonx
 La menatap lagi xemoticonx xemoticonx aduh xemoticonx xemoticonx
-Sedotan saja salah tingkah lihat mereka berdua ea ea xemoticonx xemoticonx
+Sedotan saja salah tingkah melihat mereka berdua ea ea xemoticonx xemoticonx
 Alhamdulillah figur pasangan yang saling mencintai, mendukung, dan langgeng sepanjang masa xemoticonx xemoticonx
 Tidak ada ponsel di antara mereka xemoticonx
 Suka sekali sama pasangan ini tidak aneh-aneh
@@ -8386,12 +8386,12 @@ Gemas sekali melihat pasangan suami istri ini, ingin mencium xemoticonx xemotico
 Suka gaya sederhana Arumi, sesuai dengan usia dan tidak norak
 Gacoan juga wakil gubernur kita xemoticonx
 Sedang makan di Gacoan ya Mbak xemoticonx
-Ingin jadi sedotannya, agar bisa lihat lebih dekat
-Ya Tuhan, pandangan suaminya xemoticonx xemoticonx membuat meleleh. Andai suamiku seperti ini ke aku, hm senang deh aku
+Ingin jadi sedotannya, agar bisa melihat lebih dekat
+Ya Tuhan, pandangan suaminya xemoticonx xemoticonx membuat meleleh. Andai suamiku seperti ini ke aku, hem senang deh aku
 xmentionx iya sih xemoticonx
 Masyaallah senang sekali melihatnya xemoticonx Langgeng terus ya kalian sakinah mawadah warahmah sampai jannah xemoticonx xemoticonx xemoticonx xemoticonx
 Kok aku jadi senyum sendiri ya melihatnya, romantis sekali xemoticonx
-Ya Allah. Senang sekali lihat pasangan ini
+Ya Allah. Senang sekali melihat pasangan ini
 Salah fokus sama sedotan yang bergerak, apa kena angin mungkin ya
 Iri sekali ini sama pasangan ini xemoticonx xemoticonx xemoticonx
 Fokus ke sedotan kenapa ya, bergerak-gerak sendiri itu
@@ -8411,12 +8411,12 @@ Manis sekali sih xemoticonx xemoticonx
 Apa yang membuat bapak benar-benar jatuh cinta sama ibu xmentionx?
 Arumi yang ditatap aku yang meleleh, kalau suamiku yang menatap aku malah berkeringat karena dipelototi
 Adakah yang fokus ke sedotan? Kenapa bisa bergerak begitu? xemoticonx
-Selalu bahagia sendiri lihat pasangan ini, semoga selalu bahagia sampai akhir hayat memisahkan, dan semoga aku pun seberuntung itu mendapatkan pasangan yang bisa saling membahagiakan dan saling merasa beruntung. Amin xemoticonx xemoticonx
+Selalu bahagia sendiri melihat pasangan ini, semoga selalu bahagia sampai akhir hayat memisahkan, dan semoga aku pun seberuntung itu mendapatkan pasangan yang bisa saling membahagiakan dan saling merasa beruntung. Amin xemoticonx xemoticonx
 Baik-baik selalu hingga ke surga Allah
 Aku sih jatuh cinta tiap hari sama bayiku xemoticonx xemoticonx
 Bagaimana ya rasanya ditatap seperti ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Istrinya cantik sekali, pantas dipandang terus, lah kita, jangankan merawat, di dapur melulu
-Aku saja yang perempuan senang sekali lihat Arumi, tidak membosankan
+Aku saja yang perempuan senang sekali melihat Arumi, tidak membosankan
 Salah fokus sama sedotan bergerak sendiri xemoticonx
 Senyum lakinya seperti xmentionx
 Masyaallah tabarakallah, masih ada tidak suami seperti itu yang melihat istrinya penuh dengan cinta xemoticonx xemoticonx xemoticonx xemoticonx
@@ -8425,10 +8425,10 @@ Fokus sedotannya bergerak sendiri xemoticonx
 Bagaimana rasanya dicintai secara luar biasa begitu? xemoticonx
 Pak kok aku yang meleleh
 Langsung mengerti kalau tampilan Gacoan
-Tatapan suami kalau lihat ponsel
+Tatapan suami kalau melihat ponsel
 Suka sekali sama beliau berdua, anaknya juga cakep-cakep yang perempuan Keysa cantik sekali
-Aku suka lihat pasangan yang seperti ini
-Suka sekali lihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Aku suka melihat pasangan yang seperti ini
+Suka sekali melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Dua orang ini hilir mudik membuat pandangan saya oleng
 Pandangannya xemoticonx xemoticonx xemoticonx
 Itu gelas kalau bisa berbicara mungkin bunyinya seperti ini xemoticonx aduh Mas Emil Mbak Arumi, kalian biarkan saya kosong sendirian dalam menyaksikan roman-roman kalian berdua, carikan saya teman xemoticonx kasih saya isi lagi kenapa Mas Mbak xemoticonx xemoticonx xemoticonx
@@ -8445,7 +8445,7 @@ Ya Allah jadi ingin ada yang memandang wkwk semoga disegerakan yang benar xemoti
 Makan gacoan ya Mbak xemoticonx
 Ya Allah, semoga anak-anak saya seperti Mas Emil nanti ke istri mereka, amin xemoticonx
 Satu xemoticonx suami yang setia dalam semua xemoticonx nya itu di Indonesia adalah suami Arumi salut sekali Tuhan beruntung dia xemoticonx xemoticonx
-Senang sekali lihat pasangan ini, tenang sekali Pak ganteng, sepertinya tidak bisa marah ya xemoticonx xemoticonx
+Senang sekali melihat pasangan ini, tenang sekali Pak ganteng, sepertinya tidak bisa marah ya xemoticonx xemoticonx
 Sedotannya jomlo jadi bergerak sendiri xemoticonx
 Sedotannya kok bergerak sendiri
 Sedotannya kok bergerak-gerak
@@ -8472,9 +8472,9 @@ Kok sedotannya bergerak sendiri ya xemoticonx xemoticonx xemoticonx apa sedotann
 Lelaki sukses dan wanita cantik pasti akan menjadi pasangan yang sangat bahagia xemoticonx
 Senang sekali melihat Mas Emil kalau lagi melihat Mbak Arumi, selalu bahagia xemoticonx xemoticonx xemoticonx xemoticonx
 Sedotan sampai ikut salah tingkah bergerak sendiri xemoticonx xemoticonx
-Meleleh lihat tatapan Pak Emil ke Arumi, menjadi Pak Emil ya takkan menatap ke arah lain kalau yang di depan mata sangatlah indah
+Meleleh melihat tatapan Pak Emil ke Arumi, menjadi Pak Emil ya takkan menatap ke arah lain kalau yang di depan mata sangatlah indah
 Aku gagal fokus kok sedotan di gelas bergerak ya ke arah cewek xemoticonx xemoticonx xemoticonx
-Sepertinya kalau aku jadi Pak Emil tidak mungkin tidak begitu lihat kecantikannya Arumi xemoticonx
+Sepertinya kalau aku jadi Pak Emil tidak mungkin tidak begitu melihat kecantikannya Arumi xemoticonx
 Pernah dipandang seperti ini oleh seseorang, tapi sayang tidak jodoh xemoticonx
 Eh itu sedotan bergerak sendiri xemoticonx jangan bilang ada angin itu di belakang ada dedaunan tapi bergerak tipis saja wkwkwkwk
 Salah fokus sama sedotan yang goyang-goyang xemoticonx
@@ -8489,7 +8489,7 @@ Salah fokus sama sedotannya yang bergerak sendiri xemoticonx xemoticonx xemotico
 Pandangan Pak Emil membuat haru
 Disalawatin dulu xemoticonx
 Suka sekali sama pasangan ini xemoticonx
-Intinya pembawaan suaminya dewasa begitulah pria dewasa xemoticonx bukan usia lo ya, tapi karakter xemoticonx sejuk buat pasangannya
+Intinya pembawaan suaminya dewasa begitulah pria dewasa xemoticonx bukan usia lo ya, tapi karakter xemoticonx sejuk untuk pasangannya
 Anda wanita paling beruntung di dunia ini memiliki suami yang begitu baik, sayang anak istri xemoticonx xemoticonx
 Arumi sama Emil mencoba mie Gacoan xemoticonx
 Ikut mensyukuri rezeki orang lain, karena orang tersebut sama-sama layak mendapatkan rezeki seberharga ini, dua-duanya saling beruntung menemukan dan memiliki satu sama lain
@@ -8509,13 +8509,13 @@ Aduh tatapan Pak Emil xemoticonx
 Kok Pak Emil kelihatan sekali penyabarnya penyayangnya jadi pendengar yang baik sekali untuk istrinya xemoticonx
 Yang begini ya Allah xemoticonx
 Orang-orang fokus ke sedotan lah saya fokusnya ke kang Emil memandang Arumi aduh meleyot xemoticonx
-Kalau lihat Mbak Arumi sama Pak Emil jadi ikutan bawa perasaan xemoticonx xemoticonx
+Kalau melihat Mbak Arumi sama Pak Emil jadi ikutan bawa perasaan xemoticonx xemoticonx
 Baru tahu ada suami memandang istrinya seperti ini xemoticonx xemoticonx xemoticonx
 Kenapa sedotannya bergerak?
 Enak ya selalu berdua mesra, sering bertengkar tidak kalau selalu mesra begini hehehe
 Masyaallah manis sekali Bapak Emil sama Bunda Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Ibu itu tidak akan pernah salah xemoticonx xemoticonx xemoticonx
-Meleleh lihat Kang Emil xemoticonx xemoticonx
+Meleleh melihat Kang Emil xemoticonx xemoticonx
 Manis sekali sih kalian xemoticonx
 Assalamualaikum tidak bisa berkata-kata kagum
 Sedotan minumnya bergerak-gerak sendiri? xemoticonx xmentionx
@@ -8626,7 +8626,7 @@ Bahagia selalu
 Tatapan suami sayang istri
 Semoga semakin sukses xemoticonx sehat selalu, salam interaksi xemoticonx xemoticonx
 Pak Emil kalau menatap istrinya membuat meleleh
-Mengapa aku salah fokus sama sedotan bisa bergerak sendiri, apa mata aku yang salah lihat
+Mengapa aku salah fokus sama sedotan bisa bergerak sendiri, apa mata aku yang salah melihat
 Cantik sekali seperti boneka
 Andai suamiku seperti ini ya Allah, suami memandang seperti itu hanya ketika ingin berhubungan saja
 Inginnya istri ya begini, dipandang mesra dan dalam sekali sama suami tetapi realitanya ya masing-masing xemoticonx
@@ -8673,7 +8673,7 @@ xemoticonx xemoticonx bahagia selalu, Tuhan Yesus memberkati
 Sedotan pun bergerak sendiri saking terpesonanya dengan tatapan bapak Emil xemoticonx
 Kak sedotannya mengapa bergerak sendiri xemoticonx
 Diperhatikan sedotan minumnya bergerak sendiri
-Hm hm
+hem hem
 Terberkati selalu xemoticonx
 Sedotan saja ikut salah tingkah xemoticonx
 Bu maaf aku tersenyum sendiri ini xemoticonx xemoticonx xemoticonx xemoticonx
@@ -8730,7 +8730,7 @@ Manis sekali mas xmentionx xemoticonx
 Nah begini kalau mengobrol itu saling tatapan ya, bukan sambil tatap layar ponsel xemoticonx
 Aku iri sumpah xemoticonx xemoticonx xemoticonx
 Akhirnya foto ini ada di beranda xemoticonx soalnya kemarin habis menonton ini di kanal YouTube teteh xmentionx si Umma bahagia melihat keharmonisan anda sekeluarga semoga Allah selalu melindungi dan memberkahi hingga akhir hayat amin xemoticonx xemoticonx xemoticonx sehat teteh kalau ke Sumenep mampir ke rumah teteh nanti kulineran bersama
-Tatapan Pak Emil masya Allah xemoticonx suka sekali sama mereka.
+Tatapan Pak Emil masyaallah xemoticonx suka sekali sama mereka.
 Gokil dia yang dipandangi kenapa saya yang terpesona xemoticonx xemoticonx xemoticonx xemoticonx
 Aduh meleleh saya tatapannya xemoticonx xemoticonx
 Tatapannya membuat kita mengiler ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -8741,14 +8741,14 @@ Sedotan saja cemburu ingin keluar dari gelasnya
 Bu salah fokus sama sedotannya kok bergerak-gerak sendiri ya xemoticonx xemoticonx
 Sedotannya pun ikut menjadi saksi masyaallah. Langgeng terus ya Bu Arumi xemoticonx xemoticonx
 Salah fokus sama sedotan. Kenapa bergerak-gerak begitu ya xemoticonx
-Ya Allah lihat pasangan ini seperti pacaran terus ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Ya Allah melihat pasangan ini seperti pacaran terus ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Itu kenapa sedotannya kok bisa goyang sendiri ya
 Teh Arumi Bachin saya suka sekali sama teteh, lagi zaman teteh masih main sinetron saya senang sekali lihatnya kalau ada di televisi pasti saya nonton xemoticonx
 Tatapannya bikin meleleh xemoticonx xemoticonx
 Saya dilihat seperti itu sama Pak suami yang ada malah tertawa
 Salah fokus sama sedotannya yang bergerak xemoticonx
 Eh kok salah fokus sama sedotan yang bergerak sendiri xemoticonx
-Sehat bahagia selalu buat Arumi Emil xemoticonx xemoticonx
+Sehat bahagia selalu untuk Arumi Emil xemoticonx xemoticonx
 Sedotan yang digelas bergerak-gerak sendiri xemoticonx xemoticonx
 Tatapannya sama seperti tatapan suami saya ke ponselnya xemoticonx
 Cara mereka saling memandang seolah-olah mengatakan, Saya sangat beruntung punya kamu di hidupku.
@@ -8760,13 +8760,13 @@ Masyaallah tabarakallah xemoticonx bahagia dunia akhirat Mbak dan Mas xemoticonx
 Begini loly kalau menurut kata orang tua, menurut pilihan orang tua xemoticonx
 Ini pasangan yang dua-duanya budak cinta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sehat selalu Bapak ibu xemoticonx
 Sesayang itu xemoticonx
-Sama persis sekali seperti suami saya pas dimimpiku beberapa hari yang lalu xemoticonx pas bangun eh lihat dia memandangi ponselnya penuh perasaan xemoticonx
-Adem selalu lihat pasangan ini.
-Suka sekali lihat pasangan ini, romantis
+Sama persis sekali seperti suami saya waktu dimimpiku beberapa hari yang lalu xemoticonx waktu bangun eh melihat dia memandangi ponselnya penuh perasaan xemoticonx
+Adem selalu melihat pasangan ini.
+Suka sekali melihat pasangan ini, romantis
 Bu Arumi yang mengobrol saya yang salah tingkah Bu xemoticonx xemoticonx xemoticonx
 Pasangan romantis, mengidolakan dari dulu sampai sekarang xemoticonx xemoticonx
 Pandangan penuh cinta xemoticonx xemoticonx
-Masyaallah adem sekali lihat Bapak Emil sama Ibu Arumi xemoticonx xemoticonx
+Masyaallah adem sekali melihat Bapak Emil sama Ibu Arumi xemoticonx xemoticonx
 Adem xemoticonx
 Gagal fokus sama sedotan itu. Kenapa tiba-tiba bergerak sendiri?
 Senang sekali melihat mereka berdua ini masyaallah Mas Emil Mbak Arumi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -8776,7 +8776,7 @@ Ya Allah mau laki-laki seperti ini xemoticonx
 Gacoan mana ini xemoticonx
 Kalau begitu yang dibicarakan apa ya? Kepo
 Jawa Timur pasti menang
-Lihat video ini malah senyum-senyum sendiri xemoticonx
+melihat video ini malah senyum-senyum sendiri xemoticonx
 Masyaallah xemoticonx xemoticonx xemoticonx
 Benar-benar pilihan orang tua adalah yang paling paling terbaik xemoticonx menyala Bu Wakil Gubernur saya xemoticonx
 Hahaha.
@@ -8790,7 +8790,7 @@ Full xemoticonx xemoticonx
 Bersyukurlah pada orang tuamu Arumi yang sudah menjagamu, mendoakan sehingga sampai di titik ini begitu disayangi suamimu xemoticonx xemoticonx
 Sakinah mawadah warahmah ya
 Seperti ini Mas kalau mengobrol itu xmentionx xemoticonx
-Suka sekali lihat pasangan ini xemoticonx xemoticonx cantik dan ganteng
+Suka sekali melihat pasangan ini xemoticonx xemoticonx cantik dan ganteng
 Makan mie Gacoan xemoticonx xmentionx romantis sekali
 Masyaallah kenapa jadi dalam sekali lihatnya
 Saya gagal fokus sama sedotan yang di gelas xemoticonx
@@ -8809,7 +8809,7 @@ Fokus ke sedotan itu sih xemoticonx
 Sepertinya hanya dia suami kalau istrinya cerita dilihat terus seperti dia jatuh cinta sekali sama istrinya xemoticonx ya Allah satu dari seribu
 Masyaallah pasangan paling romantis.
 Mungkin kalau Arumi nikah sama Miller hidupnya tidak sebahagia ini setelah nikah sama Mas Emil.
-Sedotan saja iri lihat kemesraan mereka, sampai salah tingkah bergerak-gerak begitu xemoticonx
+Sedotan saja iri melihat kemesraan mereka, sampai salah tingkah bergerak-gerak begitu xemoticonx
 Banyak istri yang mendambakan suami se kontak mata itu xemoticonx xemoticonx
 Lanjut Wakil Gubernur Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Gagal fokus sama sedotan, sepertinya sedotannya cari perhatian ke Mas Emil dan Mbak Arumi deh xemoticonx
@@ -8824,20 +8824,20 @@ Sedotan dalam gelas kok bisa goyang sendiri ya
 Kenapa ya bisa semenatap begitu pada istrinya, padahal kan katanya kalau laki-laki kalau diajak mengobrol tidak bisa matanya menatap mata, apa tidak salah tingkah itu Arumi setiap hari hu hu.
 Masyaallah
 Kok bisa ya sedotan hitam di gelas itu bergerak sendiri tanpa dipegang.
-Kok saya gagal fokus sama sedotan yang di dalam gelas bisa bergerak sendiri ya, apa saya salah lihat ya xemoticonx
+Kok saya gagal fokus sama sedotan yang di dalam gelas bisa bergerak sendiri ya, apa saya salah melihat ya xemoticonx
 Semoga tidak ada badai yang menghancurkan kebahagiaan pasangan ini
 Semoga langgeng sampai maut yang memisahkan mereka. Amin
-Ada yang lihat tidak sih itu sedotannya bergerak sendiri
+Ada yang melihat tidak sih itu sedotannya bergerak sendiri
 Masyaallah bahagia selalu xemoticonx
 Bahagia selalu sampai sampai surga, Ibu Arumi
 Masyaallah bahagia selalu ya xemoticonx
 Masyaallah bahagianya jadi istrinya Pak Emil
 Waduh Gacoan sahamnya meroket nih xemoticonx xemoticonx
 Beneran lagi xemoticonx xemoticonx
-Kok lihat sedotan bergerak sendiri ya xemoticonx xemoticonx
-Suami saya juga lembut seperti Mas Emil, meskipun saya rame, cerewet sedikit tegas. Alhamdulillah dari kecil jadi yatim pas berumah tangga bertemu orang yang bikin kita nyaman, betah dan dibutuhkan
+Kok melihat sedotan bergerak sendiri ya xemoticonx xemoticonx
+Suami saya juga lembut seperti Mas Emil, meskipun saya rame, cerewet sedikit tegas. Alhamdulillah dari kecil jadi yatim waktu berumah tangga bertemu orang yang bikin kita nyaman, betah dan dibutuhkan
 Perjuangan Bang Emil dulu tidak sembarangan untuk mendapatkan Mbak Arumi sekarang Alhamdulillah mereka bahagia semoga terus seperti ini ya amin xemoticonx
-Kalau jadi saya pasti meleleh lihat tatapan Pak Emil xemoticonx xemoticonx
+Kalau jadi saya pasti meleleh melihat tatapan Pak Emil xemoticonx xemoticonx
 Suaminya mengemong dan pendengar ya
 Tag suami ah jangan sampai nanti menatap nisan bertuliskan nama istrinya baru begini memandangnya xemoticonx xemoticonx
 Serasi sekali
@@ -8852,7 +8852,7 @@ xemoticonx xemoticonx penuh pahala karena saling bertatapan suami istri
 Fokus ke sedotan goyang-goyang sendiri xemoticonx
 Kenapa saya yang salah tingkah ya xemoticonx xemoticonx
 Hahahahah betul Mbak
-Loly kamu harus lihat ini, pilihan ibunya dapatnya long last xemoticonx
+Loly kamu harus melihat ini, pilihan ibunya dapatnya long last xemoticonx
 Kok saya salah fokus sama sedotan yang bergerak sendiri xemoticonx
 xemoticonx xemoticonx xemoticonx saya malah fokus ke sedotannya wkwkwkwkwkwk
 Apakah saya harus mirip Arumi dulu baru suami saya tatapannya begini ke saya xemoticonx xemoticonx xemoticonx
@@ -8863,7 +8863,7 @@ Pasangan idola saya xemoticonx xemoticonx xemoticonx
 Salah fokus sama sedotan
 Definisi bersama orang yang tepat
 Pasti di Gacoan xemoticonx
-Masyaallah ikut bahagia senang lihat Bapak dan Ibu Arumi bahagia dan sakinah mawadah warahmah Bapak xemoticonx Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah ikut bahagia senang melihat Bapak dan Ibu Arumi bahagia dan sakinah mawadah warahmah Bapak xemoticonx Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga kebaikan dan rezekinya Ibu Arumi, juga menular ke saya, amin xemoticonx xemoticonx
 Masyaallah kak bahagianya dicintai dan dihormati sama pasangannya xemoticonx xemoticonx
 Fokus dengan sedotan bergerak-gerak sendiri
@@ -8879,14 +8879,14 @@ Di umum saja seperti itu memandangnya, terbayang dirumah seperti apa xemoticonx 
 Menatapnya seperti itu sekali Pak bikin iri istri yang suaminya romantis kalau menatap HP xemoticonx
 Adem
 Suka sekali dengan pasangan ini natural tanpa dibuat-buat
-Salah fokus lihat sedotannya kok bergerak sendiri xemoticonx
+Salah fokus melihat sedotannya kok bergerak sendiri xemoticonx
 Pasangan sangat cinta xemoticonx xemoticonx xemoticonx xemoticonx
 Saya pikir cuman di novel xemoticonx drama Korea saja ternyata ada yang nyata Mas xmentionx xemoticonx
 Mbak Arumi beruntung sekali punya Mas Emil Dardak xemoticonx bahagia selalu Mbak
 Iri sekali sama pasangan ini xemoticonx
 Sadar tidak sih, itu sedotan bergerak-gerak terus, kena angin mungkin ya, salah fokus ke sedotan
 Emil
-Pak Emil sama Bu Arumi ini seperti karakter Wattpad yang lagi saya baca, bapak politikus xemoticonx ibu cantik yang berdedikasi buat keluarganya xemoticonx
+Pak Emil sama Bu Arumi ini seperti karakter Wattpad yang lagi saya baca, bapak politikus xemoticonx ibu cantik yang berdedikasi untuk keluarganya xemoticonx
 Sedotan bergerak sendiri, efek edit ya?
 Keren sekali Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kenapa saya malah salah fokus sama sedotan yang bergerak sendiri xemoticonx
@@ -8906,17 +8906,17 @@ Dulu pernah ada yang memandang seperti itu tapi sayang kita tidak ditakdirkan be
 Tatapan mata mereka penuh cinta
 Bu Arumi saja menongkrongnya di Gacoan xemoticonx
 Kang Emil xemoticonx beruntung sekali saya dapat nih cewek cantik sekali enak kalau tidur sambil memandangi wajahnya tiap hari xemoticonx
-Ya Allah sisakan satu gadis seperti Arumi buat anak bujang saya xemoticonx xemoticonx
+Ya Allah sisakan satu gadis seperti Arumi untuk anak bujang saya xemoticonx xemoticonx
 Gambaran saya kalau lagi berdua-duaan sama Yoongi tatapannya beeeh xemoticonx xemoticonx xemoticonx
 Lagi makan mie Gacoan ya xemoticonx
 Spesifikasi bidadari sih ini
 Ya Allah manis sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx yang seperti ini maksud saya ya Allah.
-Ah meleleh saya kalau lihat Pak Emil menatap Mbak Arumi xemoticonx
-Fokus lihat pasangan ini adem sekali, tapi coba lihat sedotan minuman kenapa bergerak-gerak sendiri ya.
-Arumi memang aslinya cantik sekali. Pernah ketemu di restoran bilangan Mampang Jakarta Selatan, sewaktu dia masih gadis dan aktif di sinetron. Bersama Mas Emil Dardak sungguh serasi, semoga jodoh dunia akhirat.
+Ah meleleh saya kalau melihat Pak Emil menatap Mbak Arumi xemoticonx
+Fokus melihat pasangan ini adem sekali, tapi coba lihat sedotan minuman kenapa bergerak-gerak sendiri ya.
+Arumi memang aslinya cantik sekali. Pernah bertemu di restoran bilangan Mampang Jakarta Selatan, sewaktu dia masih gadis dan aktif di sinetron. Bersama Mas Emil Dardak sungguh serasi, semoga jodoh dunia akhirat.
 Ini terus bosan saya
 Saya kok salah fokus sedotan bergerak sendiri xemoticonx xemoticonx
-Selalu bikin mengiler kalau lihat postingannya, surga dunia
+Selalu bikin mengiler kalau melihat postingannya, surga dunia
 Saya berduannya sama suami kok malu-malu ya padahal anak sudah dua, bagaimana ini solusinya xemoticonx
 Sedotannya sampai salah tingkah xemoticonx
 xmentionx tertawa xemoticonx
@@ -8927,7 +8927,7 @@ Saya kok seperti ikut bahagia ya xemoticonx
 Pandangannya itu lo meleleh pasti
 Salah fokus sama sedotannya kok goyang xemoticonx sendiri ya
 Salah fokus sama sedotan di gelas bergerak sendiri ya?
-Pandangan pak Emil seperti pandangan suamiku ketika ketemu bantal
+Pandangan pak Emil seperti pandangan suamiku ketika bertemu bantal
 Ya Allah tatapan pak Emil penuh cinta sama mbak Arumi. Semoga selalu langgeng hingga tua ya xemoticonx xemoticonx xemoticonx
 Ya Allah semoga anak-anakku mendapatkan pasangan seperti beliau-beliau, biarlah emaknya saja yang mendapatkan pasangan seorang pemuja HP xemoticonx xemoticonx xemoticonx
 Ah aku iri xemoticonx
@@ -8946,29 +8946,29 @@ Gagal fokus sama sedotannya, kena angin ya
 Masyaallah suka aku melihatnya
 Ya allah, sisakan dua laki-laki seperti ini untuk kedua putriku, amin xemoticonx
 Sedotannya kenapa bergerak xemoticonx
-Saya yang wanita saja suka sekali lihat bu Arumi apalagi lakinya wanita cantik depan mata tidak akan bosan juga xemoticonx
+Saya yang wanita saja suka sekali melihat bu Arumi apalagi lakinya wanita cantik depan mata tidak akan bosan juga xemoticonx
 xemoticonx xemoticonx xemoticonx benar
 Tatapan suaminya penuh sayang cinta dan kelembutan
 Salah fokus sama sedotannya, kok bisa gerak-gerak ya
 Saya ulang-ulang ada yang aneh sama sedotannya gagal fokus
 Kok itu sedotannya gerak sendiri ya coba perhatiin deh
 Tatapan penuh cinta dari mas Emil xemoticonx
-Aku harus ngapain kalau lihat beginian tidak kuat, ingin sekali jadi bu rumi dicintai begitu dalam sama suaminya
+Aku harus berbuat apa kalau melihat beginian tidak kuat, ingin sekali jadi bu rumi dicintai begitu dalam sama suaminya
 Pandangan Kang Emil itu menghargai istrinya sekali ibarat bu Arumi mau cerita penting tidak penting tapi mas Emil menjadi pendengar setia tanpa diganggu oleh HP xemoticonx
 Itu siapa yang mainkan sedotan
 Ya ampun bu Arumi cantiknya xemoticonx
-Sisakan satu buat saya yang seperti mas Emil ya Allah
+Sisakan satu untuk saya yang seperti mas Emil ya Allah
 Pandangannya seperti aku dan suami tapi waktu pertama nikah sekarang jangankan pandang pandangan, melihat saja seperti ogahan xemoticonx
 Gacoan manyar
 Masyaallah semoga suamiku juga selalu begitu
 Masyaallah tatapan mata yang penuh cinta pada istrinya
 Sedotannya gerak sendiri xemoticonx
-Persis seperti pandangan suamiku pas aku habis lahirin anaknya habis itu tidak ada lagi ditatap begitu apa harus nunggu hamil dan lahiran lagi nih
+Persis seperti pandangan suamiku waktu aku habis lahirin anaknya habis itu tidak ada lagi ditatap begitu apa harus nunggu hamil dan lahiran lagi nih
 Selamanya
 Arumi yang dilihati, saya yang lumer xemoticonx xemoticonx xemoticonx
 salah fokus sama sedotan di gelas tidak sih
 Suamiku kok tidak pernah memandang aku seperti itu ya xemoticonx
-Senang lihat pasangan ini yang selalu romantis
+Senang melihat pasangan ini yang selalu romantis
 Sebentar sebentar kok sedotan gerak sendiri, memang siapa yang gerak-gerak
 Kok aku salah fokus sama sedotannya ya kok bergerak sendiri xemoticonx
 Sekarang cita-citaku ingin jadi Ibu xmentionx xemoticonx
@@ -9008,10 +9008,10 @@ Ini di gacoan malangkah
 Iya gerak sendiri sedotannya
 Paling tidak bisa dipandang sebegitunya sampai sekarang pun masih sama xemoticonx
 Pendamping Bu Khofifah
-Issh ikutan meleleh lihat tatapan pak Emir nih xemoticonx
+Issh ikutan meleleh melihat tatapan pak Emir nih xemoticonx
 Meleleh dah xemoticonx xemoticonx xemoticonx
 Sedotan ikutan salah tingkah xemoticonx
-xemoticonx xemoticonx masyaallah senang sekali lihat pasangan yang selalu berpacaran xemoticonx langgeng selamanya bapak ibu Emil xemoticonx xemoticonx
+xemoticonx xemoticonx masyaallah senang sekali melihat pasangan yang selalu berpacaran xemoticonx langgeng selamanya bapak ibu Emil xemoticonx xemoticonx
 Harusnya begini perempuan yang banyak bicara suami dengarkan plus tanggapin secukupnya, bukan kebalik seperti aku awe
 Saya fokusnya ke gelas, itu kok sendoknya gerak sendiri ya
 Ingat ke masa lalu Arumi sempat mengalami kejadian yang tidak mulus, tapi akhirnya dia ingat pesan ibunya, dan memilih orang yang tepat, bahagia sampai sekarang dan selamanya xemoticonx xemoticonx
@@ -9032,7 +9032,7 @@ Pasangan paling aku suka xemoticonx
 Masyaallah pak Emil pandangan matanya sayang sekali sama istri xemoticonx
 Masyaallah senang lihatnya xemoticonx xemoticonx
 Sedotannya ikut meleyot melihat ini xemoticonx
-Kenapa sedotan minumannya ikut-ikutan bawa perasaan lihat mereka berdua xemoticonx
+Kenapa sedotan minumannya ikut-ikutan bawa perasaan melihat mereka berdua xemoticonx
 Saat kalian salah fokus sama pasangan ini aku salah fokus sama sedotan warna hitam dia bergerak sendiri lo xemoticonx
 Tatapannya itu kenapa begitu sih pak saya ikutan meleyot xemoticonx xemoticonx
 Bahagia terus kak Arumi dan keluarga
@@ -9049,10 +9049,10 @@ sakinah mawadah warrahmah kak Arumi xemoticonx
 Alhamdulillah sudah dapat mas Emil dardak versi kawe xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx apakah seperti Arumi dulu ya supaya dipandang bapak dari rumah seperti itu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bu Arumi, ya bagaimana tidak jatuh cinta terus ya pak Emil kalau memandang bikin meleleh para istri eh istrinya yang cantik awet muda maksud xemoticonx xemoticonx xemoticonx
-Sisakan tiga yang Allah kaya pak Emil buat tiga anak gadisku
+Sisakan tiga yang Allah kaya pak Emil untuk tiga anak gadisku
 Bahagia selalu amin
 Definisi saling mensyukuri kekurangan dan kelebihan masing-masing xemoticonx xemoticonx
-Masyaallah adem sekali lihat pasangan ini xemoticonx xemoticonx xemoticonx
+Masyaallah adem sekali melihat pasangan ini xemoticonx xemoticonx xemoticonx
 Di gacoan ya
 Tatapannya xemoticonx xemoticonx xemoticonx
 Aku kok gagal fokus sama sedotan yang gerak xemoticonx ya
@@ -9064,14 +9064,14 @@ Ibu bapak ahh saya cinta kalian berdua xemoticonx
 Pandangannya xemoticonx xemoticonx
 Betul banget
 Ingin sekali komunikasi seperti ini bersama suami
-Selalu bahagia lihat kalian berdua, sehat selalu ya buat kalian berdua dan keluarga kecilnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Selalu bahagia melihat kalian berdua, sehat selalu ya untuk kalian berdua dan keluarga kecilnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Aku salah fokus sama sedotannya gerak xemoticonx
 Tatapannya xemoticonx
 Arumi yang dipandang, aku yang salah tingkah masyaallah xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx bener banget wkk
 Sejuk, adem lihatnya
-Lihat tidak sih kalau sedotan di gelas gerak-gerak xemoticonx xemoticonx
-Meleleh hatiku lihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
+melihat tidak sih kalau sedotan di gelas gerak-gerak xemoticonx xemoticonx
+Meleleh hatiku melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
 Astaga itu pandangannya xemoticonx
 salah fokus sama sedotannya gerak-gerak sendiri xemoticonx xemoticonx
 Masyaallah senang lihatnya
@@ -9095,31 +9095,31 @@ Semoga bahagia bersama sampai akhir hayat mbak Arumi dan mas Emil
 Manis sekali
 Sedotan gerak sendiri kena angin kali ya xemoticonx
 Sedotannya muter xemoticonx gerak-gerak sendiri
-Tidak bosan-bosan lihat bu xmentionx dan bapak xmentionx xemoticonx
+Tidak bosan-bosan melihat bu xmentionx dan bapak xmentionx xemoticonx
 sakinah mawadah warrahmah ya bunda xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Itu sedotannya kok gerak-gerak sendiri
 salah fokus sama sedotan, kenapa gerak sendiri xemoticonx
-xemoticonx xemoticonx xemoticonx xemoticonx tidak bosan-bosan kalau lihat pasangan Arumi dan Emil xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx tidak bosan-bosan kalau melihat pasangan Arumi dan Emil xemoticonx xemoticonx
 xemoticonx xemoticonx doa terbaik selalu untuk panutan ini
-Selalu senyam senyum sendiri kalau lihat beliau berdua ini xemoticonx xemoticonx
+Selalu senyam senyum sendiri kalau melihat beliau berdua ini xemoticonx xemoticonx
 Bu, aku ingin jumpa kamu bu, ingin selfi bareng xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jadi ikut bawa perasaan xemoticonx
-Aku selalu lihat youtube kamu bu xemoticonx xemoticonx
+Aku selalu melihat youtube kamu bu xemoticonx xemoticonx
 sakinah mawadah warrahmah dunia akhirat amin
 Itu kenapa sedotan gelas tehnya gerak gerak sendiri xemoticonx
 salah fokus sama sedotannya goyang-goyang xemoticonx
 Ya Allah ini yang aku mau xemoticonx xemoticonx xemoticonx
-Saya kalau lihat pasangan pak Emil Arumi
+Saya kalau melihat pasangan pak Emil Arumi
 Seperti biasa cuma kebagian menyengirnya xemoticonx
 Bu Arumi sapa aku dong xemoticonx
 Tatapannya itu seperti bawaan bagaimana begitu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Suka sekali lihat pasangan ini semoga sakinah mawadah warrahmah selamanya
+Suka sekali melihat pasangan ini semoga sakinah mawadah warrahmah selamanya
 Selalu suka pak Emil dan ibu Arumi sehat selalu semoga jodoh dunia akhirat xemoticonx
 Tatapan pak xmentionx selalu deh xemoticonx xemoticonx xemoticonx
-Ada yang lihat tidak sih itu kenapa sedotannya gerak-gerak sendiri xemoticonx
+Ada yang melihat tidak sih itu kenapa sedotannya gerak-gerak sendiri xemoticonx
 Tatapan suami penuh cinta xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Kalau lihat pasangan ka Emil Arumi saya nangis dengan sendirinya tangis bahagia terharu walaupun saya tidak seperti mereka saya ikut bahagia xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Bagian menyengir-nyengir aku mah kak xemoticonx
+Kalau melihat pasangan kak Emil Arumi saya nangis dengan sendirinya tangis bahagia terharu walaupun saya tidak seperti mereka saya ikut bahagia xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bagian tersenyum-senyum aku mah kak xemoticonx
 Habis makan mie gacoan ya kak Arumi xmentionx xemoticonx
 Pak Emil yang menatap kok aku yang malu ya xemoticonx xemoticonx
 Sedotan yang tersedot hawa romantis xemoticonx xemoticonx xemoticonx
@@ -9129,7 +9129,7 @@ Mbak Arumi, itu saya fokus ke sedotan minumannya gerak sendiri xemoticonx xemoti
 Ya Allah itu mata pak Emil tatapannya ke ibu Arumi, bermakna sekali
 Dari awal kedekatan mereka berdua, sampai sekarang, selalu suka sama Mas xmentionx, beruntunglah Mbak xmentionx xemoticonx
 Ya ampun doyan juga sama gacoan xemoticonx
-Adem banget lihat pasangan ini xemoticonx xemoticonx
+Adem banget melihat pasangan ini xemoticonx xemoticonx
 Duh pandangan Bapak ke Ibu sangat manis tapi kenapa saya yang berdebar-debar xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Malam yang indah di Mie Gacoan xemoticonx
 Gerakan sedotan mengganggu saja sih jadi tidak fokus xemoticonx xemoticonx
@@ -9140,7 +9140,7 @@ Sebenarnya nikah itu, intinya jangan saling menuntut, dan saling mengerti, insya
 Tatapannya sepertinya tulus banget xemoticonx
 Tidak ramah untuk jomlo xemoticonx xemoticonx
 Kak Arumi apa doanya waktu dulu, bisa dapat Pak Emil yang sabar dan penyayang ini, selalu senyum ketika menatap Kak Arumi ini Sehat selalu kak
-Dek xmentionx salam ya buat Emil. Sehat-sehat kalian dan anak-anak xemoticonx xemoticonx
+Dek xmentionx salam ya untuk Emil. Sehat-sehat kalian dan anak-anak xemoticonx xemoticonx
 Setelah oppa-oppa Korea idolaku selanjutnya adalah Pak Emil Dardak caranya menatap istrinya itu lo adem sekali penuh cinta xemoticonx xemoticonx
 Gacoan bukan ya
 Tatapan Pak Emil ke istrinya dalam banget. Adem masyaallah
@@ -9154,20 +9154,20 @@ Warga Jawa Timur jangan lupa dukung Pak Emil xemoticonx
 Pasangan panutan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pasangan yang penuh cinta xemoticonx xemoticonx
 Melihatnya ikut senang dan bahagia seperti semilir angin malam xemoticonx xemoticonx
-Kalau memang jodoh itu kenapa muka yah jadi mirip xemoticonx begitu ya xemoticonx tidak salah ya dulu mamanya menjodohkan Arumi dengan suaminya ini xemoticonx patuh sama orangtua itu terbukti selamat semuanya, hehe bahagia terus buat kalian berdua xmentionx dan xmentionx
+Kalau memang jodoh itu kenapa muka yah jadi mirip xemoticonx begitu ya xemoticonx tidak salah ya dulu mamanya menjodohkan Arumi dengan suaminya ini xemoticonx patuh sama orangtua itu terbukti selamat semuanya, hehe bahagia terus untuk kalian berdua xmentionx dan xmentionx
 Gacoan Cabang mana ini Bu Emil xemoticonx xemoticonx
 Sedotannya kena hembusan nafasnya Mbak Arumi bergerak-gerak sendiri xemoticonx xemoticonx xemoticonx
 Masyaallah Pak Emil
 Sedotannya ingin lari xemoticonx xemoticonx xemoticonx
 Fokus ke pangsitnya xemoticonx
-Ya Allah saya ikut meleleh lihat kalian berdua xemoticonx xemoticonx xemoticonx semoga bahagia selalu ya cantik
+Ya Allah saya ikut meleleh melihat kalian berdua xemoticonx xemoticonx xemoticonx semoga bahagia selalu ya cantik
 Vlog terbarunya di youtube mana Mbak xmentionx
 Ya Allah seandainya suamiku seperti Mas Emil Dardak xemoticonx
 Sedotannya cari perhatian minta diperhatikan juga xemoticonx
 Banyak orang politik, hanya Pak Emil punya sosok istri yang muda dan cantik
 Jadi teringat masa mudaku xemoticonx xemoticonx
 Suka sama Kak Arumi beliau selalu tampil sederhana meski banyak uang
-Masyaallah lihat aslinya Pak Emil meleleh, ganteng plus rendah hati, semoga yang diperut bisa seganteng dan sesukses Pak Emil
+Masyaallah melihat aslinya Pak Emil meleleh, ganteng plus rendah hati, semoga yang diperut bisa seganteng dan sesukses Pak Emil
 Itu sedotan kenapa bergerak sendiri ya xemoticonx
 Semoga kalian sampai akhir hayat, pandangan suaminya benar-benar secinta itu xemoticonx
 Suami yang meneduhkan xemoticonx
@@ -9184,20 +9184,20 @@ Angin tahu itu daun-daun hiasan saja bergoyang-goyang xemoticonx
 Senyumnya sama xemoticonx
 1000 kali jatuh cinta pada orang yang sama
 Ketulusan hati selalu ditunjukkan melalui tatapan matanya xemoticonx xemoticonx
-Miris amat kita bagian senyumnya saja ayo ah habis begini pesawat mau berangkat ke planet mars, kumpul sini yang nangis dipojokan atau apa saja, ayo mari kita tinggalkan dunia ini karena dunia milik mereka sendiri
+Miris sekali kita bagian senyumnya saja ayo ah habis begini pesawat mau berangkat ke planet mars, kumpul sini yang nangis dipojokan atau apa saja, ayo mari kita tinggalkan dunia ini karena dunia milik mereka sendiri
 Sakinah mawadah warahma selalu ya kalian xemoticonx xemoticonx
 Langgeng sampai surga ya Mbak xmentionx xemoticonx
 Amin semoga banyak pasangan yang seperti begini xemoticonx
 Yang memvideokan seperti tenang xemoticonx xemoticonx bahagia romantic Bu Arumi xemoticonx xemoticonx
 Definisi mencinta pada orang yang sama ya Bu xmentionx xemoticonx sakinah mawadah warahma hingga ke surga. Amin
-Meleleh kalau lihat pasangan suami istri ini xemoticonx pokoknya idolaku xemoticonx xemoticonx xemoticonx
-Ikut senyum-senyum sendiri lihat pasangan ini xemoticonx
+Meleleh kalau melihat pasangan suami istri ini xemoticonx pokoknya idolaku xemoticonx xemoticonx xemoticonx
+Ikut senyum-senyum sendiri melihat pasangan ini xemoticonx
 Masyaallah langgeng terus kak
 Sehat selalu Mbak xmentionx xemoticonx Mas xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Coba saja saya bisa begitu setiap saat xemoticonx
 Masyaallah lucunya Bapak Ibu xemoticonx xemoticonx xemoticonx
 Sangat manis banget Mbak xemoticonx xemoticonx xemoticonx
-Ya Allah mudah-mudahan anakku mendapatkan jodoh yang bisa membawamu ke surga, seperti Mas Emil, anakku seusia Mbak Arumi, jujur Ibu senang lihat pasangan ini, semoga terus bergandengan tangan, jangan berubah cinta dipupuk terus xemoticonx xemoticonx xemoticonx xemoticonx
+Ya Allah mudah-mudahan anakku mendapatkan jodoh yang bisa membawamu ke surga, seperti Mas Emil, anakku seusia Mbak Arumi, jujur Ibu senang melihat pasangan ini, semoga terus bergandengan tangan, jangan berubah cinta dipupuk terus xemoticonx xemoticonx xemoticonx xemoticonx
 Senyuman Mbak Arumi mirip Ronaldo xemoticonx
 Tatapan penuh cinta dari sang suami untuk istri tercinta xemoticonx xemoticonx xemoticonx xemoticonx
 Kalau ditanya lebih pilih istri dulu apa anak dulu, mungkin jawabnya pilih istri dulu xemoticonx xemoticonx
@@ -9210,14 +9210,14 @@ Sungguh tatapan mereka penuh dengan cinta dan saling mengagumi
 Tatapan Mas Emil tajam sekali, dalam hatinya bersyukur memiliki istri xmentionx
 Mbak Arumi yang ditatap kok saya yang salah tingkah ya xemoticonx
 Kenapa divideo xemoticonx
-Tidak fokus lihat yang lain cuma lihat ekspresi muka Bapak Emil sangat manis sekali. Netizen melihatnya saja meleleh bagaimana Ibu Arumi
+Tidak fokus melihat yang lain cuma melihat ekspresi muka Bapak Emil sangat manis sekali. Netizen melihatnya saja meleleh bagaimana Ibu Arumi
 Tatapan Mas Emil sangat penuh cinta bikin iri pemirsa xemoticonx xemoticonx
-Bukan cuma saya yang bergerak xemoticonx lihat pasangan ini sedotan pun ikutan bergerak xemoticonx
+Bukan cuma saya yang bergerak xemoticonx melihat pasangan ini sedotan pun ikutan bergerak xemoticonx
 Selalu senang lihatnya xemoticonx
 Masyaallah xemoticonx xemoticonx tapi itu sedotannya kenapa xemoticonx
 Bagaimana ya rasanya dilihati seperti itu tiap hari xemoticonx xemoticonx
 Langgeng sampai surga xemoticonx xemoticonx
-Masyaallah Tabarakallah cantiknya sehat selalu sukses buat pasangan suami istri ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah Tabarakallah cantiknya sehat selalu sukses untuk pasangan suami istri ini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pak Emil bawaannya ingin menciumi melulu deh xemoticonx
 Ini di mie gacoan bukan sih xemoticonx
 Masyaallah Kapan saya bisa diperlakukan begitu sama suami xemoticonx
@@ -9225,7 +9225,7 @@ Tet mie gacoan
 Kita bikin romantis kita bikin romantis
 Bahagia sampai surga ya xemoticonx xemoticonx
 Masyaallah saya tim senyum-senyum sendiri xemoticonx xemoticonx xemoticonx
-Damai banget lihat pasangan ini xemoticonx xemoticonx
+Damai banget melihat pasangan ini xemoticonx xemoticonx
 Dia yang ditatap kok saya yang tarik nafas xemoticonx
 Tatapannya tetap sama
 Sedotan pun menari indah melihat mereka berdua xemoticonx xemoticonx
@@ -9234,16 +9234,16 @@ Salah fokus sama restonya, gacoan bukan ya
 Nah begini nih, seperti Pak Emil kalau istri lagi bicara mengajak mengobrol itu ditatap bukan sambil mainan handphone xemoticonx
 Dia yang dipandang, saya yang meleleh sayang xmentionx xemoticonx xemoticonx teringat pandangan seseorang xemoticonx xemoticonx xemoticonx xemoticonx
 Dua untuk anak gadis saya satu lagi xemoticonx xemoticonx
-Tidak pernah bosan lihat pasangan ini xemoticonx xemoticonx tenang teduh adem lihatnya satu cerewet yang satunya kalem xemoticonx xemoticonx xemoticonx
+Tidak pernah bosan melihat pasangan ini xemoticonx xemoticonx tenang teduh adem lihatnya satu cerewet yang satunya kalem xemoticonx xemoticonx xemoticonx
 Uh mesranya
 Sedotannya ketiup angin
 Meleleh Masyaallah sakinah mawadah warahma Mbak dan Pak Emil xemoticonx Inspirasi xemoticonx
-Saya nontonnya sambil senyum-senyum xemoticonx xemoticonx xemoticonx untung tidak ada orang yang lihat
+Saya nontonnya sambil senyum-senyum xemoticonx xemoticonx xemoticonx untung tidak ada orang yang melihat
 Duh dari dulu senang banget sama Pak Emil Dardak, meleleh xemoticonx xemoticonx
 Pasangan penuh cinta xemoticonx xemoticonx
 Tatapannya itu lo Semoga selalu bahagia xmentionx xemoticonx xemoticonx
-Tidak kuat saya lihat matanya Mas Emil mata sendu wajah ganteng aduh seandainya saya punya suami seperti Mas Emil
-Tonton lagi karena lihat sedotan xemoticonx karena nonton pertama lihati Pak Emil xemoticonx xemoticonx
+Tidak kuat saya melihat matanya Mas Emil mata sendu wajah ganteng aduh seandainya saya punya suami seperti Mas Emil
+Tonton lagi karena melihat sedotan xemoticonx karena nonton pertama lihati Pak Emil xemoticonx xemoticonx
 Semoga selalu bahagia xemoticonx
 Pak caramu melihat istrimu bikin meleleh Pak suami ini tolong dicontoh dong seperti begini nih yang bikin istri meleleh terus xemoticonx xemoticonx xemoticonx xemoticonx
 Suka banget kalau bicara sama suami, terus ditatap seperti itu dan akhirnya jadi salah tingkah xemoticonx xemoticonx xemoticonx
@@ -9254,46 +9254,46 @@ Masyaallah pandangan suaminya Mbak Arumi ke Mbak Arumi secinta itu kelihatannya 
 Azizah pasangan sakinah mawadah warohmah
 Sempurna banget sih xemoticonx xemoticonx xemoticonx
 Pernah indah pada masanya xemoticonx xmentionx
-Sampai saya ulang demi lihat sedotan yang bergerak
+Sampai saya ulang demi melihat sedotan yang bergerak
 Tertawa
 Tatapan penuh cinta dan kasih sayang xmentionx xemoticonx
 Masyaallah, sakinah terus xmentionx xmentionx xemoticonx xemoticonx xemoticonx
 Sangat manis banget xemoticonx
 Mbak Arumi juga makan gacoan kah
-Saya suka lihat Mbak Arumi, semenjak main sinetron di tv
-Masyaallah pasangan sejati dan bisa buat contoh dan panutan buat kita semua agar bisa awet dan seperti beliau salam Ibu dan Pak Emil
+Saya suka melihat Mbak Arumi, semenjak main sinetron di tv
+Masyaallah pasangan sejati dan bisa untuk contoh dan panutan untuk kita semua agar bisa awet dan seperti beliau salam Ibu dan Pak Emil
 Entah kalian bikin bawa perasaan sih xemoticonx
 Salah fokus sama sedotannya
-Sedotannya sampai tidak betah. Ingin pindah ke mars. Wkwk tidak kuat lihat mereka berdua xemoticonx
+Sedotannya sampai tidak betah. Ingin pindah ke mars. Wkwk tidak kuat melihat mereka berdua xemoticonx
 Fokus ke sedotan xemoticonx
 budak cinta ronde kedua xemoticonx
 Saya fokusnya ke sedotannya bergerak sendiri seperti lagi mantau Arumi ketika senyum. Ingin dicium sepertinya si sedotan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Suka banget lihat Bu Arumi dan Pak Emil Masyaallah adem banget rasanya
+Suka banget melihat Bu Arumi dan Pak Emil Masyaallah adem banget rasanya
 Sedotan bergerak-gerak
 Cinta banget xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Manis sekali xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Selalu adem bila melihat pasangan ini sakinah mawadah warahma sampai maut memisahkan suatu saat Pak Emil Dardak Gubernur Jawa Timur amin xemoticonx xemoticonx xemoticonx xemoticonx
 Sekelas pejabat saja nongkrongnya di mie gacoan salut sama pasangan ini xemoticonx
 Saya malah fokus ke sedotan yang bergerak xemoticonx
-Ya Allah kalau nanti ketemu jodoh lagi semoga dapat yang soleh seperti Pak Emil, Amin xemoticonx
-Lihat suaminya Mbak Arumi gemas, yang ganteng sudah biasa tapi kok yang satu ini lucu banget toh cool seperti bintang Korea tapi produk Jawa xemoticonx xemoticonx
+Ya Allah kalau nanti bertemu jodoh lagi semoga dapat yang soleh seperti Pak Emil, Amin xemoticonx
+melihat suaminya Mbak Arumi gemas, yang ganteng sudah biasa tapi kok yang satu ini lucu banget toh cool seperti bintang Korea tapi produk Jawa xemoticonx xemoticonx
 Cinta bersemi lanjut gacoan xemoticonx
-Duh iri deh lihat tatapan Mas Emil xemoticonx
-Suka lihat kalian berdua xemoticonx
-Mbak xmentionx kalau lagi ditatap Mas Emil malu-malu bagaimana begitu tidak, saya kalau ditatap suami saya seperti begitu malah jadi salah tingkah ketawa melulu xemoticonx
+Duh iri deh melihat tatapan Mas Emil xemoticonx
+Suka melihat kalian berdua xemoticonx
+Mbak xmentionx kalau lagi ditatap Mas Emil malu-malu bagaimana begitu tidak, saya kalau ditatap suami saya seperti begitu malah jadi salah tingkah tertawa melulu xemoticonx
 Ya Allah melihat keromantisan berdua sampai sedotan pun iri jadi bergerak xemoticonx sendiri kan xemoticonx
 Cinta banget sama pasangan ini
 Salah fokus sama gerakan sedotannya kok bergerak xemoticonx terus xemoticonx
 xemoticonx xemoticonx sangat manis banget Bu
-Temukan jodoh yang pas xemoticonx xemoticonx xemoticonx xemoticonx bahagia terus pastinya
-Maaf ya Kak Rumi, kalau lihat suami Kak Rumi
+Temukan jodoh yang cocok xemoticonx xemoticonx xemoticonx xemoticonx bahagia terus pastinya
+Maaf ya Kak Rumi, kalau melihat suami Kak Rumi
 Tempatnya seperti di mie gacoan xemoticonx xemoticonx
 Sedotan itu bergerak akibat hembusan nafas Pak suami yang begitu kencang xemoticonx xemoticonx
 xemoticonx suaminya selalu menatap Arumi dengan cinta xemoticonx
 Pendukung-pendukungnya 02 asam sulfat fufufafa SDM RENDAH
 Dari lukisannya lagi di mie gacoan nih sepertinya kak xemoticonx
 Saya teh salah fokus sama sedotan yang bergoyang-goyang sendiri xemoticonx
-Cewek manja, ketemu cowok dewasa, pasti setiap ceweknya mengomel dia cuma senyum-senyum xemoticonx
+Cewek manja, bertemu cowok dewasa, pasti setiap ceweknya mengomel dia cuma senyum-senyum xemoticonx
 Yang ditatap Bu xmentionx yang meleleh saya, sehat selalu dan dimudahkan semuanya Bapak xmentionx dan Bu xmentionx beserta keluarga xemoticonx xemoticonx
 Tambah cantik soalnya suaminya selalu memandang dengan penuh cinta. Sama seperti pandangan suami kita xemoticonx
 Salah fokus sedotannya bergerak-gerak sendiri apa mata saya yang siwer ya
@@ -9301,11 +9301,11 @@ Salah fokus sedotan di gelas itu bergerak-gerak padahal tidak ada angin
 Salah fokus ke sedotannya, bergerak sendiri xemoticonx
 Masyaallah tatapan cintanya tulus sekali sama seperti Pak suami kalau saya cerita selalu antusias dan tidak bosen memandang istrinya xemoticonx xemoticonx xemoticonx sakinah mawadah warrahmah Bu Arumi Pak Emil xemoticonx xemoticonx
 Masyaallah xemoticonx pasangan teradem ayem xemoticonx xemoticonx
-Sedotan saja bergerak-gerak saking irinya lihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
+Sedotan saja bergerak-gerak saking irinya melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
 Pasangan terbaik xemoticonx xemoticonx
 Masyaallah idolaku xemoticonx xemoticonx xemoticonx
 Sedotannya kok bergerak-gerak ya xemoticonx xemoticonx
-Kencannya sederhana di Mie Gacoan outdoor tapi romantisnya bikin meleleh yang lihat xemoticonx xemoticonx
+Kencannya sederhana di Mie Gacoan outdoor tapi romantisnya bikin meleleh yang melihat xemoticonx xemoticonx
 Ayo mari kita latih anak lelaki kita untuk bisa seperti ini untuk istrinya kelak xemoticonx xemoticonx xemoticonx xemoticonx
 Ada yang memperhatikan sedotan tidak Itu kok bergerak sendiri xemoticonx
 Cantiknya harus seperti Arumi xemoticonx xemoticonx xemoticonx xmentionx
@@ -9316,9 +9316,9 @@ Masyaallah xemoticonx
 Mungkin ada angin jadi bergerak sendiri sedotannya
 Masyaallah tabarakallah, semua ingin diperlakukan seperti ini sama suaminya tentunya menerima saat istrinya manja dan mengobrol tentang segala hal dan didengarkan
 Yang dipandang selalu jelita, yang memandang selalu romantis tatapannya xemoticonx xemoticonx
-Itu pandangan sayang xmentionx kalau pas lagi kencan sama saya xemoticonx xemoticonx
+Itu pandangan sayang xmentionx kalau waktu lagi kencan sama saya xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx adem
-Bagaimana ya perasaan Pak Emil tiap hari lihat bidadari
+Bagaimana ya perasaan Pak Emil tiap hari melihat bidadari
 Alhamdulillah pernah merasakan 6,5 tahun sebelum ajal menjemput almarhum suami, benar-benar merasa kehilangan dan tak akan terganti amin
 Cantik banget Rum. Teman saya sekolah dulu xemoticonx xemoticonx xemoticonx
 Ya Allah berilah jodoh putri-putriku seperti Pak Emil xemoticonx
@@ -9327,7 +9327,7 @@ Memang kalau sudah jadi suami pasti akan ganteng terus dimata istrinya apalagi i
 Sisakan sosok suami seperti Mas Emil untuk jodoh anak gadis saya nanti ya rab xemoticonx xemoticonx xemoticonx xemoticonx
 Love birds xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx pandangannya saling cinta banget masyaallah
-Masyaallah tatapan mata pak Emil ke istri membuat yang lihat ikut bawa perasaan termasuk saya, pak Emil adalah tipe suami idaman, memandang istrinya saja seperti pacaran, romantis minta ampun, sehat selalu pak Emil dan ibu Arumi xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah tatapan mata pak Emil ke istri membuat yang melihat ikut bawa perasaan termasuk saya, pak Emil adalah tipe suami idaman, memandang istrinya saja seperti pacaran, romantis minta ampun, sehat selalu pak Emil dan ibu Arumi xemoticonx xemoticonx xemoticonx xemoticonx
 Salah fokus sama sedotan yang bergerak
 Fokus sama sedotan yang bergerak-gerak
 Masyaallah xemoticonx xemoticonx
@@ -9341,7 +9341,7 @@ Weh xemoticonx xemoticonx xemoticonx xemoticonx
 Ini di Gacoan ya? xemoticonx
 Masyaallah, sejuknya melihat pemandangan suami istri ini
 Salah fokus sama sedotannya bergerak sendiri xemoticonx
-Masyaallah, semoga sakinah mawadah warahma ya mbak Arumi dan mas Emil, senang melihat kalian berdua, semoga selalu seperti ini hingga kakek nenek, sedih haru melihat kalian karena suami saya juga seperti ini tapi almarhum sudah mendahului kami, tidak ada lelaki terbaik selain suami yang Allah berikan xemoticonx xemoticonx, doa terbaik buat kalian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah, semoga sakinah mawadah warahma ya mbak Arumi dan mas Emil, senang melihat kalian berdua, semoga selalu seperti ini hingga kakek nenek, sedih haru melihat kalian karena suami saya juga seperti ini tapi almarhum sudah mendahului kami, tidak ada lelaki terbaik selain suami yang Allah berikan xemoticonx xemoticonx, doa terbaik untuk kalian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Aduh bikin meleleh pandangan pak Emil ke mbak Arumi xemoticonx xemoticonx
 Suka sama pasangan ini, penuh cinta
 Selalu mesra pasangan ini, masyaallah xemoticonx xemoticonx
@@ -9350,7 +9350,7 @@ Kak sedotannya bergerak sendiri xmentionx xemoticonx
 Salah fokus sama sedotan di gelas
 Alah alah bu Arumi xemoticonx xemoticonx
 Mie Gacoan ya
-Saya fokus ke sedotan yang bergerak sendiri, apa cuma salah lihat ya
+Saya fokus ke sedotan yang bergerak sendiri, apa cuma salah melihat ya
 Persis sekali seperti pandangan suami saya ke kucing kesayangan xemoticonx xemoticonx
 Tidak pernah bosan melihat pak Emil dan istri, entah mengapa nuansanya selalu romantis sekali xemoticonx xemoticonx xemoticonx
 Cara memandang pak Emil pada istrinya seperti suami saya kalau memandang ponselnya xemoticonx xemoticonx
@@ -9378,11 +9378,11 @@ Mas Emil selalu memandang wajah istri dengan mesra dan penuh cinta kasih, berbah
 Selalu bikin iri pasangan suami istri ini, semoga bahagia dan langgeng terus, amin
 Senyum-senyum sendiri, ikut bahagia xemoticonx
 Ya Allah saya salah fokus sama sedotannya bergerak-gerak sendiri xemoticonx terkena angin kali ya xemoticonx
-Selalu suka lihat postingan kak Arumi xemoticonx xemoticonx
+Selalu suka melihat postingan kak Arumi xemoticonx xemoticonx
 Masyaallah tabarakallah, menua bersama selalu ya mbak cantik dan mas ganteng xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Mbak Arumi xmentionx suka mie Gacoan juga ya seperti kita-kita xemoticonx
 Ah budak cinta sekali xemoticonx xemoticonx xemoticonx
-Sisakan satu yang persis seperti mas Emil buat anak gadis saya ya Allah xemoticonx xemoticonx xemoticonx
+Sisakan satu yang persis seperti mas Emil untuk anak gadis saya ya Allah xemoticonx xemoticonx xemoticonx
 Contoh anak yang akhirnya menurut sama orang tua, berjodoh dengan pak Emil Dardak, sukses selalu pak Emil dan bu Arumi xemoticonx xemoticonx
 Sedotan di gelas pun sampai bergerak salah tingkah di antara mereka xemoticonx
 Mengapa kalau kita dilihat begitu malah marah ya xemoticonx
@@ -9390,7 +9390,7 @@ Pandangan pak Emil ke bu Arumi selalu bikin meleyot xemoticonx xemoticonx
 Suka melihat mbak Arumi dan mas Emil, mesranya lewat mata berbicara, sejuk
 Salah fokus sama sedotan yang bergerak sendiri, serasa diabaikan begitu xemoticonx
 Selalu suka dengan pasangan ini, tetap seperti ini selamanya ya pak, bu xemoticonx
-Ya Allah, sisakan satu lelaki seperti pak Emil begini buat anak gadis saya xemoticonx xemoticonx
+Ya Allah, sisakan satu lelaki seperti pak Emil begini untuk anak gadis saya xemoticonx xemoticonx
 Sedang makan mie Gacoan ya kak xemoticonx
 Penyemangat sekali, bahagia selalu pak bu xemoticonx
 Amin, selalu bersama sampai maut memisahkan ya mbak xemoticonx diberkati selalu keluarga kalian xemoticonx
@@ -9530,7 +9530,7 @@ Sehat selalu semuanya
 Panjang umur Ibu xemoticonx
 Muak dengan yang ini. Tetap pilihankan rapi Mbak xmentionx untuk Jawa Timur menyala xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Khofifah-Emil Yes
-27 November 2024 jangan lupa saudara di Jawa Timur nomor 2 ya.
+27 November 2024 jangan lupa saudara di Jawa Timur nomor dua ya.
 Insyaallah Ibu menang satu putaran saja, salam hormat dari Kota Bitung, Sulawesi Utara xemoticonx xemoticonx
 Bismillah lanjut dua periode xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Insyaallah menang bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -9625,7 +9625,7 @@ Bunda xemoticonx xemoticonx xemoticonx
 Semoga menjadi pemimpin yang amanah kelak xemoticonx xemoticonx
 Pemimpin yang amanah xemoticonx
 Orang yang pintar dan cerdas pasti akan memilih Bu Khofifah
-Bismillah menang total lanjutkan terus Bu Khofifah. Insyaallah atas restu dan izin dari Allah pasti menang cuma Bu Khofifah yang pantas menjadi pemimpin atau gubernur buat warga Jawa Timur, kita semua siap mendukung Bu Khofifah nomor dua harus menang xemoticonx xemoticonx
+Bismillah menang total lanjutkan terus Bu Khofifah. Insyaallah atas restu dan izin dari Allah pasti menang cuma Bu Khofifah yang pantas menjadi pemimpin atau gubernur untuk warga Jawa Timur, kita semua siap mendukung Bu Khofifah nomor dua harus menang xemoticonx xemoticonx
 Maaf Ibu minta tolong aktifkan kembali KAI di kawasan Madura Bu xemoticonx xemoticonx
 2019 prioritas anggaran untuk covid, menyelamatkan manusia xemoticonx pendidikan lewat daring tidak perlu biaya banyak
 Hadir Bu
@@ -9688,7 +9688,7 @@ Kepemimpinannya membawa banyak perubahan positif xemoticonx
 Kampanye yang keren xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx siap menjemput kemenangan menuju Jawa Timur berprestasi!
 Semoga sukses dan tercapai semua hajat kita bersama di bawa komando Bu Khofifah dan didampingi Mas Emil Dardak
-Menguatkan semangat dan kebersamaan dengan sholawat xemoticonx
+Menguatkan semangat dan kebersamaan dengan salawat xemoticonx
 Pecah acaranya seru sekali
 Kampanye ditutup indah sekali xemoticonx
 Sangat mempesona
@@ -9700,10 +9700,10 @@ Tidak usah ragu untuk pilih Bu Khofifah
 Nomor dua jelas menang ini
 Insyaallah menang Bu
 Wah ramai sekali
-Sehat sukses selalu buat Bu Arumi Mas Emil
+Sehat sukses selalu untuk Bu Arumi Mas Emil
 Proses kampanyenya keren keren
 Sukses Khofifah-Emil xemoticonx xemoticonx
-Kemarin ketemu dari dekat bareng Mbak Arumi, masyaallah teman cantiknya
+Kemarin bertemu dari dekat bareng Mbak Arumi, masyaallah teman cantiknya
 Meriah sekali ya kelihatannya
 Sampahnya
 Insyaallah menang satu putaran xemoticonx
@@ -9730,7 +9730,7 @@ Pisangnya bikin mengiler Bu, saya kalau ke kampung halaman selalu beli pisang se
 Ibu tidak ada capeknya xemoticonx xemoticonx
 Doa Ibu adalah sumber semangat bagi kami. Terima kasih telah menjadi pemimpin yang selalu peduli kepada semua golongan
 Bangga jadi warga Jawa Timur xemoticonx
-Oke gas nomor 2 pilihannya xemoticonx
+Oke gas nomor dua pilihannya xemoticonx
 Tegak Lurus sama pilihan Pak Prabowo xemoticonx xemoticonx xemoticonx xemoticonx
 Bangga sekali jadi orang Jawa Timur
 Sehat selalu Ibu
@@ -9743,17 +9743,17 @@ Bangga jadi masyarakat Jawa Timur
 bismillah Bu
 Amin amin ya mujibassaillin
 Pisangnya bagus bagus begitu, produk unggulan ini
-Ibu Khofifah mantap 2 periode xemoticonx xemoticonx xemoticonx xemoticonx
+Ibu Khofifah mantap dua periode xemoticonx xemoticonx xemoticonx xemoticonx
 Amin ya Allah, terima kasih atas doanya, Bu Khofifah. Semoga Ibu selalu sehat, kuat, dan diberi keberkahan dalam setiap langkahnya. xemoticonx xemoticonx
 Ayo gas pilih 02
 Amin xemoticonx xemoticonx
 Nobar bunda
 Amin xemoticonx xemoticonx
-bismillah 2 periode untuk Indonesiaku khususnya Jawa Timur lebih maju xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+bismillah dua periode untuk Indonesiaku khususnya Jawa Timur lebih maju xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Amin ya mujibassailin xemoticonx xemoticonx
 Menang xemoticonx xemoticonx
 Amin ya Allah Allahumma amin xemoticonx
-Lanjut 2 periode bu xemoticonx
+Lanjut dua periode bu xemoticonx
 Amin xemoticonx
 Lanjutkan bu Khofifah
 Untuk rakyat Jawa Timur maju xemoticonx
@@ -9780,7 +9780,7 @@ Top bu Khofifah xemoticonx xemoticonx
 Masyaallah pisangnya xemoticonx xemoticonx
 Pasti manis itu pisangnya xemoticonx
 Semoga terpilih amin
-Gas pol nomor dua
+Gas penuh nomor dua
 Mantap pisangnya xemoticonx
 Gaskan Ibu xemoticonx saya dukung anda
 Blusukan terus bu xemoticonx
@@ -9792,7 +9792,7 @@ Semangat terus ya
 Cantik sekali ya Bu Khofifah ini
 Sungguh pemimpin yang penuh dengan keikhlasan. Terima kasih atas doa dan semangatnya, Bu Khofifah. Kami akan selalu mendukung
 Amin, Bu. Doa dan dukungan kami selalu untuk Ibu Khofifah. Terima kasih telah menjadi pemimpin yang luar biasa.
-Pisangnya bu sudah matang semua, enak buat gorengan ini
+Pisangnya bu sudah matang semua, enak untuk gorengan ini
 Jadi ingin stok buah dari pasar
 bismillah ibu, semoga Allah meridai ibu menjadi gubernur Jawa Timur lagi xemoticonx
 Semoga kita semua senantiasa dalam lindungan Allah
@@ -9805,8 +9805,8 @@ Semuanya digaet sama Bu Khofifah
 Semangat ya bu
 NU nyell patuh ikut anda bu
 Makan pisang Raja di pasar legi, Sang Juara terpilih lagi. Amin
-bismillah 2 periode Bu xemoticonx xemoticonx
-2 periode
+bismillah dua periode Bu xemoticonx xemoticonx
+dua periode
 02 is the best
 Sayurnya segar-segar sekali
 Semangat 02
@@ -9818,7 +9818,7 @@ Warga Lamongan pasti bangga punya pemimpin yang peduli seperti Ibu. Semoga selal
 Amin. Semoga Ibu juga diberi keberkahan dan kesehatan selalu. Terima kasih atas perhatian untuk kami, Bu
 Khofifah-Emil pemimpin paket komplit untuk Jawa Timur
 All in dua xemoticonx
-Tetap nomor 2 pemenangnya
+Tetap nomor dua pemenangnya
 Semangat Ibu xemoticonx xemoticonx
 Warga Pasar Sidoharjo pasti merasa sangat dihargai. Terima kasih atas kunjungan dan doanya, Bu Khofifah
 Jawa Timur maju berprestasi bersama Khofifah Emil
@@ -9838,15 +9838,15 @@ Tidak usah ragu lagi pilih, pilih yang sudah pasti saja Khofifah-Emil
 Bu Khofifah pemimpin yang memperhatikan rakyatnya
 Lanjutkan Bu
 Bu Khofifah memang top xemoticonx xemoticonx
-Gas pol coblos 02 xemoticonx xemoticonx
+Gas penuh coblos 02 xemoticonx xemoticonx
 Lanjutkan nomor dua xemoticonx xemoticonx
 All in Khofifah Emil xemoticonx
-Gas pol 02
+Gas penuh 02
 Semakin maju kalau gubernurnya bu Khofifah
 Yang pokok Khofifah saja 02
 Jelas tambah maju kalau gubernurnya bu Khofifah
-Pilih nomor 2
-Maju gas pol
+Pilih nomor dua
+Maju gas penuh
 Semangatnya teman-teman ibu-ibu xemoticonx
 Amin ya Allah
 Masyaallah cek kesehatan selalu diutamakan xemoticonx xemoticonx
@@ -9857,17 +9857,17 @@ Amanah bu xemoticonx xemoticonx
 Gaskan ibu dan mas Emil. Lanjutkan. Menang menang menang
 Lamongan menyala xemoticonx
 Mantap. Jiwa dan ragaku untuk Khofifah-Emil
-Semangat bu, yakin 2 periode
+Semangat bu, yakin dua periode
 Terima kasih sudah menyapa masyarakat Lamongan ibu xemoticonx PSI Lamongan all in Khofifah - Emil xemoticonx
 PSI LAMONGAN SIAP MENANGKAN BU KHOFIFAH-EMIL xemoticonx
 Teman-teman semua 02
-Coblos nomor 2 xemoticonx xemoticonx xemoticonx
+Coblos nomor dua xemoticonx xemoticonx xemoticonx
 Sepakat sama Ibu-ibu pedagang
 02 oke sip ini pilihanku xemoticonx
 bismillah jadi xemoticonx
 Top bu Khofifah
 Pemimpin yang diharapkan Jawa Timur xemoticonx xemoticonx
-Mantap lanjutkan 2 periode bu xemoticonx xemoticonx
+Mantap lanjutkan dua periode bu xemoticonx xemoticonx
 Jawa Timur semakin maju xemoticonx xemoticonx
 Alhamdulillah
 Top bu Khofifah amanah
@@ -9886,8 +9886,8 @@ Kepemimpinannya menunjukkan kejujuran dan komitmen tinggi terhadap tugas beliau
 Beliau selalu menjaga keberagaman dan mempromosikan toleransi di Jawa Timur
 Sosok yang sederhana tapi penuh prestasi xemoticonx
 Kerja keras tanpa pamrih untuk kesejahteraan masyarakat
-5 tahun dipimpin Khofifah Jawa Timur jalan di tempat, tanpa prestasi yang jelas
-5 tahun dipimpin Khofifah, hatimu jadi provinsi terkorup di Indonesia
+limat tahun dipimpin Khofifah Jawa Timur jalan di tempat, tanpa prestasi yang jelas
+limat tahun dipimpin Khofifah, hatimu jadi provinsi terkorup di Indonesia
 Lanjutkan bu xemoticonx xemoticonx xemoticonx xemoticonx
 Sudah saya pilih saya coblos tadi bunda
 Kesayangan xemoticonx
@@ -9922,7 +9922,7 @@ Soto tambah ceker? Mantap pasti
 Semoga jadi gubernur Jawa Timur Bu Khofifah
 Maaf ikut bertanya, bagaimana ya cara mengempeskan perut buncit yang efektif? Lagi merasa kurang nyaman sekali akhir-akhir ini. xemoticonx
 Coba xmentionx ibu produk asli Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx
-Sotonya enak 2 porsi bu
+Sotonya enak dua porsi bu
 Soto salah satu makanan kesukaan saya xemoticonx
 Tambahkan sambal makin nikmat bu xemoticonx
 Seru sekali keliling Jawa Timur xemoticonx
@@ -9935,7 +9935,7 @@ Kuliner lokal ini memang mantap mantap xemoticonx
 Selamat menikmati ibu xemoticonx xemoticonx
 Saya paling suka kalau ada koyanya xemoticonx
 Soto Lamongan tidak ada obat memang bu
-Lanjutkan saja bu 2 periode
+Lanjutkan saja bu dua periode
 Jadi ingin xemoticonx
 Soto Lamongan memang juara xemoticonx xemoticonx
 Membuat lapar ini
@@ -9961,13 +9961,13 @@ Saya tidak berniat jahat sama ibu, dan saya tidak iri sama ibu, kenapa orang ora
 Apa tidak bisa cari yang lainnya bisanya merebut saja, redhar Febri sudah cari yang lainnya bisanya merebut
 Wah kayaknya enak nih
 Wah kelihatannya enak sekali bu
-Bu ya kalau memimpin tunjukkan hasil kerja nyatamu buat kemajuan rakyat Jawa Timur, buat program gebrakan yang membuat rakyat semakin makmur
+Bu ya kalau memimpin tunjukkan hasil kerja nyatamu untuk kemajuan rakyat Jawa Timur, buat program gebrakan yang membuat rakyat semakin makmur
 Wah enak nih
 Maknyus
 Mantap sekali
 Brondong Lamongan lanjutkan
 Bu kenapa foto profil instagramnya bawa semangka?
-Tolong jangan diperlakukan seperti itu keluargaku hanya karena junior anda pernah saya tempeleng, saya kasih pelajaran biar tidak sembrono febribredharnya yang salah itu junior anda yang salah, lah orang saya mau ditabrak dari belakang, itu anak anda atau junior anda masih dendam akan masa lalunya yang tidak sanggup, jadi jangan menaruh rasa benci iri cemburu dengki itu semuanya tetap ketemu sama saya, mana yang sayang mana yang iri cemburu, saya bisa membaca gerak gerik orang dari kejauhan seperti redhar febrimu itu cemburu iri
+Tolong jangan diperlakukan seperti itu keluargaku hanya karena junior anda pernah saya tempeleng, saya kasih pelajaran biar tidak sembrono febribredharnya yang salah itu junior anda yang salah, lah orang saya mau ditabrak dari belakang, itu anak anda atau junior anda masih dendam akan masa lalunya yang tidak sanggup, jadi jangan menaruh rasa benci iri cemburu dengki itu semuanya tetap bertemu sama saya, mana yang sayang mana yang iri cemburu, saya bisa membaca gerak gerik orang dari kejauhan seperti redhar febrimu itu cemburu iri
 Jangan menaruh rasa benci kepada keluargaku kalau tidak nanti saya hancurkan orang tersebut, hiduplah untuk saling menghargai, satu guru satu ilmu jangan saling mengganggu
 Kalau anak anda junior anda sudah kalah bersaing ya sudah terima lapang dada, tidak perlu menjelekkan orang, itu artinya Febri redhar Deo Eman Gayo sudah kalah bersaing tidak bisa menerima kenyataan kekalahan dalam bersaing, sudah salah mengeyel kalahan redhar febrinya kalah bersaing
 Jangan seperti itu lagi ya bu, saya tidak suka anda sentimentil kepada keluargaku hanya karena junior anda kalah bersaing mengharap tapi tidak sampai
@@ -9975,34 +9975,34 @@ Assalamualaikum salam Nusantara semoga umur panjang
 Langganan sejak kecil saya itu ibu, enak sekali bening asli ayam kampung
 Semua melenceng sedikit xemoticonx xemoticonx kampanye di media sosial bayar pelaku kampanye sudah tidak mempan, di mana mana The Jak mengamuk menolak Ridwan Kamil xemoticonx xemoticonx xemoticonx rakyat sudah cerdas tidak percaya akun berita viral dan lain lain
 Iya bu silakan nikmatilah saja saya dikirimi
-Semoga nomor 3 yang menang
+Semoga nomor tiga yang menang
 Soto favorit xemoticonx langganan mimin bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Tumben berkeliling ke Lamongan, Bu. Ada perlukah?
 Lanjut
-Luar biasa, Bu Khofifah! Sholawat Badar memang selalu membawa kedamaian dan semangat bagi kita semua. Semoga kita selalu diberi kekuatan untuk mengikuti jejak Rasulullah dan para sahabat
-Masyaallah, sholawat badar selalu membawa kedamaian
-Sholawat Badar memang abadi, tidak hanya indah didengar tetapi juga penuh pelajaran hidup. Terima kasih atas pengingatnya
-Sholawat badar adalah pengingat akan perjuangan dan cinta kepada Allah dan rasul
-Kebahagiaan Jumat semakin lengkap dengan sholawat ini
+Luar biasa, Bu Khofifah! salawat Badar memang selalu membawa kedamaian dan semangat bagi kita semua. Semoga kita selalu diberi kekuatan untuk mengikuti jejak Rasulullah dan para sahabat
+Masyaallah, salawat badar selalu membawa kedamaian
+salawat Badar memang abadi, tidak hanya indah didengar tetapi juga penuh pelajaran hidup. Terima kasih atas pengingatnya
+salawat badar adalah pengingat akan perjuangan dan cinta kepada Allah dan rasul
+Kebahagiaan Jumat semakin lengkap dengan salawat ini
 Selalu dukung bu Khofifah
-Sholawat bersama ini bikin kita semua damai dan tenteram
+salawat bersama ini bikin kita semua damai dan tenteram
 Pemimpin yang merakyat dan religius ini bikin bangga xemoticonx
 Masyaallah bu acaranya lancar selalu xemoticonx
 Semoga kita bisa terus meneladani perjuangan Rasulullah
-Dengan sholawat badar kita diingatkan untuk tetap teguh
+Dengan salawat badar kita diingatkan untuk tetap teguh
 Suaranya masyaallah
 Semoga kita bisa mengambil hikmahnya amin
 Sehat selalu bu Khofifah
-Sholawat Badar beb xmentionx
+salawat Badar beb xmentionx
 Terima kasih bu Khofifah sudah hadir, ini jadi penyemangat kami xemoticonx
-Semoga dengan Sholawat ini Jawa Timur semakin menjadi lebih makmur dan sejahtera
-Pemimpin yang cinta sholawat, pasti Allah cinta juga
+Semoga dengan salawat ini Jawa Timur semakin menjadi lebih makmur dan sejahtera
+Pemimpin yang cinta salawat, pasti Allah cinta juga
 Semoga bu Khofifah selalu istiqomah dalam menginspirasi masyarakat
-Sholawat ini seperti obat hati membuat hidup semangat
+salawat ini seperti obat hati membuat hidup semangat
 Ya Allah selamatkan umat Islam dari malapetaka dan siksa, dari segala kesusahan dan duka cita, dengan sebab berkah pejuang ahli badar ya Allah
 Ya Allah, lepaskan dan hilangkan segala yang menyakitkan dan kembalikan tipu daya musuh, dan kasihani kami dengan sebab berkah pejuang ahli badar ya Allah
-Terima kasih telah mengingatkan lewat sholawat badar ini
-Sholawat bersama ini bukti nyata kepedulian pemimpin pada rakyat
+Terima kasih telah mengingatkan lewat salawat badar ini
+salawat bersama ini bukti nyata kepedulian pemimpin pada rakyat
 Kapan nih dirimu mau klarifikasi tentang dana BPOPP yang cuma cair 6-9 bulan? 2018 sudah janji SMA sederajat gratis di Jawa Timur nyatanya apa? SMAN SMKN saja masih banyak yang bayar, jangan jangan ini program gagal sama seperti seragam gratis 2019?
 Masyaallah xemoticonx
 Subhanallah suaranya
@@ -10018,17 +10018,17 @@ Mantap bu Khofifah
 Menenangkan hati sekali
 Ya Allah berikan masyarakat Jawa Timur ketenangan
 Jadi pemimpin tidak boleh pilih kasih, kalau salah katakan salah, kalau benar katakan benar, yang salah dibenarkan, yang benar disalahkan, jadi pemimpin tidak boleh pilih kasih, setiap warga negara Indonesia memiliki hak yang sama dimata konstitusi, tegakkan keadilan itu perintah agama, kalau anaknya sendiri bersalah jangan dibela, kalau perlu nasehati beri pelajaran agar tidak berbuat semaunya sendiri agar tidak mengulangi akan kesalahannya di masa, masa lalu ya, kalau bersalah anaknya anda harus meminta maaf kepada orang yang didolimi, itu saja jangan sampai salah lagi atau berbuat dengan seenaknya sendiri saling menghargai dan jangan berbuat kerusakan lagi
-Luar biasa ibuku xemoticonx xemoticonx 2
+Luar biasa ibuku xemoticonx xemoticonx dua
 Damai sekali xemoticonx xemoticonx
 Gubernur pilihanku
 Semoga masyarakat Jawa Timur pilih bu Khofifah semua xemoticonx
 Penyegar dan pengingat untuk kita semua
 Semoga bisa lanjut dua periode
-Sholawat adalah jalan menuju hadroturrosul. Bukan jalan menuju pemilihan kepala daerah apalagi sambil mengacungkan jari 2. Isinya saya bu xemoticonx
+salawat adalah jalan menuju hadroturrosul. Bukan jalan menuju pemilihan kepala daerah apalagi sambil mengacungkan jari dua. Isinya saya bu xemoticonx
 Sudah tahu salah anak juniornya tidak mau meminta maaf, semaunya sendiri junior anda bukan hak miliknya kok langsung ambil saja, mau enak tidak mau susah, sudah tidak ikut menyumbang tiba tiba meminta panen mau ditaruh dimana itu muka junior anaknya
 Tenang sekali masyaallah
 Tetap bu Khofifah xemoticonx
-Bismillah nomor 2 menang xemoticonx
+Bismillah nomor dua menang xemoticonx
 Gas terus xemoticonx
 Suaranya merdu xemoticonx xemoticonx
 Masyaallah tenang sekali xemoticonx xemoticonx
@@ -10036,11 +10036,11 @@ Semoga berkah bu
 Bismillah menang xemoticonx
 Lanjutkan bu Khofifah semoga berkah selalu
 Menyala bu terus menyebarkan kebaikan
-Bersholawat menyebarkan aura positif xemoticonx xemoticonx
+Bersalawat menyebarkan aura positif xemoticonx xemoticonx
 Shalawat selalu membawa kedamaian
 Masyaallah ya barakallah Jumat berkah
 Bu Khofifah kebanggaanku xemoticonx xemoticonx xemoticonx xemoticonx
-Senangnya lihat pejabat yang rajin bersholawat begini
+Senangnya melihat pejabat yang rajin bersalawat begini
 Masyaallah gubernurku lestarikan kuliner lokal!
 Bu Khofifah panutanku
 Luar biasa penuh pengabdian dan dedikasi
@@ -10050,19 +10050,19 @@ Mantap ibu Khofifah xemoticonx xemoticonx
 Alfatihah KH. Ali Manshur xemoticonx xemoticonx
 Masyaallah sehat sehat ibu Khofifah xemoticonx xemoticonx
 Bu Khofifah tetap lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx
-Damai sekali lihat ibu Khofifah xemoticonx xemoticonx
+Damai sekali melihat ibu Khofifah xemoticonx xemoticonx
 Bu Khofifah luar biasa selalu menginspirasi dan penuh kebaikan
 Alhamdulillah, semoga kita semua diberi kebahagiaan dunia dan akhirat, sebagaimana yang selalu dicontohkan oleh Ibu Khofifah dalam setiap perbuatannya
 Alhamdulillah damai sekali lihatnya xemoticonx
 Kerja keras Ibu Khofifah selalu menyentuh hati, terutama dalam menjaga keseimbangan antara kehidupan dunia dan akhirat. Semoga diberi selalu kemudahan dan keberkahan
-Acara sholawat seperti ini membuat lingkungan menjadi lebih damai, top bu Khofifah
+Acara salawat seperti ini membuat lingkungan menjadi lebih damai, top bu Khofifah
 Ibu Khofifah adalah sosok pemimpin yang tidak hanya memikirkan dunia, tetapi juga akhirat. Semoga kita semua selalu diberi kebahagiaan yang hakiki
 Bu Khofifah luar biasa dan menginspirasi
-Lantunan sholawat membawa ketenangan yang luar biasa. Semoga acara ini membawa keberkahan berlimpah
-Masyaallah, sholawat bersama seperti ini semoga membawa keberkahan untuk Jawa Timur
-Sungguh luar biasa acara ini! Sholawat memang menjadi pengingat agar kita selalu mendekatkan diri kepada Allah
+Lantunan salawat membawa ketenangan yang luar biasa. Semoga acara ini membawa keberkahan berlimpah
+Masyaallah, salawat bersama seperti ini semoga membawa keberkahan untuk Jawa Timur
+Sungguh luar biasa acara ini! salawat memang menjadi pengingat agar kita selalu mendekatkan diri kepada Allah
 Penuh semangat dan penuh doa, Ibu Khofifah menjadi teladan dalam menjaga keharmonisan hidup duniawi dan ukhrawi. Semoga Allah selalu memberkahi langkah beliau
-Sungguh damai mendengar sholawat di Gresik. Semoga ini menjadi penguat iman dan semangat ukhuwah Islamiyah
+Sungguh damai mendengar salawat di Gresik. Semoga ini menjadi penguat iman dan semangat ukhuwah Islamiyah
 Acara yang bermanfaat berkah berkah xemoticonx xemoticonx
 Pesan KH. Agus Ali Mashuri sangat relevan di zaman ini. Semoga kita semua bisa mengamalkannya
 Mantap xemoticonx
@@ -10073,15 +10073,15 @@ Semoga acara seperti ini sering diadakan xemoticonx
 Semoga niat baik Ibu Khofifah dalam beribadah dan bekerja keras selalu mendatangkan keberkahan bagi kita semua. Amin
 Semoga sehat sampai dilantik bu xemoticonx
 Semoga terus diberikan kekuatan dan keberkahan dalam setiap usaha yang Ibu Khofifah lakukan, baik untuk dunia maupun akhirat. Amin
-Masyaallah, sholawat bersama KH. Agus Ali Mashuri pasti membawa ketenangan jiwa dan berkah luar biasa. Semoga kita semua mendapat rida Allah
+Masyaallah, salawat bersama KH. Agus Ali Mashuri pasti membawa ketenangan jiwa dan berkah luar biasa. Semoga kita semua mendapat rida Allah
 Kebersamaan seperti ini bikin hati damai
 Pemimpin yang istiqomah dalam nilai nilai Islam patut diteladani
 Acara ini penuh dengan aura spiritual dan kedamaian. Terima kasih, KH. Agus Ali Mashuri, atas inspirasinya
 Semoga bu Khofifah selalu diberi kesehatan untuk terus membimbing Jawa Timur
 Amin amin ya Allah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Lahir batin untuk dukung Bu Khofifah 2 periode
+Lahir batin untuk dukung Bu Khofifah dua periode
 Siap menyambut kemenangan Khofifah Emil
-Mengaji ya mengaji sholawat ya sholawat, tapi kalau bisa ya jangan dicampurkan dengan politik, itu pesan kiai dulu
+Mengaji ya mengaji salawat ya salawat, tapi kalau bisa ya jangan dicampurkan dengan politik, itu pesan kiai dulu
 Kalau memang kamu dapat kesempatan lagi jadi gubernur, jangan lupa klarifikasi dana BPOPP itu sifatnya subsidi atau bagaimana, jangan cuma diam ketika masyarakat seolah berbenturan dengan sekolah. Dulu kamu janji SMA negeri swasta gratis ya 2018 waktu kampanye, sekarang yang negeri saja masih banyak yang bayar dan sifatnya pungutan yang dilarang Permendikbud. Jangan cuma diam dan baca laporan sekilas dari dinas saja, turun ke masyarakat, pekerjaan gubernur tidak cuma meresmikan acara saja
 Alhamdulillah insyaallah semua mendoakan ibu untuk melanjutkan kepemimpinan xemoticonx xemoticonx
 Waspada potensi serangan fajar xemoticonx rapatkan barisan dan bulatkan tekad untuk melanjutkan periode kedua xemoticonx xemoticonx
@@ -10094,7 +10094,7 @@ Masyaallah Bu Khofifah pemimpin yang selalu dekat dengan rakyatnya
 Masyaallah ingin ikut acaranya
 Bu Khofifah pemimpin yang tepat untuk Jawa Timur xemoticonx
 Lanjutkan lagi bu untuk memimpin Jawa Timur
-Sholawat bersama Nasida Ria dan Ahbabul Musthofa menciptakan suasana yang sangat khusyuk dan syahdu. Alhamdulillah
+salawat bersama Nasida Ria dan Ahbabul Musthofa menciptakan suasana yang sangat khusyuk dan syahdu. Alhamdulillah
 Keseimbangan dunia dan akhirat adalah kunci kebahagiaan. Terima kasih atas pengingat yang indah ini
 Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx cinta damai ya bu
 Tetap dukung bu Khofifah xemoticonx xemoticonx
@@ -10114,7 +10114,7 @@ Acaranya luar biasa xemoticonx
 Sungguh tenteram sekali xemoticonx xemoticonx
 Top gubernurku xemoticonx xemoticonx
 Masyaallah gubernurku
-Lanjutkan 2 periode xemoticonx xemoticonx xemoticonx xemoticonx
+Lanjutkan dua periode xemoticonx xemoticonx xemoticonx xemoticonx
 Siap mengawal bu Khofifah xemoticonx
 Top
 Gubernurku xemoticonx
@@ -10127,7 +10127,7 @@ Semoga selalu diselimuti kebahagiaan xemoticonx
 Luar biasa ibu xemoticonx
 Semangat membara ibu xemoticonx
 Bismillah bu Khofifah pasti menang xemoticonx
-Gas rek dukung nomor 2
+Gas rek dukung nomor dua
 Masyaallah sehat selalu Ibu xemoticonx xemoticonx
 Bismillah ibu bisa terpilih lagi xemoticonx xemoticonx
 Lanjutkan nomor dua xemoticonx
@@ -10169,13 +10169,13 @@ Semoga acara salawat di Genggong menjadi pemicu semangat masyarakat untuk selalu
 Adem melihatnya xemoticonx
 Semoga bisa terpilih lagi ya bu xemoticonx xemoticonx
 Sehat selalu Bu Khofifah. Lanjutkan dan Tuntaskan
-Salam 2 periode, lanjutkan!!
+Salam dua periode, lanjutkan!!
 Semoga mendapat syafaat dan keberkahan saudara xemoticonx xemoticonx
 Bu Khofifah top xemoticonx xemoticonx xemoticonx
-Semoga bisa lanjut 2 periode
+Semoga bisa lanjut dua periode
 Semua kalangan pilih Bu Khofifah xemoticonx
 Semoga bisa lanjut Ibu
-Salawat berkumandang, adem sekali lihat seperti ini
+Salawat berkumandang, adem sekali melihat seperti ini
 Lanjut saja Bu Khofifah
 Lanjutkan bu xemoticonx
 Warga Jawa Timur seluruhnya mendukung 02 xemoticonx
@@ -10189,16 +10189,16 @@ Seluruh masyarakat Jawa Timur pilih bunda KIP xemoticonx
 Bismillah berkah ya
 Masyaallah ramainya xemoticonx xemoticonx
 Masyaallah sejuknya
-Luar biasa xemoticonx adem sekali kalau lihat begini xemoticonx
+Luar biasa xemoticonx adem sekali kalau melihat begini xemoticonx
 Semoga dapat lanjut bu
 Damai selalu untuk pemilihan umum damai xemoticonx
-Salam 2 jari xemoticonx
+Salam dua jari xemoticonx
 Semoga kesejukan menyelimuti Jawa Timur xemoticonx xemoticonx
 Adem sekali melihatnya
 Perbaikan jalan 1x24 jam, seperti tahu di buku sejarah legenda Roro Jonggrang
 Alhamdulillah sekali
 Lanjutkan Bu Khofifah
-Suka sekali lihat salawat berkumandang
+Suka sekali melihat salawat berkumandang
 Masyaallah
 Sehat selalu Bu Khofifah
 Semoga selalu damai hati ini
@@ -10210,12 +10210,12 @@ Damai begini kan enak xemoticonx
 Masyaallah subhanallah kunfayakun
 Semoga sering salawatan begini, membuat hati tenang
 Weh ramai sekali
-Masyaallah, selalu merinding kalau lihat beginian
+Masyaallah, selalu merinding kalau melihat beginian
 Masyaallah alhamdulillah tadi malam bisa hadir dan dekat dengan para beliau xemoticonx
 Semoga dapat hibah
 Berkah-berkah ayo dibeli, jualan berkah nih xemoticonx
 Bu Khofifah kok dilawan xemoticonx xemoticonx xemoticonx xemoticonx
-Ibu Khofifah mantap 2 periode
+Ibu Khofifah mantap dua periode
 Itulah orang Indonesia Gampang Lupa, dibungkus dengan agama sudah tuh Barang Jadi.
 Jember Sukowono Ibu Khofifah
 Acara ini menjadi pengingat untuk terus memperbanyak salawat. Semoga kita semua mendapatkan syafaat Nabi Muhammad SAW.
@@ -10238,7 +10238,7 @@ Kalau sudah pilihan apa ada yang begini lagi ya maaf cuma tanya saja
 Madura yakin xemoticonx xemoticonx periode untuk Bu Khofifah
 Berkah
 BISMILLAH YA ALLAH Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Siapapun pasangan calon yang nomor urut 2. Akan kupastikan tercoblos di 27 November nanti
+Siapapun pasangan calon yang nomor urut dua. Akan kupastikan tercoblos di 27 November nanti
 Assalamualaikum Bu Khofifah, semoga Anda bisa melanjutkan memimpin Jawa Timur atas Rida ALLAH. Amin Ya Rabbal Alamin.
 Gubernurnya Bu Khofifah Bupatinya Gus Barra
 Ramainya
@@ -10290,7 +10290,7 @@ Setelah ini mau kemana lagi nih
 Bu, minta tolong pemutihan pajak kendaraan bermotor diperpanjang sampai bulan Desember 2024 soalnya banyak dari saudara-saudara kita yang bisa bayar di bulan Desember
 Masyaallah semoga lelah Anda menjadi berkah bu xemoticonx xemoticonx
 Pemimpin yang sabar hanya Bu Khofifah
-Gas pol ibu. Menang. Lanjutkan dua periode
+Gas penuh ibu. Menang. Lanjutkan dua periode
 Beliau mampu memimpin Jawa Timur dengan bijaksana. xemoticonx xemoticonx xemoticonx
 Menyala gubernurku xemoticonx xemoticonx xemoticonx xemoticonx
 Jawa Timur sepenuhnya dukung Khofifah
@@ -10300,33 +10300,33 @@ LANJUTKAN
 Bismillah bu kemenangan di depan mata
 Senang sekali kalau punya gubernur seperti ini, merasa seperti diperhatikan
 Bu Khofifah yang selalu mengayomi masyarakat xemoticonx xemoticonx xemoticonx xemoticonx
-Gas pol 02 xemoticonx xemoticonx
+Gas penuh 02 xemoticonx xemoticonx
 Sehat selalu Bu Khofifah saya tunggu sampai Anda dilantik xemoticonx
 Top gubernurku xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Sehat-sehat bu xemoticonx xemoticonx xemoticonx
 Jawa Timur menyala bersama Bu Khofifah
 Semangat bu sehat-sehat sampai dilantik xemoticonx
-Bu Khofifah 2 periode xemoticonx xemoticonx
+Bu Khofifah dua periode xemoticonx xemoticonx
 Top bu saya dukung ibu xemoticonx
 Kinerjanya selalu transparan dan terukur
 Pemimpin yang memahami kebutuhan rakyat kecil
-Lanjutkan 2 periode untuk Khofifah Emil
+Lanjutkan dua periode untuk Khofifah Emil
 Kehadirannya selalu membawa ketenangan
-Keren sekali para pekerja dari PT Integra, sangat antusias sampai 5 ribu massa xemoticonx
+Keren sekali para pekerja dari PT Integra, sangat antusias sampai limat ribu massa xemoticonx
 Semangat selalu para buruh xemoticonx
 Jangan bimbang pilih Bu Khofifah xemoticonx
 Masyaallah sekali Bu Khofifah xemoticonx
 Jangan pantang menyerah Bu Khofifah
 Keluarga ASN Jawa Timur siap dukung ibu
-Salam 2 periode xemoticonx xemoticonx xemoticonx
-Sehat selalu Bu Khofifah semoga bisa 2 periode
+Salam dua periode xemoticonx xemoticonx xemoticonx
+Sehat selalu Bu Khofifah semoga bisa dua periode
 Semoga bisa terpilih kembali
 Semoga pemilihan kepala daerah ini berjalan dengan lancar xemoticonx xemoticonx
 Setia mendukung Bu Khofifah
 Demi Jawa Timur yang lebih maju
-Semangat Bu Khofifah, pasti 2 periode
+Semangat Bu Khofifah, pasti dua periode
 Khofifah Emil paling keren
-2 periode di depan mata
+dua periode di depan mata
 Paling keren sendiri ya 02
 Sehat selalu Ibu Khofifah
 Bersama Bu Khofifah rakyat sejahtera
@@ -10336,11 +10336,11 @@ xmentionx xmentionx insyaallah pasti menang xmentionx xemoticonx xemoticonx xemo
 Oh ibu ini yang menerobos car free day kemarin? xemoticonx xemoticonx
 Bu Khofifah kebanggaan kota Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx
 DANA HIBAH 7,8 T DIBUAT BANCAKAN KHOFIFAH
-Terima kasih sudah berkunjung ke PT Integra senang sekali bertemu ibu, bismillah semoga menang 1 putaran xemoticonx
+Terima kasih sudah berkunjung ke PT Integra senang sekali bertemu ibu, bismillah semoga menang satu putaran xemoticonx
 Jawa Timur LO KIH xemoticonx
 Alhamdulillah terima kasih Bu Khofifah buah tangannya cinderamata sudah kami terima mewakili bunda-bunda ojek daring Surabaya Sidoarjo. Terima kasih barakallah. Warnanya pink secantik sewangi hati dan kebaikan Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Selamat datang gubernur kita xemoticonx xemoticonx xemoticonx
-Pilih yang punya program sekolah gratis hai saudara-saudara Jawa Timur. Jangan pandang dia dekat sama ulama dan kiai. Semua calon dekat sama ulama dan kiai. Tapi pilihlah calon yang punya program sekolah gratis dari SD, SMP, SLTA. Itulah yang penting. Sudah 5 tahun menjabat dulu juga sekolah masih bayar. Contoh sudah zaman Pak Ganjar sekolah Jawa Tengah gratis
+Pilih yang punya program sekolah gratis hai saudara-saudara Jawa Timur. Jangan pandang dia dekat sama ulama dan kiai. Semua calon dekat sama ulama dan kiai. Tapi pilihlah calon yang punya program sekolah gratis dari SD, SMP, SLTA. Itulah yang penting. Sudah limat tahun menjabat dulu juga sekolah masih bayar. Contoh sudah zaman Pak Ganjar sekolah Jawa Tengah gratis
 Luar biasa semangat dan komitmen ini semoga menjadi awal dari perjuangan yang penuh berkah
 Semangat yang luar biasa! Bersama Khofifah-Emil, kita pasti bisa mewujudkan Jawa Timur yang lebih maju. bismillah, sukses selalu
 Semangat luar biasa untuk Bu Khofifah dan tim! Dengan kerja keras dan kolaborasi, kita pasti bisa membawa perubahan besar untuk Jawa Timur
@@ -10366,7 +10366,7 @@ Siap menyambut kemenangan Bu Khofifah saudara
 Jangan lupa teman pilih 02
 bismillah menang teman
 Jawa Timur maju xemoticonx xemoticonx
-bismillah dengan persatuan dan kerja keras semua pihak yakin Khofifah Emil 2 PERIODE
+bismillah dengan persatuan dan kerja keras semua pihak yakin Khofifah Emil dua PERIODE
 Khofifah-Emil adalah pilihan yang tepat untuk memimpin Jawa Timur
 Salut untuk kolaborasi ini
 Aliansi Melati Putih dan semua pendukung Khofifah-Emil, kita pasti bisa membangun Jawa Timur yang lebih baik
@@ -10384,7 +10384,7 @@ Bersama Khofifah-Emil, Jawa Timur pasti lebih maju dan sejahtera
 Khofifah-Emil, pemimpin yang siap membangun Jawa Timur! Kami mendukung sepenuh hati
 Saya tim Khofifah-Emil
 Makan donat di tengah sawah, donat bulat topingnya merah... ucapan selamat pada Bu Khofifah, dukungan kaum Muslimat melimpah ruah
-Mantap Ibu Khofifah. Kami doakan 2 periode. Sehat selalu Ibu Khofifah
+Mantap Ibu Khofifah. Kami doakan dua periode. Sehat selalu Ibu Khofifah
 Gas saudara xemoticonx xemoticonx
 Mantap membangun Jawa Timur bersama Bunda Khofifah xemoticonx xemoticonx
 Terima kasih ya Ibu
@@ -10396,11 +10396,11 @@ Masyaallah, tentu dong pilih Bu Khofifah
 Jawa Timur maju bersama Bunda Khofifah xemoticonx
 Jawa Timur aman bersama Ibu xemoticonx
 Ayo serentak dukung Khofifah xemoticonx
-Aku sih ya nomor 2
+Aku sih ya nomor dua
 Top memang Bu Khofifah xemoticonx
 Ingat ya pilih yang ramah saja xemoticonx
 Gas saudara xemoticonx
-Top nomor 2 gas xemoticonx
+Top nomor dua gas xemoticonx
 Ayo rapatkan barisan teman
 Bu Khofifah adalah pemimpin yang penuh dedikasi dan selalu berpihak pada rakyat. Semangat terus, Bu!
 Kami mendukung penuh Bu Khofifah untuk terus memajukan Jawa Timur. Terus bekerja untuk kesejahteraan masyarakat!
@@ -10424,9 +10424,9 @@ Dukung terus Bu Khofifah! Pemimpin yang peduli dan selalu bekerja keras demi kes
 Berkah berkah 02 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih Bu tadi siang sudah datang di tempat saya bekerja, Wonokoyo Beji, Pasuruan, sehat-sehat semua Bu ya amin
 xemoticonx xemoticonx xemoticonx xemoticonx bersiap menjemput kemenangan Ibu xemoticonx
-Salam Cinta 2 periode dari Kediri Ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Salam Cinta dua periode dari Kediri Ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx Amin xemoticonx xemoticonx xemoticonx ya rab
-bismillah tetap dukung ibunya Jawa Timur Ibu Khofifah-Emil, no 2. Kita dukung yang sudah bekerja, bukan yang baru mau bekerja
+bismillah tetap dukung ibunya Jawa Timur Ibu Khofifah-Emil, no dua. Kita dukung yang sudah bekerja, bukan yang baru mau bekerja
 Semangat untuk terus memimpin Jawa Timur menjadi lebih baik lagi xemoticonx
 Berkolaborasi membangun negeri dengan berbagai elemen masyarakat xemoticonx
 Saya hadir di situ Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -10453,17 +10453,17 @@ Tetap semangat Bu Khofifah xemoticonx
 Pemimpin yang dekat dengan agama, semoga selalu diberkahi
 Terima kasih telah menghadirkan kedamaian melalui majelis ini
 Berkah selalu Ibu xemoticonx xemoticonx xemoticonx xemoticonx
-Ayo sudah 2 periode
+Ayo sudah dua periode
 Semangat sekali beliau ini
-2 xemoticonx lanjutkan saja ya
+dua xemoticonx lanjutkan saja ya
 Bu Khofifah terbaik
 Semoga dengan salawat ini Jawa Timur selalu diberikan perlindungan oleh Allah
 Ibu, sehat selalu ya xemoticonx xemoticonx xemoticonx xemoticonx
 Salawat benar-benar membawa ketenangan jiwa. Terima kasih Habib Syech atas bimbingannya
 Salawat untuk kebaikan Jawa Timur xemoticonx
 Mengawal kemenangan Bu Khofifah
-Semoga bisa 2 periode amin xemoticonx
-Gas saja nomor 2 xemoticonx xemoticonx
+Semoga bisa dua periode amin xemoticonx
+Gas saja nomor dua xemoticonx xemoticonx
 Semoga salawat terus membawa berkah untuk Jawa Timur
 Ayo Bu Khofifah semoga menang lagi
 Beliau ini tidak kenal lelah ya, perasaan kemarin habis debat xemoticonx xemoticonx
@@ -10472,12 +10472,12 @@ Pemimpin yang selalu mengutamakan nilai spiritual, luar biasa
 Idola xemoticonx xemoticonx
 bismillah dua periode saudara
 Gas... Konkret Bu Khofifah xemoticonx xemoticonx
-Saya doakan 2 periode Bu
-Lanjutkan Bu Khofifah, 2 periode
-Jawa Timur 1 Bu Khofifah xemoticonx xemoticonx xemoticonx
+Saya doakan dua periode Bu
+Lanjutkan Bu Khofifah, dua periode
+Jawa Timur satu Bu Khofifah xemoticonx xemoticonx xemoticonx
 Sampai bertemu nanti malam di Genggong Bu xemoticonx xemoticonx
 Habib Syech hadir mantap xemoticonx
-Selalu adem lihat Bu Khofifah xemoticonx xemoticonx
+Selalu adem melihat Bu Khofifah xemoticonx xemoticonx
 Sehat selalu Ibu xemoticonx xemoticonx xemoticonx xemoticonx
 Terima kasih Ibu xemoticonx xemoticonx
 Terima kasih sudah selalu menginspirasi, Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
@@ -10520,9 +10520,9 @@ xemoticonx xemoticonx xemoticonx semoga Allah SWT memberkahi Ibu Khofifah dan Ma
 BERSALAWAT TAPI KORUPSI DANA HIBAH 7,8 T
 Wow
 Cirebon hadir
-Ini itu yang kemarin menerobos Car Free Day terus minta maaf... lihat... banyak contohnya teman
+Ini itu yang kemarin menerobos Car Free Day terus minta maaf... melihat... banyak contohnya teman
 Subhanallah, sungguh bahagianya Ibu Gubernur xemoticonx xemoticonx xmentionx semoga dilanjutkan Jawa Timur
-Wajib xemoticonx harus 2 periode Jawa Timur 1 xemoticonx xemoticonx
+Wajib xemoticonx harus dua periode Jawa Timur satu xemoticonx xemoticonx
 Bu Khofifah ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ya Allah buzzernya banyak ternyata. Mencoba buka akun random buzzer ternyata xemoticonx
 Alhamdulillah lanjutkan xemoticonx
@@ -10645,7 +10645,7 @@ Perizinan yang harusnya mudah malah dipersulit sekarang, sengaja ya Bu?
 Kalau ada ASN yang tidak mau memberikan persenan malah dimarahi.
 Penghargaan saja bukti nyatanya mana? Sama saja perasaan. Sibuk cari penghargaan.
 Proyek banyak yang tidak rampung tapi malah dapat penghargaan, lucu Ibu.
-Satu periode saja tidak ada progress signifikan, jadi buat apa dua periode.
+Satu periode saja tidak ada progress signifikan, jadi untuk apa dua periode.
 Kelihatan kualitasnya saat debat, jelek sekali.
 Barakallah fii umrik Mas.
 Semoga masyarakat pasar Tanah Merah selalu diberi keberkahan dan kesehatan. Sukses terus untuk semuanya.
@@ -10695,8 +10695,8 @@ Top sekali xemoticonx
 Saya nomor dua xemoticonx xemoticonx
 Mantap nomor dua xemoticonx xemoticonx
 CFD kok lewat pakai mobil xemoticonx xemoticonx xemoticonx
-SIAP MEMENANGKAN BU KHOFIFAH LANJUTKAN TERUS NO 2 xemoticonx xemoticonx xemoticonx xemoticonx
-Pilihan Kita Semua Tetap Bu Khofifah No 2.
+SIAP MEMENANGKAN BU KHOFIFAH LANJUTKAN TERUS NO dua xemoticonx xemoticonx xemoticonx xemoticonx
+Pilihan Kita Semua Tetap Bu Khofifah No dua.
 Gresik Khofifah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx ya.
 Mantap, nomor dua pilihanku.
 Madura full Khofifah Emil.
@@ -10737,10 +10737,10 @@ Masyarakat yang luar biasa! Terima kasih atas keramahannya, semoga Pasar Tanah M
 Terima kasih Pasar Tanah Merah, semoga senantiasa dalam perlindungan Tuhan dan selalu diberi kemudahan dalam setiap langkah. Amin.
 Terima kasih banyak kepada masyarakat Pasar Tanah Merah! Semoga setiap usaha dan doa kita semua diterima Allah, dan kehidupan kita penuh dengan kebahagiaan dan kesejahteraan.
 Masyarakat Pasar Tanah Merah luar biasa! Semoga setiap langkah menuju kebaikan selalu diberkahi dan penuh dengan rezeki yang halal dan berkah.
-Ibu Khofifah nomor 2
-Tetap nomor 2
+Ibu Khofifah nomor dua
+Tetap nomor dua
 Lanjutkan Ibu
-Ibu Khofifah pol
+Ibu Khofifah penuh
 dibayar berapa buzzernya bu?
 isi komentarnya sama semua wkwkw
 akun yang komen itu
@@ -10759,7 +10759,7 @@ Ibu Khofifah selalu menjadi idola xemoticonx xemoticonx
 Perjalanan 110 tahun penuh prestasi! Al Irsyad Al-Islamiyyah terus menjadi contoh nyata dalam membangun masyarakat yang lebih baik. Semoga tetap menjadi inspirasi bagi kita semua.
 Dengan visi yang jelas dan rekam jejak yang luar biasa, Ibu Khofifah adalah pilihan terbaik untuk terus memajukan Jawa Timur!
 Kepemimpinan Ibu Khofifah sudah terbukti sukses di berbagai bidang. Jawa Timur akan semakin maju dengan beliau sebagai Gubernur!
-Jawa Timur butuh pemimpin yang inovatif seperti pasangan calon nomor 2 xemoticonx
+Jawa Timur butuh pemimpin yang inovatif seperti pasangan calon nomor dua xemoticonx
 Masyarakat Jawa Timur butuh pemimpin yang merakyat, visioner, dan mampu bekerja untuk kesejahteraan rakyat. Ibu Khofifah adalah sosok yang tepat!
 Masyaallah Ibu Khofifah pilihan paling tepat untuk Jawa Timur
 Idola saya Ibu Khofifah xemoticonx xemoticonx
@@ -10769,7 +10769,7 @@ Kami mendukung Ibu Khofifah karena beliau tahu bagaimana menciptakan kebijakan y
 Tidak ada keraguan lagi, Ibu Khofifah adalah sosok yang tepat untuk membawa Jawa Timur ke arah yang lebih baik. Ayo, dukung terus!
 Luar biasa Ibu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
 Jawa Timur butuh pemimpin yang berpengalaman, berintegritas, dan punya komitmen kuat seperti Ibu Khofifah. Semoga terus diberikan amanah!
-Merinding lihat rakyat memanggil nama Ibu Khofifah xemoticonx xemoticonx
+Merinding melihat rakyat memanggil nama Ibu Khofifah xemoticonx xemoticonx
 Ibu Khofifah sangat dekat dengan rakyat. Beliau tahu apa yang dibutuhkan oleh masyarakat Jawa Timur dan selalu mengutamakan kepentingan mereka.
 Kepemimpinan Ibu Khofifah tidak hanya dilihat dari prestasi, tetapi juga dari kinerja beliau yang selalu mengutamakan rakyat.
 Pilih Ibu Khofifah! Karena beliau selalu memperhatikan setiap lapisan masyarakat dan bekerja keras untuk mewujudkan kesejahteraan yang merata.
@@ -10782,9 +10782,9 @@ xemoticonx gas xmentionx
 xemoticonx Sehat Selalu xemoticonx . . Ada pengikut permanen
 Car free Day woi... hobi melanggar aturan seperti Joko Mulyono
 Salut sama ibu
-Layak 2 periode
+Layak dua periode
 Masyarakat sudah mendukung dengan teriak lanjutkan xemoticonx
-Ibu Khofifah ayo lanjut 2 periode
+Ibu Khofifah ayo lanjut dua periode
 Jawa Timur selalu dukung Ibu Khofifah
 Pun anda langsung menang saja Ibu xemoticonx
 Calon yang mengerti orang kecil hanya Ibu Khofifah
@@ -10823,7 +10823,7 @@ bismillah semoga ibu yang terpilih jadi Gubernur Jawa Timur lagi Amin, semangat 
 Sehat selalu ibu
 Bunda xmentionx selalu mendampingi Ibu xmentionx Semoga Sukses selalu Bunda.. Ibu xmentionx pasti jadi Ibu Gubernur Jawa Timur Kembali.. Cinta Anda Nyonya..
 Pemimpin yang merakyat dan tulus
-Pilihan yang pas untuk memimpin Jawa Timur
+Pilihan yang tepat untuk memimpin Jawa Timur
 Merangkul semua kalangan masyarakat
 Memajukan Jawa Timur bersama xemoticonx
 Meriah dan penuh semangat! Kirab Milad Al Irsyad ke-110 semakin menunjukkan betapa besarnya peran dan kontribusi organisasi ini dalam mewujudkan kesejahteraan umat.
@@ -10833,7 +10833,7 @@ Terus berkarya, Al Irsyad! 110 tahun penuh dedikasi dalam memajukan umat, semoga
 Milad ke-110 ini adalah bukti nyata dari peran penting Al Irsyad dalam membangun Indonesia yang lebih sejahtera. Teruskan semangat dan kontribusinya!
 Semoga menang bu di Jawa Timur
 Salam dua jari xemoticonx xemoticonx xemoticonx xemoticonx
-Apa sih prestasinya 5 tahun??, apa yang tersandra kepentingan karena ...
+Apa sih prestasinya limat tahun?, apa yang tersandra kepentingan karena ...
 Yakin deh ini pilihanku
 Gubernurnya Khofifah - Emil Bupatinya Gus Barra - Rizal
 Selamat Milad ke-112, Muhammadiyah! Terus menjadi pilar kekuatan umat dan bangsa yang tidak hanya mengedepankan pendidikan, tapi juga kesejahteraan sosial.
@@ -10895,7 +10895,7 @@ ibu, terima kasih xemoticonx xemoticonx
 Selamat Milad ke-112! Semoga perjuangan Muhammadiyah tetap menjadi sumber inspirasi untuk semua generasi.
 Semoga kiprah Muhammadiyah semakin luas dan membawa perubahan positif bagi masyarakat Indonesia. Amin.
 Selamat Milad Muhammadiyah ke-112! Semoga perjuangan dan jasa Muhammadiyah semakin dikenang dan dirasakan oleh setiap lapisan masyarakat.
-DANA HIBAH 7,8 TRILIUN BUAT BANCAKAN PARA KORUPTOR, KHOFIFAH KAMU HARUS BERTANGGUNGJAWAB
+DANA HIBAH 7,8 TRILIUN untuk BANCAKAN PARA KORUPTOR, KHOFIFAH KAMU HARUS BERTANGGUNGJAWAB
 Semoga Muhammadiyah terus berkembang dan menjadi lebih baik bagi semua umat
 Khas senyumnya Monalisa Indonesia xemoticonx
 Masyaallah sangat Ibu Khofifah terus hadir ke masyarakat, semoga dua periode ya bu
@@ -10918,8 +10918,8 @@ Saya tetap dukung 03
 Dukungan masyarakat Jawa Timur mengalir untuk memenangkan Ibu Khofifah. Lanjutkan xemoticonx
 Khofifah tanpa prestasi, Jawa Timur malah jadi provinsi terkorup. Bisa dicek
 Masyarakat telah menghendaki bahwa Ibu Khofifah akan menjadi gubernur lagi
-Masyarakat Jawa Timur setuju bahwa Ibu Khofifah akan 2 periode xemoticonx
-Insyaallah nanti kalau coblosan saya mau mencoblos nomor 2 Ibu Khofifah
+Masyarakat Jawa Timur setuju bahwa Ibu Khofifah akan dua periode xemoticonx
+Insyaallah nanti kalau coblosan saya mau mencoblos nomor dua Ibu Khofifah
 Pasti Ibu Khofifah akan menang lagi dan melanjutkan memajukan Jawa Timur
 Madura 02 xemoticonx xemoticonx xemoticonx
 Dukungan bulat dari masyarakat Jawa Timur untuk Ibu Khofifah xemoticonx
@@ -10958,7 +10958,7 @@ Terima kasih atas dedikasi dan perjuangan Bu Khofifah, semoga masyarakat selalu 
 Semoga doa dan dukungan yang mengalir ini menjadi kekuatan bagi Bu Khofifah dan Pak Emil dalam mewujudkan Jawa Timur yang lebih baik.
 Berkah dan kebaikan selalu menyertai Bu Khofifah dan Pak Emil. Terus bekerja untuk rakyat, semoga segala usaha Ibu selalu diberikan hasil yang maksimal.
 Skip.
-Info debat ke 3.
+Info debat ke tiga.
 Mau berbagi pengalaman saja. Yang mau rumahnya bebas dari hama tikus. Bisa pakai RABUS. Kemarin saya pakai RABUS mantap sekali hasilnya. Kemarin saya beli di toko orange.
 Sampai bicara grogi saya maksudnya mau bilang kalau saya kerja sendiri xemoticonx
 Saya dari Malang saya dukung Bu xmentionx lanjut.
@@ -10970,13 +10970,13 @@ Antusias sekali orang-orangnya.
 xmentionx di bazar ternyata beliau.
 Bu Khofifah tolong sampaikan ke Pemkot jalan Margorejo seperti puzzle bu. Banyak yang berlubang tetapi hanya ditambal saja.
 Semoga menang Amin ya rabbal alamin Alfatihah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Khofifah Emil Menang 3 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Khofifah Emil Menang 3 semoga menang Amin 3 ya rabbal alamin Alfatihah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Khofifah Emil Menang tiga xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Khofifah Emil Menang tiga semoga menang Amin tiga ya rabbal alamin Alfatihah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga menang Amin.
 Mantap ibu Khofifah.
 Lanjutkan.
 Semangat Bu Khofifah salam dua jari.
-Masyarakat sangat semangat sekali mendukung nomor 2 xemoticonx xemoticonx xemoticonx
+Masyarakat sangat semangat sekali mendukung nomor dua xemoticonx xemoticonx xemoticonx
 Lanjutkan dengan dedikasi Anda untuk membangun negeri xemoticonx
 Semangatnya menyambut Bu Khofifah xemoticonx
 Semoga lancar rezekinya xemoticonx
@@ -10984,15 +10984,15 @@ Senang sekali melihat rakyat yang antusias.
 Bu Khofifah selalu memberikan solusi nyata.
 Kebijakan beliau selalu pro-rakyat, terutama masyarakat kecil.
 Saya sekeluarga mendukung penuh Ibu Khofifah Indar Parawansa.
-2 terbaik xemoticonx xemoticonx
-Kepuasan masyarakat Jawa Timur xemoticonx Untuk melanjutkan ibu Khofifah 2 periode.
-Lanjut 2 periode Bu xmentionx xemoticonx
+dua terbaik xemoticonx xemoticonx
+Kepuasan masyarakat Jawa Timur xemoticonx Untuk melanjutkan ibu Khofifah dua periode.
+Lanjut dua periode Bu xmentionx xemoticonx
 Ibu, kenapa bisa terobos CFD? Apa urgensinya?
 xemoticonx terus semangat demi kesejahteraan masyarakat.
 Luar biasa Khofifah Emil tadi malam.
 Lanjutkan ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Khofifah saja Khofifah saja.
-Masih setuju Jawa Timur Bu Khofifah jabat lagi ke 2, pemutihan pajak selalu dinanti bu.
+Masih setuju Jawa Timur Bu Khofifah jabat lagi ke dua, pemutihan pajak selalu dinanti bu.
 Bismillah Wonocolo Full xemoticonx xemoticonx
 Pasar Pabean memang istimewa. Dukungan tulus ini semoga membawa manfaat besar.
 Ibu Khofifah memang pemimpin yang peduli dan dekat dengan masyarakat. Kami selalu mendukung penuh untuk kemajuan Jawa Timur.
@@ -11041,7 +11041,7 @@ Masyaallah bu xemoticonx
 Top bu xemoticonx
 Langsung saja datang ke TPS coblos 02 xemoticonx
 Semangat dukung Bu Khofifah.
-Bagaimana ya... Sudah jelas menang begini... wkwkwk... 2 xemoticonx
+Bagaimana ya... Sudah jelas menang begini... wkwkwk... dua xemoticonx
 Konkrit sekali masyarakat Jawa Timur dukung Bu Khofifah.
 Alhamdulillah, semoga doa dan harapan masyarakat Jawa Timur agar Ibu Khofifah diterima oleh Allah, dan Jawa Timur semakin maju di tangan beliau.
 Sudah semua Bu Khofifah.
@@ -11090,7 +11090,7 @@ Semuanya sayang Bu Khofifah xemoticonx xemoticonx
 HARUS COBLOS nomor 02 LO YA.
 Benar mas, Bu Khofifah Gubernur Kita.
 Bismillah kabul hajat, ibu xmentionx jadi gubernur lagi xemoticonx xemoticonx
-Lanjutkan 2 periode sesuai angkanya.
+Lanjutkan dua periode sesuai angkanya.
 Kompak terus untuk mendukung gubernur yang peduli dengan rakyatnya.
 Alhamdulillah banyak sekali yang menyayangi Bu Khofifah xemoticonx xemoticonx
 Semoga lancar-lancar ya dagangannya dan sehat selalu.
@@ -11107,10 +11107,10 @@ Masyaallah, Mbah Tun benar-benar inspirasi luar biasa! Semoga selalu sehat dan b
 Mbah Tun inspirasinya luar biasa! Semoga sehat terus dan panjang umur ya, Mbah.
 Terharu rasanya, bisa sedekat itu dengan pemimpin daerah.
 Kehangatan dan perhatian Bu Khofifah pada masyarakat kecil selalu menyentuh hati. Luar biasa!
-Masyaallah sehat selalu buat si mbah, dan sukses ya Bu Khofifah.
+Masyaallah sehat selalu untuk si mbah, dan sukses ya Bu Khofifah.
 Selalu bisa memenangkan hati masyarakat Jawa Timur xemoticonx xemoticonx
 Bu Khofifah keren, terdepan untuk rakyatnya.
-Bu Khofifah ingin sekali ketemu ibu, sudah mengidolakan dari dulu xemoticonx xemoticonx
+Bu Khofifah ingin sekali bertemu ibu, sudah mengidolakan dari dulu xemoticonx xemoticonx
 Terharu xemoticonx
 Mbah Tun memang luar biasa, masih semangat jualan sayur. Panjang umur ya, Mbah!
 Mbah Tun yang luar biasa! Semoga tetap diberikan kesehatan, panjang umur, dan kebahagiaan. Terus berkarya, Mbah!
@@ -11133,7 +11133,7 @@ Yang setuju Ibu Khofifah dua periode xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xhashtagx amin ya rabbal alamin alfatihah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lanjutkan Khofifah Emil optimis menang xemoticonx
 Komentar pertama xemoticonx xemoticonx xemoticonx
-Gubernur saya memang jos, selalu menemui masyarakat secara langsung.
+Gubernur saya memang mantap, selalu menemui masyarakat secara langsung.
 Ini gubernur terbaik xemoticonx xemoticonx
 Mengapa ya kalau melihat artis selebgram itu cepat kurusnya, berikan tip programnya dong.
 Khofifah Emil menjemput kemenangan.
@@ -11168,7 +11168,7 @@ Salut untuk semangat hidup Mbah Tun! Semoga selalu diberi kekuatan dan kesehatan
 Alhamdulilah tetap menjaga silaturahmi ibu xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah sifat ibu Khofifah mulia xemoticonx xemoticonx
 Terima kasih Ibu xemoticonx xemoticonx contoh yang baik.
-Panjang umur buat semuanya, amin.
+Panjang umur untuk semuanya, amin.
 Semangat hidup Mbah Tun sungguh menginspirasi! Semoga beliau diberi kesehatan dan kebahagiaan yang berlimpah.
 Mbah Tun xemoticonx xemoticonx sehat selalu.
 Mbah Tun benar-benar menunjukkan bahwa usia bukan penghalang untuk tetap semangat. Semoga beliau selalu diberikan keberkahan.
@@ -11275,7 +11275,7 @@ Masyaallah merakyatnya ibu Khofifah.
 Luar biasa ibu Khofifah xemoticonx
 Siap ibu xemoticonx xemoticonx
 Tetap merakyat ya ibu xemoticonx xemoticonx
-Dukungan penuh buat pasangan calon nomor dua xemoticonx xemoticonx
+Dukungan penuh untuk pasangan calon nomor dua xemoticonx xemoticonx
 Saya satu desa insyaallah ikut ibu Khofifah xemoticonx xemoticonx
 Ibu Khofifah sangat memperhatikan rakyat rakyat kecil xemoticonx xemoticonx
 Sehat selalu ibu xemoticonx xemoticonx
@@ -11386,12 +11386,12 @@ Bismillah Bu diberi amanah lagi.
 Terima kasih Bu atas kehadirannya xemoticonx
 Semoga salawat yang dilantunkan membawa syafaat bagi kita semua. Amin.
 Bismillah 02 menang.
-Lanjutkan 2 xemoticonx
+Lanjutkan dua xemoticonx
 Semoga selalu di bawah perlindungan Allah SWT amin.
 Semoga Bu Khofifah tetap memimpin Jawa Timur lagi amin.
-Bismillah Bu Khofifah dua periode gas pol.
+Bismillah Bu Khofifah dua periode gas penuh.
 Semoga karyawan MPS PT Wahyu Manunggal Sejati semakin sukses dan berkah.
-BISMILLAH KHOFIFAH-EMIL 2 PERIODE.
+BISMILLAH KHOFIFAH-EMIL dua PERIODE.
 Semoga selalu berada dalam lindungannya.
 Saya sekeluarga dukung 02.
 Semoga bisa lanjut dua periode Bu.
@@ -11410,7 +11410,7 @@ Amin, terima kasih Bu doa yang sama untuk Anda.
 Keluarga saya di Kecamatan Taman Krocok dan Kecamatan Tapen Kabupaten Bondowoso harus dukung Bu xmentionx
 Lanjutkan Bu.
 Sehat-sehat selalu ya para pekerjanya, semoga dilancarkan rezekinya.
-Pilih nomor 2 ya xemoticonx xemoticonx xemoticonx
+Pilih nomor dua ya xemoticonx xemoticonx xemoticonx
 Semoga dapat terus memajukan Jawa Timur xemoticonx xemoticonx
 Bismillah Ibu Khofifah jadi gubernur lagi.
 Bagus Bu xemoticonx xemoticonx
@@ -11428,7 +11428,7 @@ Gubernur Jawa Timurku xemoticonx xemoticonx xemoticonx
 Ribuan pekerja artinya ribuan kehidupan yang didukung xemoticonx
 Bu terima kasih sudah peduli pada pekerja rentan, seperti buruh perempuan.
 Luar biasa jasa Bu Khofifah untuk rakyat Jawa Timur.
-Jangan lupa pilih nomor 2.
+Jangan lupa pilih nomor dua.
 Khofifah ini merangkul semua kalangan ya.
 Bersalawat memang setenang itu.
 Semoga Bu Khofifah menang ya Allah.
@@ -11449,7 +11449,7 @@ Helleh, selama ini kemana saja Bu?
 Amin xemoticonx xemoticonx
 Anggurnya lucu sekali, bergerombol di batang. Ada yang tahu apakah rasanya manis?
 Masyaallah Bu, salam dari Yogyakarta. Semoga suatu saat datang kesempatan untuk berkunjung melihat dan menimba ilmu budidaya anggur di Pasuruan.
-Unik sekali! Jadi ingin jalan-jalan ke Pasuruan untuk lihat sendiri.
+Unik sekali! Jadi ingin jalan-jalan ke Pasuruan untuk melihat sendiri.
 Unik sekali! Buahnya tumbuh di batang pohon, ini pasti menarik perhatian siapa pun yang melihatnya.
 Enak manis rasanya seperti kepundung.
 Jadikan komoditas Bu xemoticonx xemoticonx
@@ -11463,7 +11463,7 @@ Pasuruan ternyata keren sekali, bisa budidaya tanaman unik seperti ini.
 Profesor pengangguran xmentionx xemoticonx
 xmentionx bawakan mbak xemoticonx
 Anggurnya unik sekali.
-Baru tahu ada pohon anggur model begini. Harus lihat langsung di Kurma Park.
+Baru tahu ada pohon anggur model begini. Harus melihat langsung di Kurma Park.
 Tanaman ini memang menarik, semoga makin banyak yang membudidayakannya.
 Bu mau mencicipi buah anggurnya.
 Penasaran sekali sama rasanya! Pohonnya saja sudah membuat terpesona, apalagi buahnya.
@@ -11509,7 +11509,7 @@ Apa karena Bu Khofifah murah senyum ya makanya seperti masih muda xemoticonx
 Di atap kantor saya dulu ada tanaman anggur Brazil, dan sudah pernah mencicipi. Menurut saya masih enak anggur yang pohonnya merambat.
 Enak itu anggurnya.
 Masyaallah kelihatannya segar.
-Coba turun ke kampung-kampung lihat kehidupan sehari-hari mereka menyediakan.
+Coba turun ke kampung-kampung melihat kehidupan sehari-hari mereka menyediakan.
 Anggurnya kelihatan segar xemoticonx
 Keren begitu ya nuansanya Arab jadinya.
 Jadi estetik begitu ya Bu fotonya.
@@ -11517,7 +11517,7 @@ Bu Khofifah keren mengeksplorasi hal baru.
 Bu Khofifah terima kasih jadi tahu kalau ada anggur seperti ini.
 Budidaya yang unik seperti ini harus terus dilestarikan.
 Masyaallah Bu xemoticonx
-Semangat Bu 2 periode xemoticonx
+Semangat Bu dua periode xemoticonx
 Ingin mencoba kira-kira bagaimana ya rasanya.
 Enak anggurnya xemoticonx xemoticonx
 Saya baru tahu anggur seperti itu xemoticonx xemoticonx
@@ -11525,9 +11525,9 @@ Fotonya Bu Khofifah keren xemoticonx
 Juwet itu.
 Unik sekali, buahnya langsung tumbuh di batang! Jadi penasaran rasanya.
 Anggurnya unik, kira-kira enak tidak ini ya?
-Baru tahu ada anggur seperti ini, mau coba lihat langsung di Kurma Park!
+Baru tahu ada anggur seperti ini, mau coba melihat langsung di Kurma Park!
 Sudah Bu.
-Sudah pernah lihat, tapi belum sempat mencicipi. Katanya rasanya segar!
+Sudah pernah melihat, tapi belum sempat mencicipi. Katanya rasanya segar!
 Bu minta anggurnya boleh tidak ini xemoticonx
 Wah, destinasi yang wajib dikunjungi kalau ke Pasuruan!
 Siapa yang sudah pernah coba buahnya? Katanya banyak manfaat juga!
@@ -11568,7 +11568,7 @@ Selalu dukung pertanian lokal ya xemoticonx xemoticonx xemoticonx
 Petani Pasuruan keren-keren memang.
 Itu pohon duwet?
 Rasanya seperti kopi itu Bu.
-xemoticonx Lihat apa Bu?
+xemoticonx melihat apa Bu?
 Mau pemilihan kepala daerah saja mengunjungi.
 Bu Khofifah kami sebagai warga prihatin melihat SMAN 21 SURABAYA, setiap ada kegiatan itu selalu melibatkan uang bahkan dengan harga yang tidak begitu murah, saat kami mau kenaikan kelas selalu ada saja kegiatan KTS yang membutuhkan uang banyak namun kasihan yang tidak punya uang tidak ikut bisa tidak dinaikkan kelas, lalu dana komite selalu tidak transparan bahkan membuat proyek yang tidak ada manfaatnya sama sekali dengan sekolah. Saat siswa siswi mau mengikuti lomba tidak satupun sepeserpun biaya sekolah memberikan dukungan sedikit untuk mereka alasannya pun tidak jelas, parkir selalu bayar padahal fasilitas milik sekolah. Tolong Bu tindaki hal ini xemoticonx
 Rasanya asam xemoticonx
@@ -11580,11 +11580,11 @@ Saya kira itu tadi juwet Bu xmentionx
 7,8 TRILIUN HANYA UNTUK DANA HIBAH DAN HASILNYA DIKORUPSI.
 Pasuruan kota saya xemoticonx xemoticonx, saya kira juwet xemoticonx xemoticonx xemoticonx maaf.
 Punya saya belum juga berbuah Bu, sudah bertahun-tahun. Mungkin salah pada pemupukannya.
-Waduh, saya otomatis bernyanyi saat membaca ini! Selamat akhir pekan juga buat semua.
+Waduh, saya otomatis bernyanyi saat membaca ini! Selamat akhir pekan juga untuk semua.
 Hahaha, tuk-tik-tak nuansa masa kecil sekali. Selamat istirahat semuanya.
 Hahaha, siapa yang refleks bernyanyi sambil membaca? Saya sekali ini.
 Wah, suasana desa yang asri, naik delman jadi makin istimewa! xemoticonx xemoticonx
-Hahaha, ini bacaannya otomatis jadi lagu. Selamat akhir pekan buat saudara semua.
+Hahaha, ini bacaannya otomatis jadi lagu. Selamat akhir pekan untuk saudara semua.
 Serasa bernostalgia naik delman! Selamat akhir pekan yang penuh kebahagiaan! xemoticonx xemoticonx
 Romantis sekali naik delman di pagi hari menuju pasar. Salam hangat untuk semua warga Sukodono.
 Wah, nuansa nostalgia sekali ini! Naik delman sambil dengar suara sepatu kuda, serasa kembali ke masa kecil.
@@ -11606,14 +11606,14 @@ Semoga lancar-lancar pemilihan kepala daerahnya xemoticonx xemoticonx
 Wah ingin sekali naik andong, dulu suka sekali dari pasar pulang ke rumah naik andong.
 Selamat akhir pekan! Suara delman bawa semangat kumpul keluarga! xemoticonx xemoticonx
 Pasar tradisional sekarang mulai jarang yang gunakan delman.
-Waktunya 2 xemoticonx
+Waktunya dua xemoticonx
 Tuk-tik-tak nuansa, semoga akhir pekannya menyenangkan bersama keluarga! xemoticonx
 Selamat akhir pekan saudara! Semoga pasar hari ini ramai, penuh berkah, dan membawa senyum untuk semua.
 Delman istimewa ini xemoticonx xemoticonx
-Semoga bisa lanjut 2 periode.
+Semoga bisa lanjut dua periode.
 Pasar tradisional, delman, dan kebersamaan. Kombinasi sempurna untuk memulai hari dengan semangat.
 Baru tahu di Sidoarjo ada seperti ini.
-Melihat wajah Ibu Khofifah yang terlihat berseri, memancarkan kebahagiaan. Semoga selalu diberikan kemudahan dan kebahagiaan serta kesehatan Ibu. Lanjutkan Jawa Timur 2 periode.
+Melihat wajah Ibu Khofifah yang terlihat berseri, memancarkan kebahagiaan. Semoga selalu diberikan kemudahan dan kebahagiaan serta kesehatan Ibu. Lanjutkan Jawa Timur dua periode.
 Mari kita menangkan Bu Khofifah di pemilihan kepala daerah ini.
 Serunya Bu naik delman.
 Bagus delmannya.
@@ -11711,7 +11711,7 @@ Ibu Khofifah memang terbaik xemoticonx
 Pasar ini jadi bukti nyata potensi ekonomi lokal. Semoga warga Sukodono makin sejahtera
 Masyaallah blusukan lagi ibu Khofifah xemoticonx
 Kembangkan acara yang dapat mendongkrak ekonomi dan menyenangkan masyarakat xemoticonx
-Warga Sidoarjo, mari dukung nomor 2 untuk memajukan ekonomi masyarakat kecil xemoticonx
+Warga Sidoarjo, mari dukung nomor dua untuk memajukan ekonomi masyarakat kecil xemoticonx
 Masyaallah luar biasa
 Semangat para pendukung Ibu Khofifah, kita berjuang bersama-sama xemoticonx xemoticonx
 Saya sekeluarga dukung ibu Khofifah
@@ -11720,23 +11720,23 @@ Jawa Timur dukung 02
 Terima kasih ibu xemoticonx xemoticonx senangnya masyarakat xemoticonx
 Jawa Timur Maju Berprestasi bersama Khofifah-Emil
 Dukung dua
-Dukung terus kemajuan Jawa Timur dengan memilih nomor 2 xemoticonx xemoticonx
+Dukung terus kemajuan Jawa Timur dengan memilih nomor dua xemoticonx xemoticonx
 Terima kasih ibu atas kunjungannya
 Ibu Khofifah untuk Jawa Timur Makmur
 Lanjutkan ibu Khofifah
 Ibu Khofifah memang merakyat xemoticonx xemoticonx
 Blusukan terus ibu Khofifah ini xemoticonx
-Lanjutkan nomor 2 xemoticonx xemoticonx
+Lanjutkan nomor dua xemoticonx xemoticonx
 Prestasinya terus mengalir ya
 Gubernur terbaik Jawa Timur ya ini
 Memang Jawa Timur banyak prestasi sejak dipimpin ibu
 Enak dimsumnya xemoticonx xemoticonx
 Istikamah mengunjungi rakyat ya ibu
-Lanjutkan nomor 2
+Lanjutkan nomor dua
 Luar biasa gubernurku
 Ibu Khofifah pemimpin yang mengayomi xemoticonx
 Terbaik ibu xemoticonx xemoticonx xemoticonx
-Ibu Khofifah terbaik 2 periode xemoticonx xemoticonx xemoticonx
+Ibu Khofifah terbaik dua periode xemoticonx xemoticonx xemoticonx
 Lanjutkan!
 Pasar Jumat Legi memang luar biasa, semoga terus jadi berkah bagi warga Sukodono! xemoticonx
 Terima kasih atas dukungannya, semoga pasar terus berkembang dan menyejahterakan masyarakat! xemoticonx
@@ -11775,22 +11775,22 @@ Semoga kepemimpinan Ibu Khofifah semakin membawa Jawa Timur ke arah yang lebih b
 Ibu Khofifah, tetap semangat dalam memperjuangkan rakyat kecil. Kami percaya Anda mampu mewujudkan perubahan!
 Besar harapan kami agar program-program Ibu Khofifah dapat membawa kemajuan nyata bagi masyarakat.
 Saya yakin dengan kepemimpinan Ibu Khofifah, Jawa Timur akan semakin maju dan sejahtera. Teruskan perjuanganmu!
-Lanjut 2 periode
+Lanjut dua periode
 Dukung terus Khofifah xemoticonx
-Paling konkrit ya nomor 2
+Paling konkrit ya nomor dua
 Paling terbaik ibu Khofifah xemoticonx xemoticonx
 Amin semoga banyak rezeki
 Ayo dukung ibu Khofifah
-Mudah-mudahan bisa lanjut 2 periode xemoticonx xemoticonx
+Mudah-mudahan bisa lanjut dua periode xemoticonx xemoticonx
 Ayo Sidoarjo dukung terus ibu Khofifah xemoticonx xemoticonx
 Tambah sukses untuk para warga Jawa Timur xemoticonx xemoticonx
 Dukungan bulat untuk ibu Khofifah
 Dimsumnya enak itu
 Helleh selama ini kemana saja ibu
-Pencitraan nomor 1 tapi kerja tidak beres
+Pencitraan nomor satu tapi kerja tidak beres
 Lebih baik kerja yang benar
-Sudah menjabat 1 periode tapi tidak ada perubahan untuk apa 2 periode
-Rekam jejak jelek tapi masih percaya diri buat naik memang luar biasa
+Sudah menjabat satu periode tapi tidak ada perubahan untuk apa dua periode
+Rekam jejak jelek tapi masih percaya diri untuk naik memang luar biasa
 Periode selanjutnya setoran bakalan naik atau tetap ibu?
 Baiknya hanya di media sosial saja, bermuka dua
 Luar biasa, para pahlawan keluarga! Semoga sukses selalu menyertai kalian
@@ -11817,7 +11817,7 @@ Bangga melihat perempuan Indonesia menjadi pilar penting dalam keluarga dan pere
 Perempuan memang sumber daya manusia yang sangat pekerja keras xemoticonx xemoticonx
 Alhamdulillah, semoga silaturahmi tetap terjaga
 Luar biasa, perempuan menginspirasi xemoticonx
-Bahagianya ketemu ibu Khofifah xemoticonx xemoticonx
+Bahagianya bertemu ibu Khofifah xemoticonx xemoticonx
 Semoga Ibu Khofifah tetap amanah dan terus memberikan yang terbaik untuk masyarakat.
 Ibu Khofifah selalu memperhatikan kesejahteraan rakyat. Semoga semakin sukses dalam memimpin.
 Para perempuan yang memiliki peran besar untuk mengubah dunia xemoticonx xemoticonx
@@ -11952,7 +11952,7 @@ Respek untuk bapak petugas xemoticonx
 Sehat selalu orang-orang baik xemoticonx
 Ya Allah terharu xemoticonx
 Kebaikan tidak akan pernah hilang
-Tidak tahu kenapa, jadi terharu lihat seperti ini xemoticonx
+Tidak tahu kenapa, jadi terharu melihat seperti ini xemoticonx
 Jangan lupa untuk selalu berbuat baik untuk orang lain xemoticonx
 Respek sekali
 Masyaallah mulianya
@@ -12044,7 +12044,7 @@ Doa dan dukungan dari kami selalu untuk Ibu Khofifah dan Pak Emil. Semoga sukses
 Calon gubernur dua periode ku
 Semangat yang luar biasa! Kami selalu mendukung Ibu Khofifah dan Pak Emil untuk terus maju dan membawa perubahan positif bagi masyarakat
 Terima kasih ibu atas kunjungannya
-Senangnya tiap lihat interaksi pemimpin dengan rakyatnya
+Senangnya tiap melihat interaksi pemimpin dengan rakyatnya
 Ibu Khofifah tidak ada lawan terus lanjutkan
 Mustikatama Group, terima kasih atas kepercayaan dan dukungannya!
 Luar biasa, dukungan yang tulus dari Mustikatama Group
@@ -12080,7 +12080,7 @@ Merakyat sekali ibu Khofifah, idola xemoticonx
 Terima kasih ibu sudah berkunjung ke masyarakat, sangat salut dengan sosok ibu satu ini xemoticonx
 Semoga semua karyawan sehat selalu.
 Salam semangat dari karyawan Mustikatama! Bersama Khofifah-Emil, kita maju terus!
-bismillah ibu, nomor 2 xmentionx xmentionx menang xemoticonx
+bismillah ibu, nomor dua xmentionx xmentionx menang xemoticonx
 Khofifah-Emil terus membawa kemajuan untuk Lumajang dan seluruh Jawa Timur.
 Sehat selalu petani Jawa Timur, semoga hasilnya melimpah.
 Semoga Khofifah-Emil selalu diberkahi.
@@ -12176,9 +12176,9 @@ Terima kasih atas doa dan dukungan warga Gresik. Semoga Allah mengabulkan doa ka
 Terima kasih, warga Gresik. Kehangatan kalian membuat kami merasa sangat diterima.
 Ayo masyarakat Gresik dukung Bu Khofifah.
 Ayo semua dukung Bu Khofifah.
-Doakan selalu agar Bu Khofifah bisa 2 periode lagi.
+Doakan selalu agar Bu Khofifah bisa dua periode lagi.
 Ini gubernur impian.
-Lihat itu antusiasme masyarakat Gresik. Memang sudah jelas menang.
+melihat itu antusiasme masyarakat Gresik. Memang sudah jelas menang.
 Luar biasa Bu Khofifah, dicintai rakyat.
 Mantap jiwa Bu Khofifah.
 Tolong saya Ibu Khofifah untuk dimudahkan berobat ke Rumah Sakit Soetomo agar tidak dipersulit.
@@ -12198,7 +12198,7 @@ Alhamdulillah, semoga tetap ramah ya bu.
 Sambutan yang luar biasa, terima kasih warga Gresik xemoticonx
 Senang sekali bertemu Bu Khofifah xemoticonx xemoticonx
 Dukungan dari semua kalangan xemoticonx
-Menyala pasangan calon nomor 2 xemoticonx xemoticonx
+Menyala pasangan calon nomor dua xemoticonx xemoticonx
 Masyaallah, salut sekali antusias masyarakat Gresik xemoticonx
 Masyaallah Ibu xemoticonx xemoticonx senang sekali melihat antusiasnya orang Gresik.
 Semoga sehat selalu dan diberi kebahagiaan amin.
@@ -12241,11 +12241,11 @@ Memang merakyat Bu Khofifah itu.
 Pasarnya ramai, ada Bu Khofifah xemoticonx
 Bu Khofifah sosok pemimpin yang tulus sudah tidak ragu lagi pilih Bu Khofifah.
 Semoga Bu Khofifah selalu menjadi pemimpin yang amanah.
-Lumajang coblos nomor 2.
+Lumajang coblos nomor dua.
 bismillah kita bersatu untuk Bu Khofifah xemoticonx
 Nomor dua bisa menang.
 Kita semua warga Jawa Timur harus coblos nomor xemoticonx xemoticonx xemoticonx xemoticonx
-Pasar Baru Lumajang coblos nomor 2 gas.
+Pasar Baru Lumajang coblos nomor dua gas.
 Bu Khofifah tidak hanya bicara, tapi langsung bekerja nyata untuk kemajuan Jawa Timur.
 Untuk gubernur saya insyaallah saya coblos anda bu, untuk bupati saya tetap petahana Pak Hendy - Gus Firjaun Jember menyala 02 - 01 xemoticonx xemoticonx xemoticonx
 Alhamdulillah sudah 34 pasar yang diblusuki, selalu merakyat xemoticonx xemoticonx
@@ -12298,12 +12298,12 @@ Bu Khofifah memang terbaik xemoticonx
 Semoga doa dan dukungan warga Lumajang menjadikan setiap langkah Bu Khofifah penuh berkah dan kesuksesan
 Luar biasa Bu Khofifah, semoga terus menjadi pemimpin yang membawa perubahan positif bagi seluruh rakyat!
 Semangat Bu Khofifah, semoga selalu diberikan kekuatan untuk terus berbuat baik dan membawa perubahan positif bagi kita semua
-Tetap nomor 2 ya bu
+Tetap nomor dua ya bu
 Selalu hadir dalam masyarakat
 Merakyat dan peduli masyarakat, itulah Bu Khofifah
 Kurang hebat apa lagi Bu Khofifah
 Orangnya pintar, baik, dan ramah... Ya Bu Khofifah orangnya
-Sudah saatnya Bu Khofifah 2 periode xemoticonx xemoticonx
+Sudah saatnya Bu Khofifah dua periode xemoticonx xemoticonx
 Tidak pernah lelah untuk membantu masyarakat
 Kalau sudah seperti ini, lanjut atau tidak? Ya lanjutlah
 Ini pemimpin yang diinginkan masyarakat
@@ -12311,7 +12311,7 @@ Lanjutkan saja Bu Khofifah
 Kapan ke Madura bu
 Ibu Khofifah luar biasa sekali xemoticonx Silakan ibu hadir di Lamongan xemoticonx xemoticonx
 Baik apanya? Orang baik mana yang korupsi
-1 periode saja tidak berpengaruh, masa masih mau menambah, yang ada makin bobrok
+satu periode saja tidak berpengaruh, masa masih mau menambah, yang ada makin bobrok
 Kemana saja kemarin bu? Sibuk membuat konten? Bekerja dong
 Kemarin kemana saja bu?
 Masyaallah, indah sekali maknanya. Semoga salawat kita semua diterima dan membawa keberkahan
@@ -12385,11 +12385,11 @@ Kinerja Bu Khofifah sangat memuaskan. Terus semangat Bu, rakyat Jawa Timur mendu
 Bu Khofifah sosok pemimpin yang peduli terhadap pembangunan dan kesejahteraan masyarakat. Semoga bisa terus memimpin Jawa Timur dengan baik!
 Jawa Timur semakin maju berkat kepemimpinan Bu Khofifah. Kami yakin beliau bisa membawa Jawa Timur menuju kemajuan yang lebih besar lagi.
 Bu Khofifah mampu merangkul semua kalangan untuk bersama-sama membangun Jawa Timur. Semoga Jawa Timur semakin sejahtera di bawah kepemimpinan beliau.
-Lihat bagaimana Bu Khofifah fokus pada pendidikan, kesehatan, dan kesejahteraan rakyat. Beliau pantas untuk terus memimpin Jawa Timur.
+melihat bagaimana Bu Khofifah fokus pada pendidikan, kesehatan, dan kesejahteraan rakyat. Beliau pantas untuk terus memimpin Jawa Timur.
 Dukungan untuk Bu Khofifah karena beliau sudah menunjukkan komitmen tinggi untuk kemajuan Jawa Timur. Semoga terus bisa membawa Jawa Timur ke arah yang lebih baik.
 Semoga salawat tersebut menjadi syafaat amin
 Nyaman sekali kalau melihat persatuan seperti ini
-Kedamaian menyertai, bismillah menang nomor 2
+Kedamaian menyertai, bismillah menang nomor dua
 Alhamdulillah, Jawa Timur bersalawat selalu xemoticonx
 Subhanallah semarak kebersamaan
 Ramai sekali keren sekali
@@ -12398,7 +12398,7 @@ Wah keren
 Sangat positif dan bermanfaat
 Kampanye paling seru
 Semoga Bu Khofifah memenangkan pemilihan gubernur 2024 xemoticonx
-Nyamannya xemoticonx bismillah nomor 2
+Nyamannya xemoticonx bismillah nomor dua
 Masyaallah sejuk sekali xemoticonx xemoticonx
 Harapan besar bagi pasangan Khofifah dan Emil, semoga bisa membawa Jawa Timur lebih baik lagi
 Amin amin Allahumma amin Ya Allah ya Rabbal Alamin Barakallah
@@ -12415,7 +12415,7 @@ Lanjutkan untuk Jawa Timur tercinta Bu Khofifah Indar Parawansa sukses selalu
 Tidak ramah
 Amin xemoticonx xemoticonx Mojokerto dukung ibu, Pak Emil, Gus Barra dan Dr. Rizal xemoticonx xemoticonx
 Subhanallah
-2 yang terbaik xemoticonx
+dua yang terbaik xemoticonx
 Maju terus ibu dan mas wakil gubernur. Lanjutkan dua periode
 Pemimpin yang tangguh dan penuh empati. Terima kasih, Bu Khofifah!
 Alhamdulillah lancar sehat selalu xemoticonx xemoticonx
@@ -12424,7 +12424,7 @@ Mohon bantuannya Ibu Khofifah untuk dimudahkan urusan saya berobat ke Soetomo
 Pasti kemenangan di depan mata xemoticonx
 Semoga sukses.
 Amin Ya Allah
-Lanjutkan 2 periode bu
+Lanjutkan dua periode bu
 Sungguh luar biasa! Semangat terus tenaga kesehatan muda Jawa Timur, kalian inspiratif
 Pelayanan kesehatan gratis yang diberikan sangat membantu dan bermakna.
 Keren sekali Bu Khofifah acara kampanye bisa ada pelayanan kesehatan
@@ -12451,10 +12451,10 @@ Pemerintahan yang stabil dan progresif ada di tangan Bu Khofifah, mari beri kese
 Mulia sekali Bu Khofifah
 Kampanye ada cek kesehatan gratis itu hal yang baru dan harus ada di setiap kegiatan kampanye
 Jarang sekali pemimpin yang peduli seperti ini
-2 periode di depan mata xemoticonx
+dua periode di depan mata xemoticonx
 Terima kasih banyak untuk para tenaga kesehatan muda! Dedikasi kalian sungguh luar biasa, memberikan pelayanan kesehatan gratis di setiap titik. Semoga sukses selalu
-Saya yakin dengan kepemimpinan Bu Khofifah, Jawa Timur bisa semakin berkembang di 2 periode mendatang.
-Ya ini yang dibutuhkan masyarakat, kesehatan nomor 1
+Saya yakin dengan kepemimpinan Bu Khofifah, Jawa Timur bisa semakin berkembang di dua periode mendatang.
+Ya ini yang dibutuhkan masyarakat, kesehatan nomor satu
 Hadir
 Terima kasih sudah hadir dan memberikan layanan kesehatan gratis di setiap kesempatan
 Terima kasih para tenaga kesehatan yang dengan penuh semangat membantu masyarakat
