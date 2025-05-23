@@ -4,4 +4,5 @@ Rules
 3. Pastikan kata asing, bahasa jawa, dan atau bahasa lain diartikan ke bahasa indonesia dan pastikan kalimat keseluruhan masih terdengar masuk akal
 4. Hilangkan huruf dan tanda baca yang dobel (e.g. yanggg -> yang, coblos!! -> coblos!)
 4. Jangan ubah xemoticonx, xhashtagx, xmentionx
-5. Tambahkan awalan, akhiran, atau sisipan sesuai dengna konteks kalimatnya. Awalan (ber-, me-, di-, tambahkan jika ada yang lain). Akhiran (-i, tambahkan jika ada yang lain). Sisipan(di-..-an, tambahkan jika ada yang lain)
+5. Tambahkan awalan, akhiran, atau sisipan sesuai dengna konteks kalimatnya. Awalan (ber-, me-, di-, tambahkan jika ada yang lain). Akhiran (-i, tambahkan jika ada yang lain). Sisipan(di-..-an, pe-..-nya, tambahkan jika ada yang lain)
+6. Jangan hilangkan tanda '!' dan '?' apabila kalimatnya adalah kalimat seru atau tanya
