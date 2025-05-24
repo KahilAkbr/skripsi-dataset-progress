@@ -39,7 +39,7 @@ loh / lho = lo
 pintar = pintar
 gais = teman-teman
 wih = weh
-buat = untuk (buat yang artinya bikin itu baku jadi tidak perlu diubah)
+buat = untuk ("buat" yang artinya "bikin" itu baku jadi tidak perlu diubah)
 ketawa = tertawa
 pas = waktu / ketika
 aja = saja
@@ -50,3 +50,4 @@ ketemu = bertemu / ditemukan
 sama yang artinya dengan, oleh, pada (tidak baku)
 dih = ih
 kenapa = mengapa
+capek = capai

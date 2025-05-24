@@ -8,16 +8,27 @@ function extractExactWordMatches(filePath, keyword, outputPath) {
     }
 
     const lines = data.split('\n');
-    const keywordRegex = new RegExp(`\\b${keyword}\\b`, 'i'); // mencocokkan kata utuh, tidak case-sensitive
-    const matchingLines = lines.filter(line => keywordRegex.test(line));
+    const keywordRegex = new RegExp(`\\b${keyword}\\b`, 'i');
+    const matchingLinesWithNumbers = [];
 
-    const outputText = matchingLines.map((line, i) => `${line.trim()}`).join('\n');
+    lines.forEach((line, index) => {
+      if (keywordRegex.test(line)) {
+        matchingLinesWithNumbers.push({
+          lineNumber: index + 1,
+          content: line.trim()
+        });
+      }
+    });
+
+    const outputText = matchingLinesWithNumbers
+      .map(item => `Line ${item.lineNumber}: ${item.content}`)
+      .join('\n');
 
     fs.writeFile(outputPath, outputText, 'utf8', err => {
       if (err) {
         console.error('Gagal menulis ke file:', err);
       } else {
-        console.log(`Berhasil menyimpan ${matchingLines.length} kalimat ke file: ${outputPath}`);
+        console.log(`Berhasil menyimpan ${matchingLinesWithNumbers.length} kalimat ke file: ${outputPath}`);
       }
     });
   });
@@ -25,7 +36,7 @@ function extractExactWordMatches(filePath, keyword, outputPath) {
 
 // Ganti nama file input, kata kunci, dan file output sesuai kebutuhan
 const filePath = '../3_clean_data/comment.for';
-const keyword = 'pilih';
+const keyword = 'nya';
 const outputPath = 'result/extracted_word.txt';
 
 extractExactWordMatches(filePath, keyword, outputPath);
