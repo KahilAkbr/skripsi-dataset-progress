@@ -20,14 +20,26 @@ function insertModifiedLines(originalFilePath, modifiedFilePath, outputFilePath)
 
       // Parse baris yang sudah dimodifikasi
       const modifications = {};
-      modifiedLines.forEach(line => {
-        const match = line.match(/^Line (\d+): (.*)$/);
+      console.log('Total baris di file modifikasi:', modifiedLines.length);
+      
+      modifiedLines.forEach((modifiedLine, index) => {
+        // Trim untuk menghilangkan whitespace dan newline
+        const cleanLine = modifiedLine.trim();
+        console.log(`Baris ${index + 1}: "${cleanLine}"`);
+        
+        // Mencari pola "Line [angka]:" di awal baris untuk mendapatkan nomor baris
+        const match = cleanLine.match(/^Line (\d+): (.*)$/);
         if (match) {
           const lineNumber = parseInt(match[1]);
-          const newContent = match[2];
-          modifications[lineNumber] = newContent;
+          const fullContent = match[2];
+          modifications[lineNumber] = fullContent;
+          console.log(`✓ Berhasil parse - Line ${lineNumber}: "${fullContent}"`);
+        } else {
+          console.log(`✗ Gagal parse baris: "${cleanLine}"`);
         }
       });
+      
+      console.log('Total modifikasi yang berhasil di-parse:', Object.keys(modifications).length);
 
       // Terapkan modifikasi ke file asli
       const updatedLines = originalLines.map((line, index) => {
@@ -53,8 +65,8 @@ function insertModifiedLines(originalFilePath, modifiedFilePath, outputFilePath)
 }
 
 // Konfigurasi file
-const originalFilePath = '../3_clean_data/comment.for';          // File asli
-const modifiedFilePath = 'result/extracted_word_modified.txt';   // File hasil modifikasi Anda
+const originalFilePath = '../3_clean_data/comment.for';          // File asli (berdasarkan nomor baris asli)
+const modifiedFilePath = 'result/test.txt';   // File dengan format "Line [nomor]: [kalimat]"
 const outputFilePath = 'result/comment_updated.for';            // File output hasil akhir
 
 insertModifiedLines(originalFilePath, modifiedFilePath, outputFilePath);

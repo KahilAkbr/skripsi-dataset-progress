@@ -36,7 +36,7 @@ function extractExactWordMatches(filePath, keyword, outputPath) {
 
 // Ganti nama file input, kata kunci, dan file output sesuai kebutuhan
 const filePath = '../3_clean_data/comment.for';
-const keyword = 'nya';
+const keyword = 'sama';
 const outputPath = 'result/extracted_word.txt';
 
 extractExactWordMatches(filePath, keyword, outputPath);

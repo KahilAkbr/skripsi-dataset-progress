@@ -47,7 +47,11 @@ ngapain = melakukan apa
 ka = kak / kakak
 sholawat = salawat
 ketemu = bertemu / ditemukan
-sama yang artinya dengan, oleh, pada (tidak baku)
+sama yang artinya dengan atau oleh (tidak baku), sama yang artinya setara itu baku
 dih = ih
 kenapa = mengapa
 capek = capai
+kayaknya = sepertinya
+biar = agar
+rek = kawan
+kayak = seperti
