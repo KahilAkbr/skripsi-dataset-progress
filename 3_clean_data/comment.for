@@ -652,7 +652,7 @@ Oke semoga sukses
 Pasti 02 dong
 Insyaallah nomor dua unggul
 Nomor 02 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Kok jadi menangis lihatnya ya, saking terharu senang campur aduk xemoticonx
+Kok jadi menangis lihatnya ya, karena sangat terharu senang campur aduk xemoticonx
 Pasti nomor dua
 Pak Emil
 Menang sih Mbak xemoticonx. Trenggalek dan sekitarnya dukung penuh Mas Emil
@@ -876,7 +876,7 @@ Yang sabar ya Pak Emil xemoticonx
 Ada-ada saja Neng Arumi ini xemoticonx
 Arumi sudah pandai berbicara bahasa jawa ya xemoticonx xemoticonx xemoticonx
 Kesukaan saya Mbak Arumi
-Saking cinta dengan istrinya percaya saja disuapi tidak dilihat lagi xemoticonx xemoticonx
+karena sangat cinta dengan istrinya percaya saja disuapi tidak dilihat lagi xemoticonx xemoticonx
 xemoticonx xemoticonx buah kesukaan saya itu Bu xmentionx kalau dulu rela panas-panas manjat pohon
 Semoga jadi pemimpin yang baik untuk Jawa Timur Bu Khofifah dan Bapak Emil, salam dari Jawa Tengah xemoticonx xemoticonx
 Pak Emil ekspresinya lucu xemoticonx xemoticonx xemoticonx xemoticonx
@@ -1613,7 +1613,7 @@ Haha lucu sekali berdua xemoticonx xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx sementara sudah gaya
 Gemas deh xemoticonx
 Arumi
-Saking capainya tidak sih, menemani suami, sampai lupa mendadak Bu Arumi xemoticonx xemoticonx
+karena sangat capainya tidak sih, menemani suami, sampai lupa mendadak Bu Arumi xemoticonx xemoticonx
 Kak Arumi kok lucu salah tingkahnya wkwk
 Kalau saya salah tingkahnya manjat Bu xemoticonx xemoticonx xemoticonx
 Ini di pasar Krian tidak sih
@@ -2396,7 +2396,7 @@ Masyaallah. Semoga sakinah mawadah warahmah
 Kalau anda melihat logo Program KB xemoticonx keluarga berencana xemoticonx dari zaman Orba sampai zaman Orwo ya demikian posisi yang tepat
 Cantik ramah sederhana, xemoticonx xemoticonx xemoticonx
 Waduh. Kok posisi duduknya begitu ya. Mestinya putra-putrinya di tengah, kedua orang tua di pinggir jadi anak-anak terjaga.
-Saking lamanya tidak pernah digenggam tangan saya oleh suami pernah genggaman seperti begini di tempat umum berdebar-debar seperti lagi pacaran xemoticonx tapi ya agak kaku canggung saking lamanya 11 tahun tidak pernah mesra depan umum walaupun pegangan tangan xemoticonx
+karena sangat lamanya tidak pernah digenggam tangan saya oleh suami pernah genggaman seperti begini di tempat umum berdebar-debar seperti lagi pacaran xemoticonx tapi ya agak kaku canggung karena sangat lamanya 11 tahun tidak pernah mesra depan umum walaupun pegangan tangan xemoticonx
 Tim yang tidak pernah dipegang tangan oleh suami di tempat umum xemoticonx xemoticonx melihat mbak Arumi bikin iri xemoticonx
 Kabur ayo. Kita cuma penonton xemoticonx xemoticonx xemoticonx
 Kalau buka instagram pasti langsung bu Arumi yang dilihat senang lihatnya xemoticonx xemoticonx
@@ -2481,7 +2481,7 @@ Pak. Ada duplikatnya tidak. Aku mau yang begitu. xemoticonx xemoticonx xemoticon
 Masyaallah. Sehat selalu ya bapak ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Masyaallah. Laki-laki penyayang keluarga xemoticonx
 Aku juga dipegang begitu saat mau menyeberang. Dengan saat di mal depan toko baju.
-Jadi terbawa suasana tersenyum-senyum sendiri, serasa tangan saya yang digenggam xemoticonx. Saking jarang digenggam. Yang ada saya genggam setang motor terus xemoticonx xemoticonx xemoticonx
+Jadi terbawa suasana tersenyum-senyum sendiri, serasa tangan saya yang digenggam xemoticonx. karena sangat jarang digenggam. Yang ada saya genggam setang motor terus xemoticonx xemoticonx xemoticonx
 Investasi masa depan bapak xmentionx, kelak di masa tua akan diperlakukan yang sama oleh kedua buah hatinya xemoticonx xemoticonx
 Tapi insyaallah walaupun saya tidak publik figur ke mana-mana selalu nempel, jalan selalu gandengan.
 Suami dan ayah idaman
@@ -2512,7 +2512,7 @@ Bos rambutnya agak bermodel dong, jangan modelnya jadul saja xemoticonx
 Aduh melihat mbak Arumi dan mas Emil senang sekali
 xemoticonx senang lihatnya. Doa terbaik untuk keluarga Pak Emil
 Sisakan satu laki-laki seperti ini untuk anak saya xemoticonx
-Saking tidak mau jauh manis sekali dah ah, anak-anaknya yang mengapit emak bapaknya xemoticonx tertawa pula baca komenan ya Allah xemoticonx
+karena sangat tidak mau jauh manis sekali dah ah, anak-anaknya yang mengapit emak bapaknya xemoticonx tertawa pula baca komenan ya Allah xemoticonx
 Aku di situ jadi kursinya
 Wah sama seperti suamiku juga suka genggam erat tanganku tapi waktu mau menyebrang xemoticonx
 Masyaallah aku juga mau punya suami yang seperti itu xemoticonx
@@ -3535,7 +3535,7 @@ Mulus sekali Arumi
 Ah tidak mau xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sedih sekali mak
 Benar-benar xemoticonx duniaku adalah kamu xemoticonx
-Dari semua suami artis, hanya Pak Emil yang kalau melihat istrinya seperti masih belum percaya kalau itu istrinya, mungkin karena saking sayangnya, tidak tahan dengan tatapannya
+Dari semua suami artis, hanya Pak Emil yang kalau melihat istrinya seperti masih belum percaya kalau itu istrinya, mungkin karena sangat sayangnya, tidak tahan dengan tatapannya
 xemoticonx iri aku
 Hati xemoticonx ada Ghafur kak
 Kok Arumi tidak salah tingkah dilihati Mas Emil
@@ -4382,7 +4382,7 @@ Aku juga kerupuk mbak
 Salut peralatan makannya biasa saja xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bawa duit aku mah bu
 Mbak Arumi seperti aku kalau makan kerupuk selalu mencolok sambal diadukan ke kerupuknya
-Hahaha hasil keliling ya mas Emil, saking senangnya didatangi mas Emil
+Hahaha hasil keliling ya mas Emil, karena sangat senangnya didatangi mas Emil
 Sama jika makan tidak ditemani kerupuk kurang cocok
 Sayang, hasil keliling aku bawakan kerupuk, manis xemoticonx xemoticonx
 Meski semua sederhana tapi tetap ya kelihatan kok orang sepertinya kulitnya saja sudah paling beda masyaallah ada ya orang dari gadis tinggi sampai sudah punya anak badan sama muka sama saja tetap cantik sekali
@@ -4748,7 +4748,7 @@ Bu Arumi pakai baju sederhana saja tetap kelihatan mewah karena cantiknya alami 
 Jangan khawatir bunda Arumi, bagaimana kiprah pak Emil dalam membantu waktu debat wakil presiden gibran sudah terbukti, insyaallah semoga Allah swt meridai dan memberi kelancaran, amin xemoticonx xemoticonx
 Masyaallah tabarakallah keluarga ini xemoticonx
 Perlu belajar dari Nikita Willy bu Arumi xemoticonx
-Saking senangnya sejak SMA anak saya namanya ada aruminya xemoticonx
+karena sangat senangnya sejak SMA anak saya namanya ada aruminya xemoticonx
 Tidak usah debat tidak apa-apa bu Arumi, bapak pasti menang kok xemoticonx xemoticonx xemoticonx xemoticonx
 Wajahnya xmentionx mahal sekali ya xemoticonx xemoticonx
 Semangat
@@ -5429,7 +5429,7 @@ Mas Emil mantap, ikut berdoa semoga menjadi bagian pemimpin Indonesia, tidak usa
 Pak xmentionx semoga bisa menjadi the next generation. Jadi pemimpin bangsa ini, amin xemoticonx Saya DUKUNG!
 Terima kasih Pak xmentionx dan Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ibu Iriani xemoticonx lega xemoticonx xemoticonx xemoticonx
-Kemarin cuma bisa dari jauh lihatnya saking masyaallah banyak yang sayang Bapak xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
+Kemarin cuma bisa dari jauh lihatnya karena sangat masyaallah banyak yang sayang Bapak xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Aku menangis terus Mas xmentionx belum ikhlas Pak Jokowi purna tugas, kami masih sayang dengan beliau.
 Masyaallah terharu.
 Amin ya rabbal alamin, terkabul xemoticonx
@@ -8156,7 +8156,7 @@ Begini kali ya kalau menurutin nasihat orang tua, terutama nasihat ibu. Hidupnya
 Pastinya mas Emil tidak pernah bosan memandang istrinya yang cantik jelita xemoticonx xemoticonx xemoticonx
 Wanita di tangan yang tepat, tatapan mata yang selalu jatuh cinta, sakinah mawadah warahmah sampai akhir hayat, amin xemoticonx xemoticonx ya rabbal alamin xemoticonx xemoticonx xemoticonx
 Masyaallah Bu Arumi sayang, sakinah mawadah warahmah selalu sampai surga ya dengan Bapak Emil xemoticonx xemoticonx xemoticonx
-mengapa sedotannya bergerak xemoticonx begitu ya, saking meleleh melihat pasangan yang masyaallah xemoticonx
+mengapa sedotannya bergerak xemoticonx begitu ya, karena sangat meleleh melihat pasangan yang masyaallah xemoticonx
 Ini sih definisi, selalu jatuh cinta setiap hari pada pasangan sendiri, karena dari pandangannya selalu penuh cinta, ini dulu bu Arumi doanya apa sih bisa dapat suami yang penyayang begini xemoticonx
 Mengikuti berita Arumi dari remaja, senang sekali waktu dia menikah dengan Emil, tuh kan kalau menurut dengan orang tua, bahagia xemoticonx xemoticonx
 Pandangannya seperti suami-suami kita pada HP masing-masing xemoticonx
@@ -8181,7 +8181,7 @@ Fokus ke sedotannya, mengapa itu xemoticonx
 Seharian saya betah melihat konten mas Emil xemoticonx mbak Arumi rasanya nyaman sekali hatiku pasangan teromantis sejagat raya, apalagi kalau mas Emil sedang menatap mbak Arumi adem kalau melihat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kok aku salah fokus dengan sedotan yang bergerak sendiri, benar tidak sih xemoticonx xemoticonx
 Keberangkatan ke planet mars siap berangkat, silakan yang mau ikut xemoticonx xemoticonx
-Salah fokus dengan sedotan yang di gelas bergerak xemoticonx sendiri mungkin saking terpesona melihat pasangan romantis xmentionx
+Salah fokus dengan sedotan yang di gelas bergerak xemoticonx sendiri mungkin karena sangat terpesona melihat pasangan romantis xmentionx
 Kok aku jadi fokus ke sedotan itu ya, bisa bergerak begitu
 Yang dilihat bu Arumi mengapa aku yang berdebar-debar
 Bikin cemburu para istri yang tidak pernah dapatkan tatapan mesra dari para suami xemoticonx
@@ -8602,7 +8602,7 @@ Aku ikut terpesona xemoticonx pak xemoticonx xemoticonx xemoticonx
 Sedotan saja salah tingkah apalagi yang dipandang xemoticonx xemoticonx xemoticonx xemoticonx
 Aku melihat dua kali hanya ingin memastikan sedotan yang bergerak xemoticonx xemoticonx
 Ketika melihat selalu tersenyum xemoticonx karena masih seperti orang pacaran saja xemoticonx xemoticonx sehat, bahagia, langgeng sampai kakek nenek, amin
-Sedotan di gelas saja sampai geleng-geleng saking iri melihat mereka xemoticonx
+Sedotan di gelas saja sampai geleng-geleng karena sangat iri melihat mereka xemoticonx
 Menyala wakil gubernurku xemoticonx
 Laki-laki tampan xemoticonx sang dewi xemoticonx xemoticonx xemoticonx xemoticonx
 Selamat atas kemenangan untuk mbak Arumi dan mas Dardak, yang terbaik untuk anda sekalian
@@ -8670,7 +8670,7 @@ xmentionx amin xemoticonx doa yang sama mbak xemoticonx
 Sedotan saja sampai salah tingkah xemoticonx
 Sehat-sehat ibu ramah baik sekali xemoticonx
 xemoticonx xemoticonx bahagia selalu, Tuhan Yesus memberkati
-Sedotan pun bergerak sendiri saking terpesonanya dengan tatapan bapak Emil xemoticonx
+Sedotan pun bergerak sendiri karena sangat terpesonanya dengan tatapan bapak Emil xemoticonx
 Kak sedotannya mengapa bergerak sendiri xemoticonx
 Diperhatikan sedotan minumnya bergerak sendiri
 hem hem
@@ -8698,7 +8698,7 @@ Ingat anak di rumah xemoticonx
 Masyaallah, cantiknya bidadari surga pak Emil
 Pandangannya seperti suami ke ponselnya xemoticonx
 Seperti pandangan mata suamiku ketika ada maunya xemoticonx
-Sedotan saja sampai bergerak sendiri saking salah tingkahnya xemoticonx
+Sedotan saja sampai bergerak sendiri karena sangat salah tingkahnya xemoticonx
 Sedotannya ikutan tervibrasi keromantisan mereka xemoticonx xemoticonx xemoticonx
 Masyaallah tabarakallah xemoticonx semoga langgeng terus hingga surga, amin
 Masyaallah senang sekali melihat pasangan ini xemoticonx tidak aneh-aneh dan banyak gaya
@@ -9301,7 +9301,7 @@ Salah fokus sedotan di gelas itu bergerak-gerak padahal tidak ada angin
 Salah fokus ke sedotannya, bergerak sendiri xemoticonx
 Masyaallah tatapan cintanya tulus sekali sama seperti Pak suami kalau saya cerita selalu antusias dan tidak bosen memandang istrinya xemoticonx xemoticonx xemoticonx sakinah mawadah warrahmah Bu Arumi Pak Emil xemoticonx xemoticonx
 Masyaallah xemoticonx pasangan teradem ayem xemoticonx xemoticonx
-Sedotan saja bergerak-gerak saking irinya melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
+Sedotan saja bergerak-gerak karena sangat irinya melihat pasangan ini xemoticonx xemoticonx xemoticonx xemoticonx
 Pasangan terbaik xemoticonx xemoticonx
 Masyaallah idolaku xemoticonx xemoticonx xemoticonx
 Sedotannya kok bergerak-gerak ya xemoticonx xemoticonx
