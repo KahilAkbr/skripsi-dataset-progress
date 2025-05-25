@@ -39,7 +39,7 @@ loh / lho = lo
 pintar = pintar
 gais = teman-teman
 wih = weh
-buat = untuk ("buat" yang artinya "bikin" itu baku jadi tidak perlu diubah)
+buat = untuk ("buat" yang artinya "bikin" itu baku jadi tidak perlu diubah, selain itu ubah)
 ketawa = tertawa
 pas = waktu / ketika
 aja = saja
@@ -47,7 +47,6 @@ ngapain = melakukan apa
 ka = kak / kakak
 sholawat = salawat
 ketemu = bertemu / ditemukan
-sama yang artinya dengan atau oleh (tidak baku), sama yang artinya setara itu baku
 dih = ih
 kenapa = mengapa
 capek = capai
@@ -55,3 +54,13 @@ kayaknya = sepertinya
 biar = agar
 rek = kawan
 kayak = seperti
+akhiran e atau ne = nya (akhir e = akhirnya)
+skip = lewati / tidak ikut
+saking = karena sangat
+banget = sekali
+all in = dukung penuh
+min = admin
+sama yang artinya setara itu baku (tidak perlu diubah), selain itu sama = dengan / oleh (ubah menjadi dengan atau oleh), 
+pol = penuh / sekali (gas pol = gas penuh, padat pol = padat sekali)
+barokah / barakah = berkah
+the best = terbaik
