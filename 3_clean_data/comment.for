@@ -18098,3 +18098,5203 @@ Kami butuh lebih banyak pemimpin seperti Bu Khofifah yang fokus pada pertanian d
 Dukungan Bu Khofifah terhadap petani lokal benar-benar memberikan harapan baru. Terus semangat
 Malang insyaallah dukung Khofifah
 Dukungan Bu Khofifah untuk petani lokal luar biasa! Semoga jeruk Siam Madu semakin dikenal luas xemoticonx xemoticonx
+Mengiler
+Bersama Bu Khofifah, jayalah produk lokal Jawa Timur
+Gas penuh xemoticonx
+Ya, inilah hasil alam bumi Majapahit
+Maju terus jeruk Jawa Timur
+Masyaallah, alhamdulillah, di Malang ya Bunda
+Manisnya jeruk dari Malang bikin bangga! Semoga bisa dikenal sampai mancanegara. Terima kasih Bu Khofifah! xemoticonx xemoticonx
+Terlihat segar dan manis! Semoga petani kita selalu diberi kemudahan dan rezeki yang melimpah. Jeruknya bikin semangat! xemoticonx xemoticonx
+Jeruk lokal kita harus terus dibanggakan
+Bangga sekali melihat hasil petani kita yang subur dan segar! Semoga selalu diberikan hasil terbaik dan terus membanggakan desa xemoticonx xemoticonx xemoticonx
+Sangat senang melihat buah-buahan berkualitas seperti ini. Semoga terus mendukung petani lokal
+Sehat terus ya Ibu, lanjutkan Ibu
+Ingin sekali coba jeruk dari Desa Supit Urang ini
+Enak tuh Bu untuk oleh-oleh
+Bu Khofifah Emil, aku siap dukung dari Bojonegoro
+Melimpahnya jeruk lokal tanda berkah untuk Indonesia
+Kami sangat menghargai usaha Bu Khofifah dalam meningkatkan akses pasar bagi petani. Teruskan
+Masyaallah, jeruknya bikin mengiler! Semoga jeruk Siam Madu dari Desa Supit Urang makin dikenal dan sukses sampai mancanegara! xemoticonx xemoticonx xemoticonx
+Dari petani lokal untuk seluruh rakyat Indonesia, keren
+Inspiratif sekali Bu
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM, BAGAIMANA BISA MENANG xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Produk hasil alam Jawa Timur memang sangat berlimpah, kesuburan tanah Majapahit ini harus kita rawat bersama. Terima kasih Bu Khofifah atas perhatian kepada kami para petani muda
+Jadi ingin jeruk
+Bersama Bu Khofifah, kami yakin petani lokal akan semakin sejahtera. Terus dukung mereka, Bu
+Bu Khofifah, dukungan Anda membuat kami merasa diperhatikan. Semoga program-programnya berjalan lancar
+Inisiatif Bu Khofifah untuk mendukung petani lokal sangat mengesankan. Semoga hasilnya bisa dirasakan segera
+xemoticonx Bu Khofifah, terima kasih atas semua perhatian yang diberikan kepada petani. Kami siap mendukung program Anda
+Sangat senang melihat Bu Khofifah berkomitmen untuk meningkatkan hasil pertanian. Semoga sukses
+Dukungan Bu Khofifah pada petani lokal adalah langkah penting untuk ketahanan pangan di Jawa Timur
+Jeruk siam memang manisnya beda
+Bu Khofifah, program pemberdayaan petani lokal Anda benar-benar bermanfaat. Mari kita dukung bersama
+Semangat Bu Khofifah untuk petani lokal adalah contoh kepemimpinan yang baik. Semoga selalu menginspirasi
+Kami percaya, dengan dukungan Bu Khofifah, petani lokal akan mendapatkan masa depan yang lebih baik
+Bangga melihat petani lokal yang hasilnya melimpah
+Lagi musim Bu, Dau Malang juga penuh
+Semangat terus untuk petani Karang Ploso
+Semanis kemenangan Khofifah Emil
+Jeruk lokal memang manisnya bikin nagih
+Bangga Jawa Timur-ku
+Jawa Timur menyala
+Menang lagi ya Bu xemoticonx xemoticonx xemoticonx xemoticonx
+Semoga jeruk kita bisa menembus pasar internasional
+Semakin maju untuk produk lokal
+Dukung produk lokal
+Menyala Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Luar biasa, Bu Khofifah! Dukungan Anda untuk petani lokal sangat menginspirasi
+Jeruk Siam Madu ini memang luar biasa! Terima kasih telah memperhatikan potensi pertanian kita
+Bu Khofifah, komitmen Anda pada pertanian sangat terlihat. Semoga jeruk ini bisa mendunia
+Hem, pasti manis sekali
+Ayo, kita dukung petani lokal! Terima kasih Bu Khofifah atas inspirasi ini
+Jeruk Siam Madu jadi simbol keberhasilan petani kita. Terus semangat, Bu
+Malang jeruknya enak sekali
+Senang sekali melihat dukungan terhadap produk lokal. Semoga semakin banyak yang menikmati
+Bu Khofifah, terima kasih sudah mempromosikan hasil bumi kita yang luar biasa
+Kegiatan seperti ini penting untuk kesejahteraan petani. Semoga semakin banyak yang tergerak
+Sejuk Bu
+Ibu Khofifah ip
+Oh itu namanya jeruk siam, baru tahu saya xhashtagx xhashtagx xhashtagx xhashtagx
+Hidup petani Malang
+Jadi mengiler saya Bu xemoticonx xemoticonx xemoticonx
+Keren sekali! Salut untuk petani lokal yang tekun merawat buah seistimewa ini. Terus dukung produk dalam negeri! xemoticonx xemoticonx
+Wah, jeruknya bikin bangga! Terus sukses untuk petani di Supit Urang, semoga jeruk Siam Madu-nya bisa dinikmati di seluruh Indonesia bahkan dunia! xemoticonx xemoticonx
+Hebat! Ketekunan dan semangat petani kita memang luar biasa. Semoga jeruknya selalu melimpah dan makin terkenal! xemoticonx xemoticonx xemoticonx
+Luar biasa! Jeruk yang ditanam dengan hati memang punya rasa yang spesial. Semoga makin sukses, para petani Desa Supit Urang! xemoticonx xemoticonx xemoticonx
+Seger rasanya
+Wah enak itu xemoticonx xemoticonx
+Infokan di mana kebunnya
+Mantap ini xemoticonx xemoticonx xemoticonx xemoticonx
+Gubernur andalan saya
+Segernya tuh jeruk xemoticonx
+Jeruknya segar xemoticonx
+Segar seperti gubernur saya xemoticonx xemoticonx
+Petani sejahtera jika gubernurnya Khofifah xemoticonx xemoticonx
+Enak itu jeruknya, infonya boleh
+Pemimpin yang luar biasa xemoticonx
+Jadi ingin makan langsung di Malang xemoticonx
+Karangploso mana ya Bu
+Gubernur
+xmentionx Semangat Bu, Khofifah-Emil menang telak
+Manis sekali jeruknya
+Hasil perkebunan jeruk Jawa Timur terbaik, lanjut dua periode Ibu xemoticonx xemoticonx
+Sehat-sehat Bu xemoticonx xemoticonx
+Banyak robotnya
+Silakan dicoba Ibu xemoticonx
+Enak itu kawan xemoticonx
+Infokan belinya di mana kawan
+Warnanya cantik bisa untuk sajian buah di meja Bapak xemoticonx Ibu pejabat ya Bu xmentionx tidak pakai jeruk impor xemoticonx
+Jeruk-jeruk ini bisa bersaing Bu Khofifah
+Bu Khofifah suka jeruk
+Jeruk Malang memang enak Bu
+Jeruk Malang kualitas luar biasa
+Mau jeruknya Bu
+Subhanallah, semoga Ibu selalu diberikan kesehatan, insyaallah terpilih kembali menjadi gubernur Jawa Timur xemoticonx xemoticonx
+Ah jeruknya manis sekali xemoticonx
+Ingin foto di sini xemoticonx
+Harga jeruk mulai naik lagi
+Segar jeruk tidak se segar gubernur saya xemoticonx
+Semoga menjadi kebangkitan buah-buahan lokal
+Bisa wisata petik jeruk tidak seperti halnya petik Apel Malang?
+Jangan memandang sesuatu yang kecil, tapi lihatlah manfaat dan khasiatnya. Memberi kesegaran bagi yang haus makanya buruan beli sebelum musim panen habis xemoticonx xemoticonx
+Luar biasa sekali
+Luar biasa, Bu Khofifah! Program pemeriksaan kesehatan gratis sangat bermanfaat bagi masyarakat
+Terima kasih Bu Khofifah atas perhatian dan kepeduliannya kepada masyarakat Malang. Semoga diberi kesehatan dan berkah selalu! xemoticonx xemoticonx
+Luar biasa, Bu Khofifah! Pemeriksaan kesehatan gratis ini sangat bermanfaat untuk masyarakat. Semoga sehat selalu! xemoticonx xemoticonx
+Masyaallah Ibu
+Semua sangat menghargai kesehatan, sehingga senang ketika ada pemeriksaan kesehatan seperti ini
+Pemimpin yang peduli pada kesehatan warganya adalah pemimpin yang hebat. Terima kasih, Bu Khofifah! xemoticonx xemoticonx
+Semoga berkah untuk semua pihak yang terlibat! Kegiatan bermanfaat seperti ini benar-benar dirasakan masyarakat xemoticonx xemoticonx
+Bu Khofifah sangat peduli dengan kesehatan masyarakatnya
+Program pemeriksaan gratis ini sungguh bermanfaat bagi warga. Terus maju, Bu Khofifah! xemoticonx xemoticonx
+Dukungan Bu Khofifah untuk kesehatan masyarakat sangat menginspirasi. Semoga semua sehat selalu
+Pemimpin yang sangat memperhatikan rakyatnya
+Sehat-sehat semuanya
+Bu Khofifah ini aura-nya adem sekali
+Antusias sekali para warga pasar xemoticonx
+Langkah yang sangat mulia, semoga semakin banyak masyarakat yang terbantu dan makin sehat! Terima kasih telah peduli xemoticonx xemoticonx
+Selalu mementingkan kesehatan warganya xemoticonx xemoticonx
+Inisiatif ini menunjukkan kepedulian Ibu Khofifah terhadap kesehatan warganya. Kami sangat menghargainya
+Alhamdulillah, semoga kegiatan seperti ini bisa rutin ya! Kesehatan masyarakat adalah investasi terbaik xemoticonx xemoticonx
+Bu Khofifah selalu mengutamakan kepentingan rakyat. Semoga Ibu selalu diberi kesehatan untuk terus memimpin Jawa Timur
+Terima kasih, Ibu Khofifah, telah memperhatikan kesehatan pedagang dan pengunjung pasar
+Di bawah kepemimpinan Bu Khofifah, banyak sekali perbaikan di berbagai sektor di Jawa Timur. Terima kasih, Ibu
+Sering-sering Bu xemoticonx
+Pemeriksaan kesehatan gratis adalah langkah cerdas untuk meningkatkan kesejahteraan masyarakat. Semoga terus berlanjut
+Kami warga Jawa Timur merasa sangat bersyukur memiliki Bu Khofifah sebagai pemimpin. Teruslah menjadi inspirasi bagi kita semua
+Kesehatan memang sudah jadi bagian penting untuk diperhatikan, maju terus Khofifah Emil!
+Salam dari Malang
+Bu Khofifah selalu memikirkan kesehatan masyarakatnya. Semoga program seperti ini bisa terus berlanjut! xemoticonx xemoticonx
+Kapan Bu Nyai ke Bumi Citra Fajar Rangkah Kidul
+Khofifah cerminan warga Jawa Timur
+Alhamdulillah keren tim kesehatan selalu istikamah mendampingi Ibu di setiap kunjungan, ini sebagai bukti Ibu sangat peduli dengan isu kesehatan di masyarakat xemoticonx xemoticonx
+Kegiatan ini sangat membantu, terutama bagi pedagang yang jarang mendapatkan pemeriksaan kesehatan. Terima kasih
+Assalamualaikum, siang Bunda, saya doakan Bunda Khofifah terpilih lagi menjadi Gubernur Jawa Timur, semoga amanah dan lebih perhatian sama rakyat, serta memajukan UMKM hingga bisa ekspor, kami selalu mendukung Bunda Khofifah
+Kesehatan itu mahal dan Bu Khofifah menyediakan fasilitas kesehatan gratis
+Otomatis periode dua ini Bu Khofifah
+Lanjutkan dua periode
+Masa depan cerah Jawa Timur
+Alhamdulillah Bunda terbukti memberikan manfaat langsung melalui upaya-upaya yang menyehatkan masyarakat, semoga Jawa Timur makin sehat xemoticonx xemoticonx
+Layanan kesehatan gratis di Pasar Blimbing menunjukkan komitmen Bu Khofifah untuk kesehatan masyarakat. Lanjutkan, Bu! xemoticonx xemoticonx
+Bu Khofifah pemimpin inspiratif
+Bu Khofifah selalu turun ke lapangan dan memberikan solusi nyata. Pemimpin yang dekat dengan rakyat
+Ketegasan dan kepedulian Bu Khofifah sangat menginspirasi kami warga Jawa Timur. Semoga selalu sukses
+Luar biasa! Semoga semua yang hadir selalu diberi kesehatan dan rezeki yang berlimpah. Amin! xemoticonx xemoticonx
+Salut dengan inisiatif Bu Khofifah yang selalu peduli pada kesehatan rakyat. Pasar Blimbing jadi makin istimewa! xemoticonx xemoticonx
+Kepemimpinan Bu Khofifah sangat menginspirasi generasi muda Jawa Timur untuk lebih peduli pada lingkungannya
+Seger sekali warna jilbab Bu Khofifah xemoticonx
+Bu Khofifah adalah sosok pemimpin yang selalu hadir di tengah-tengah kami. Sangat mengayomi dan penuh empati
+Bu Khofifah adalah inspirasi bagi banyak perempuan. Ketegasan dan kebaikannya sangat dirasakan oleh kami di Jawa Timur xemoticonx
+Alhamdulillah peduli sesama, sehat dan bahagia selalu xemoticonx xemoticonx xemoticonx xemoticonx
+Terbukti membawa banyak perubahan di Jawa Timur xemoticonx xemoticonx
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM, MASAK BISA MENANG xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Semoga dengan adanya pemeriksaan kesehatan ini, masyarakat semakin sadar akan pentingnya kesehatan
+Bu Khofifah adalah kita
+Ibu Khofifah, teruslah berkarya untuk kesehatan dan kesejahteraan ekonomi masyarakat
+Semoga semua masyarakat Blimbing bisa merasakan manfaat dari program ini. Bravo, Bu Khofifah
+Kesehatan dan ekonomi yang seimbang adalah harapan kita semua. Terima kasih, Ibu Khofifah, atas perhatian Anda!
+Khofifah Emil dua periode
+Terima kasih Ibu, semoga selalu diberikan manfaat
+Bu Khofifah penuh inovasi
+Mantap
+Kepedulian yang luar biasa dari Bu Khofifah
+02 selalu di hati
+02 tidak pernah mengecewakan xemoticonx
+Bu Khofifah sangat peduli dengan warganya xemoticonx xemoticonx
+Tulus sekali Ibu untuk warga Jawa Timur xemoticonx
+Mari kawal Bu Khofifah sampai menang xemoticonx xemoticonx
+Bu Khofifah benar-benar sosok pemimpin yang peduli dan tanggap dengan kebutuhan rakyat. Terima kasih Ibu
+Bu Khofifah membuktikan bahwa pemimpin perempuan juga bisa membawa perubahan besar. Jawa Timur semakin maju
+Selalu tegas dan bijaksana dalam mengambil keputusan, Bu Khofifah adalah sosok pemimpin yang patut dicontoh
+Kami warga Jawa Timur sangat bangga memiliki pemimpin seperti Bu Khofifah. Semoga sehat selalu dan terus membimbing kami
+Terima kasih Bu Khofifah atas keberaniannya dalam menghadapi berbagai tantangan demi kesejahteraan Jawa Timur
+Sosok yang pekerja keras dan selalu berpihak kepada rakyat kecil. Jawa Timur beruntung memiliki pemimpin seperti Bu Khofifah
+Kesehatan menjadi prioritas utama
+Jawa Timur semakin maju dan sejahtera di bawah kepemimpinan Bu Khofifah. Kami bangga memiliki Ibu sebagai pemimpin
+Pemimpin yang tidak hanya bekerja, tetapi juga merangkul dan mendengarkan. Terima kasih Bu Khofifah untuk segalanya
+Bu Khofifah adalah contoh nyata pemimpin yang tulus bekerja demi rakyatnya. Semoga selalu diberi kekuatan
+Terima kasih, Bu Khofifah, sudah selalu turun langsung mendengarkan keluhan warga. Kepedulian Ibu sangat berarti
+Sehat terus untuk semua pengunjung pasar Blimbing! Terima kasih atas perhatiannya, ini sangat bermanfaat bagi masyarakat xemoticonx
+Terobosan yang keren! Kesehatan jasmani dan ekonomi, semoga semua makin sejahtera! xemoticonx xemoticonx
+Doa terbaik untuk semua Bapak xemoticonx Ibu di pasar Blimbing, semoga sehat lahir batin dan lancar rezekinya. Amin xemoticonx xemoticonx xemoticonx
+Program yang sangat berguna
+Kesehatan itu nomor satu. Terima kasih Bu Khofifah atas pelayanan gratisnya di Pasar Blimbing xemoticonx xemoticonx
+Terima kasih atas perhatian Bu Khofifah kepada kesehatan masyarakat Malang. Semoga selalu diberi kemudahan dalam memimpin! xemoticonx xemoticonx
+Terima kasih banyak Bu Khofifah
+Bu Khofifah lanjutkan Jawa Timur maju berprestasi
+Bu Khofifah konkret kerjanya untuk rakyat
+Malang dukung 02
+Kampanye berkah ini
+Terima kasih Bu
+Kegiatan penuh berkah
+Semoga amal jariyah-nya terus mengalir
+Kegiatan yang bagus xemoticonx xemoticonx
+Lanjutkan kampanye seperti ini xemoticonx xemoticonx xemoticonx xemoticonx
+Kegiatan yang perlu dilanjutkan dan diteruskan
+Kegiatan yang bermanfaat xemoticonx
+Lanjutkan kegiatan seperti ini Bu
+Apotek tutup tidak ada obat untuk Ibu Khofifah xemoticonx xemoticonx xemoticonx
+Bu Khofifah perbanyak program ini Bu
+Bu Khofifah tulus setia dengan rakyat
+Kampanye berkah xemoticonx
+Semoga diberkahi Tuhan xemoticonx
+Selamat bekerja! Semoga selalu diberi kesehatan dan keberkahan
+Bu Khofifah, keberadaan Anda sangat berarti bagi kita semua. Semoga sukses selalu!
+Semangat, Bu Khofifah! Teruslah berkontribusi untuk masyarakat
+xemoticonx menyala Bunda saya, lanjutkan salam dua periode
+Sikap rendah hati dan perhatian Bu Khofifah kepada para ojek online sungguh luar biasa. Pemimpin yang merakyat! xemoticonx xemoticonx
+Luar biasa! Terus jaga keselamatan dan keamanan masyarakat
+Bu Khofifah orangnya baik, cocok jadi gubernur lagi
+xemoticonx xemoticonx xemoticonx semoga sukses dan dua periode Ibu Khofifah. Salam xemoticonx xemoticonx
+Hanya bisa begini, kapan ada acara seperti relasi begitu?
+Terbaik gubernurku
+Salam hangat untuk para ojek online, semoga selalu diberikan keselamatan dalam bekerja! Terima kasih Ibu atas perhatiannya xemoticonx xemoticonx
+Insyaallah Jawa Timur makin makmur bersama Bu Gubernur
+Semoga segala usaha dan kerja keras Bu Khofifah membuahkan hasil yang terbaik
+Bu Khofifah gubernur Jawa Timur terbaik
+Nganjuk kapan Bu xemoticonx xemoticonx xemoticonx
+Sehat selalu ya Bu Khofifah
+Jawa Timur selalu sejahtera bersama Bu Khofifah
+Semoga dilancarkan terus rezekinya
+Tokoh perempuan kuat yang merepresentasikan kesetaraan gender, Bu Khofifah untuk Jawa Timur yang sejahtera
+Lanjutkan Bu Khofifah, Jawa Timur bisa maju berprestasi karena Anda
+Amin ya rabbal alamin
+Semoga Bu Khofifah menjadi pemimpin Jawa Timur lagi
+Hanya bisa salam saja ya, tidak bisa cari solusi untuk meringankan kerja mereka, haduh pansos saja
+Berpihak ke orang kecil xemoticonx
+Bu Khofifah sosok pemimpin Jawa Timur panutan
+Lanjutkan untuk terus berbagi kebaikan
+Pemimpin rendah hati dan tidak aneh-aneh, menyala Bu Khofifah xemoticonx xemoticonx
+Bu Khofifah pemimpin peduli dengan rakyat
+Bu Khofifah pemimpin dekat langsung dengan pekerja
+Ibu, anak saya merantau ke Surabaya baru saja kehilangan dompet ada surat xemoticonx penting, SIM, KTP, STNK, ATM, juga kartu KIS kerja di WTC Polsekindo atas nama Elena Sobri Dharma Saputra dari Klaten. Apa bisa urus KTP dan SIM juga STNK di Surabaya? Mohon maaf Ibu Khofifah, barusan juga kehilangan HP
+Semoga dilancarkan rezekinya xemoticonx
+Menyala dua periode xemoticonx
+Bu Khofifah pemimpin dekat dengan rakyat kecil
+Khofifah insyaallah menang, beliau bukan kader PDIP
+Makin optimis Khofifah Emil menang lagi
+Lancar dan sehat selalu para tulang punggung keluarga xemoticonx
+Sehat selalu perempuan tangguh
+Dua periode xemoticonx xemoticonx
+Gubernur yang peduli dengan segala kalangan masyarakat
+Sehat selalu Gojek Gojekku
+Alhamdulillah sehat selalu xemoticonx
+Subhanallah, indahnya berbagi xemoticonx xemoticonx xemoticonx xemoticonx
+Amin! Semoga rezeki selalu mengalir deras untuk Bu Khofifah dan tim
+Inspirasi bagi banyak orang! Semoga kegiatan ini membawa dampak positif
+Terima kasih atas dedikasi dan perhatian Bu Khofifah kepada rakyat
+Semangat dalam setiap langkah, Bu Khofifah! Kami mendukung penuh
+Semoga selalu dilindungi dan diberi kemudahan dalam setiap kegiatan
+Buruh penggerak ekonomi negara
+Lancar semua rezekinya
+Mantap, ayah saya kemarin dapat juga
+Keren
+Khofifah dan Emil gubernur dan wakil gubernur sekali lagi
+Semoga selalu menginspirasi
+Punya pemimpin yang down to earth adalah keberuntungan lain
+Masyaallah tiap melihat postingan Ibu saya selalu kagum
+Khofifah pemimpin pro rakyat buruh
+Mantap Bu
+Semoga Bu Khofifah diberi umur panjang
+Pemimpin ideal Jawa Timur ya Bu Khofifah
+Semangat Bapak ojek online
+Bu Khofifah selalu membawa kehangatan
+Sehat selalu pejuang rupiah
+Bu Khofifah ramah sekali
+Bu Khofifah dicintai semua masyarakat
+Mantap nih pasukan ojek online
+Jaga keselamatan terus para Gojek
+Bu Khofifah selalu menjadi pemimpin dambaan
+Tidak ada pembuktian kok mau lanjut dua periode
+Bu Khofifah mensejahterakan rakyatnya
+Tidak perlu dua periode, cukup periode kemarin saja sudah cukup
+Bu Khofifah selalu memberi semangat xemoticonx
+Sudah waktunya ganti pemimpin baru, lima tahun dipimpin Bu Khofifah tidak ada kemajuan apa pun
+Tidak menyelesaikan masalah, kerja memberi bantuan begini terus Jawa Timur bagaimana mau maju
+Semoga selalu banyak rezeki Bapak Ibu
+Tulusnya memberi manfaat bagi masyarakat
+Ya begitu kalau tidak bisa kerja, jadinya cari simpati pakai cara begini
+Cara begini tidak solutif untuk Jawa Timur, ini begini hanya cari simpati
+Luar biasa, Bu Khofifah selalu dekat dengan semua lapisan masyarakat, termasuk para ojek online! xemoticonx xemoticonx
+Senyum dan perhatian Ibu Khofifah kepada para ojek online sangat menginspirasi. Terus semangat para pejuang jalanan! xemoticonx xemoticonx
+Pemimpin yang baik adalah yang mendekatkan diri kepada semua lapisan masyarakat. Ibu Khofifah, Anda terbaik! xemoticonx xemoticonx
+Para pejuang jalanan mendapat apresiasi yang luar biasa dari Bu Khofifah. Semoga mereka makin semangat bekerja! xemoticonx xemoticonx xemoticonx
+Semangat para ojek online yang selalu melayani masyarakat dengan sepenuh hati! Terima kasih Ibu atas perhatiannya xemoticonx xemoticonx
+Kehadiran Bu Khofifah memberikan semangat tersendiri bagi para ojek online. Lanjutkan perjuangan, Ibu! xemoticonx xemoticonx xemoticonx
+Ojek online memang penggerak ekonomi, sehat-sehat masyarakat Jawa Timur mari coblos Bu Khofifah di TPS
+Mantap Ibu, lanjutkan
+Ojek online selalu bersamamu xemoticonx xemoticonx
+Mantap
+Pasti menang xemoticonx xemoticonx
+Mantap xemoticonx xemoticonx xemoticonx xemoticonx
+Menyala sekali xemoticonx
+Menyala
+Pilih yang pasti ada di Bu Risma xemoticonx xemoticonx xemoticonx
+Tetap konsisten dipegang Bu Risma xemoticonx
+Halo, memang kemarin peduli dengan ojek online?
+Sudahi periodenya, tidak akan berkontribusi untuk ke depannya
+Dukungan sementara untuk cari suara, nanti juga sama lagi seperti periode kemarin
+Tidak ada kontribusinya, hanya sementara untuk formalitas media sosial
+Bu Khofifah ya
+Selamat berjuang Bu Khofifah-Emil
+Lanjut dua periode Bu Khofifah
+Tidak perlu lanjut dua periode Anda Bu, cukup satu periode kemarin saja
+Giliran mau pemilu saja turun
+Sudah cukup satu periode saja xemoticonx
+Dari kemarin ke mana saja Bu kok baru sekarang muncul
+Banyak omong-omong tidak ada kerja nyata
+Program dari calon ini apa ya, kok keliling terus tidak tahu jelaskan program
+Karena sangat rendah hati sampai tidak terlihat kerjanya
+Satu periode saja
+Cukup dengan satu periode saja
+Periode kemarin banyak PR, jadi cukup periode saja
+Kegiatan yang harus dilanjutkan xemoticonx
+Sehat selalu
+Tidak berkah, tidak mungkin dua periode ini
+Jangan dipilih Bu Khofifah ini saja lalai dalam mengendalikan keramaian masak ya di SPBU sahabat Bunda jangan terpengaruh
+Ini melakukan apa sih Bu kok di tempat yang tidak seharusnya bahaya lo, pemimpin kok otaknya tidak dipakai
+Aduh kasihan hanya dikasih janji saja
+Hahaha cari muka saja nyatanya
+Cukup satu periode tidak perlu dua periode Bu
+Janji manis saja tidak ada hasilnya
+Dedikasi yang tak kenal lelah dari para dokter patut kita apresiasi. Semangat terus dalam melayani masyarakat xemoticonx xemoticonx
+Selamat hari dokter xemoticonx
+Bangga dengan para dokter yang terus berjuang tanpa henti. Selamat Hari Dokter Nasional! xemoticonx xemoticonx xemoticonx
+Terima kasih para dokter yang telah mengabdi dengan tulus! Semoga selalu diberi kesehatan dan kekuatan xemoticonx xemoticonx
+Dedikasi para dokter sungguh luar biasa. Terima kasih atas pengorbanannya, semoga selalu diberikan keberkahan xemoticonx xemoticonx
+Terima kasih para dokter xemoticonx
+Terima kasih, kesehatan kita jadi prioritas berkat dedikasi para dokter
+Terima kasih Pak Dokter Bu Dokter
+Salut untuk para dokter, terima kasih atas kerja keras dan pelayanannya
+Siapa yang mengidolakan dr. tirta?
+Maju dan sejahtera dokter kita
+Selamat hari dokter, sehat selalu Bu Khofifah
+Dokter selalu menjadi kebutuhan utama masyarakat, selamat hari dokter
+Terima kasih atas dedikasi para dokter
+Banyak sekali dokter yang menjadi influencer saat ini, dan itu membantu sekali
+Terima kasih dokter xemoticonx
+Semoga pelayanan kesehatan makin maju dan merata
+Terima kasih dokter
+Sangat mengapresiasi dedikasi Anda dalam memajukan sektor kesehatan. Semoga sinergitas ini terus terjaga
+Bu dokter dan pak dokter kalian semua mantap
+Boleh cerita tidak sih? Memang aku saja ya yang mengalami suami sering bertanya pada ku tambah kecil semenjak menyusui padahal suami sering memberi uang tambahan untuk perawatan tapi sudah ku coba tidak ada yang berhasil, selain operasi tips apa sih untuk besarkan PD? xemoticonx Sekali ingin menyenangkan suami xemoticonx
+Sukses terus para dokter xemoticonx xemoticonx xemoticonx xemoticonx
+Terima kasih dokter Indonesia, semoga selalu diberi kekuatan dalam menjalankan tugas mulia ini xemoticonx xemoticonx xemoticonx
+Sehat terus dokter-dokter Jawa Timur
+Bu Khofifah terima kasih sudah mengingatkan hari dokter
+Semoga Jawa Timur sehat berprestasi
+Selamat hari dokter untuk seluruh pahlawan kesehatan di Indonesia
+Bu, tolong bikin undang-undang larangan untuk musik horeg karena itu sangat mengganggu sekali
+Dokter kita penyelamat kita
+Alhamdulillah terima kasih Bunda yang selama ini sangat perhatian dan peduli terhadap dokter di Jawa Timur, semoga Bunda sehat selalu dan terus menginspirasi xemoticonx xemoticonx
+Terima kasih semua dokter atas segala pengabdiannya
+Selamat hari dokter nasional xemoticonx xemoticonx
+Khofifah Emil berpihak bersama para tenaga kesehatan
+Selamat Hari Dokter Nasional! Semoga kesehatan dan pelayanan makin merata dan berkualitas xemoticonx xemoticonx
+Selamat Hari Dokter Nasional! Sinergi dan dedikasi kalian sangat berarti untuk negeri ini xemoticonx xemoticonx
+Semangat untuk para dokter! Selamat Hari Dokter Nasional, terus berjuang untuk kesehatan bangsa xemoticonx xemoticonx
+Betul sinergi sektor penting sekali
+Salut untuk dokter-dokter yang rela melayani di daerah-daerah terpencil
+Terima kasih, Bu Khofifah, atas dukungan Anda terhadap para dokter! Semoga kolaborasi ini terus menginspirasi banyak orang
+Bersama dokter Indonesia makin sehat
+Selamat Hari Dokter Nasional! Terus semangat mengabdi dan melayani masyarakat dengan sepenuh hati xemoticonx xemoticonx xemoticonx
+Barakallah, jaya selalu xemoticonx xemoticonx xemoticonx xemoticonx
+Semoga para dokter selalu diberikan kesehatan xemoticonx
+Terima kasih Bu Khofifah xemoticonx xemoticonx
+Selamat Hari Dokter Nasional! Dukungan Anda sangat berarti bagi tenaga medis dan masyarakat
+Dokter kita selamatkan banyak manusia
+Setuju! Kerja sama antara dokter dan sektor lainnya sangat penting untuk kesehatan yang lebih baik
+Kerja keras dokter patut diapresiasi xemoticonx
+Untuk masa depan kesehatan yang lebih baik
+Bu Khofifah, visi Anda untuk meningkatkan kualitas layanan kesehatan sangat menginspirasi. Terima kasih
+Salam dua jari
+Kami mendukung penuh langkah Anda untuk menjangkau layanan kesehatan yang lebih merata. Semangat terus
+Bismillah menang Bu
+Berkat dedikasi Anda, pelayanan kesehatan di Indonesia makin baik. Selamat Hari Dokter Nasional
+Sinergi ini pastinya akan membawa perubahan positif. Terima kasih telah memperjuangkan kesehatan masyarakat
+Semangat Anda dalam mengabdi membuat kami semua optimis akan masa depan kesehatan Indonesia
+Selamat untuk semua dokter! Dukungan Bu Khofifah sangat berarti untuk perjalanan pelayanan kesehatan yang lebih baik
+Bu Khofifah pemimpin yang selalu ingat semua kalangan profesi rakyatnya
+Dokter kita penyelamat rakyat
+Terima kasih Bu Khofifah atas dukungan luar biasa untuk tenaga medis
+Terima kasih dan terus semangat dokter xemoticonx
+Selalu mendukung para tenaga kesehatan
+Selamat hari dokter, terima kasih atas usahanya
+Mari kita jaga kesehatan itu juga bagian dari membantu dokter kita
+Selamat hari dokter Ibu xemoticonx xemoticonx xemoticonx
+Selamat hari dokter Bu Khofifah xemoticonx xemoticonx xemoticonx
+Saya ucapkan selamat hari dokter untuk Jawa Timur dan semua xemoticonx
+Selamat hari dokter Bu
+Selamat hari dokter
+Semoga Jawa Timur selalu tersedia dokter-dokter hebat
+Semoga selalu dalam keberkahan Bu Khofifah
+Selamat hari dokter untuk dokter Indonesia
+Semoga Bu Khofifah selalu membuat program khusus dokter
+Keren dedikasi dokter di Indonesia
+Selamat hari dokter nasional untuk para dokter yang selalu berjuang
+Para dokter yang selalu mengorbankan waktunya
+Hormat untuk para dokter
+Semoga Jawa Timur tambah banyak dokter
+xemoticonx semangat Bu sehat selalu
+Selamat hari dokter untuk dokter xemoticonx di Indonesia
+Untuk Bu Khofifah tetap semangat xemoticonx xemoticonx
+Semoga dokter semakin makmur
+Selamat hari dokter xemoticonx
+Semoga masyarakat tetap sehat
+Selamat hari dokter nasional xemoticonx xemoticonx
+Selamat hari dokter nasional, bersama Ibu Khofifah kita bisa
+Sehat-sehat untuk anakku yang jadi dokter muda xemoticonx
+Bukti kecintaan Bunda Khofifah kepada masyarakat begitu besar, hingga kita sebagai masyarakat wajib terus dukung beliau untuk memimpin kembali xemoticonx
+Momen bahagia untuk semuanya
+Amin, semoga para ibu selalu diberi kekuatan dan kesabaran untuk terus berjuang demi keluarga
+Masyaallah terharu sekali melihatnya xemoticonx xemoticonx xemoticonx
+Terima kasih Ibu sudah berjuang demi keluarga
+Semoga Allah selalu menjaga mereka, memudahkan segala urusan mereka
+Doa yang indah untuk para ibu hebat
+Para ibu mendapatkan balasan terbaik dari Allah
+Semoga para ibu selalu diberkahi dan dimudahkan
+Pelukan hangat dari seorang pemimpin yang sayang rakyatnya
+Semoga buruh tulang punggung ekonomi Jawa Timur semakin makmur
+Bu Khofifah selalu ada untuk semua rakyat
+Maju terus Bu Khofifah xemoticonx
+Selalu merangkul masyarakatnya, salut dan hormat untuk Bu Khofifah xemoticonx xemoticonx
+Bersih-bersih Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Terbaik memang Bu Khofifah xemoticonx xemoticonx xemoticonx
+Amin ya Allah ya rabbal alamin, semoga keberkahan selalu menyertai kita semua, alhamdulillah
+Memang paling merakyat Bu Khofifah ini
+Lihatlah ketulusan itu xemoticonx
+Terima kasih Bunda Khofifah yang selalu hadir untuk mendengarkan aspirasi masyarakat xemoticonx
+Bu Khofifah sang bunda bangsa
+Memang panutan xemoticonx xemoticonx xemoticonx xemoticonx
+Jawa Timur tidak butuh drama manis tapi bu butuh kerja nyata
+Minta kaos 02 dipersulit harus ada izin orang dalam, bagaimana bisa menang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Semoga Jawa Timur pemimpinnya baru agar lebih baik
+Memang benar kata orang Ibu Khofifah selalu mengerti akan keluh kesah masyarakat. Lanjutkan Bunda untuk meraih Jawa Timur yang lebih sejahtera xemoticonx
+Seorang pemimpin cerdas berkualitas dan santun akan selalu berada di tengah-tengah rakyatnya tanpa membedakan suku mana maupun agamanya apa, pemimpin yang berintegritas mampu menjawab kebutuhan rakyatnya dengan selalu mengedepankan tut wuri handayani
+Halo, selama ini ke mana saja Bu
+Dukungan pemimpin seperti Bu Khofifah layak diapresiasi
+Terima kasih Ibu xmentionx yang telah menjadi bundanya Jawa Timur xemoticonx xemoticonx
+Masyaallah berkah
+Kita bahu membahu saling membantu
+Momen menyentuh hubungan antara pemimpin dan warganya. Salam sehat untuk semuanya
+Dekap penuh cinta xemoticonx xemoticonx xemoticonx
+Kepedulian Bu Khofifah terhadap buruh Jawa Timur xemoticonx xemoticonx
+Luar biasa Bu Khofifah, selalu ada untuk rakyat. Semoga terus maju dan membawa kebaikan untuk Jawa Timur
+Kerja pakai hati, bukan emosi
+Mantap Bunda
+Amin allahumma amin
+Sehat-sehat pejuang keluarga, doa dan harapan kita bergantung kepada Bunda Khofifah agar membawa Jawa Timur semakin sejahtera
+Semoga Allah memberikan rezeki yang berlimpah
+Kasih ibu sepanjang masa xemoticonx xemoticonx xemoticonx xemoticonx
+Sehat selalu para ibu pejuang kesejahteraan untuk keluarga
+Ya Allah, subhanallah semoga Ibu sehat-sehat dan selalu diberi keberkahan atas segalanya, amin ya Allah ya rabbal alamin
+Tidak ada yang bisa menggantikan cinta dan pengorbanan seorang ibu. Semoga xemoticonx selalu dalam lindungan Allah
+Memang penampakan sosok pemimpin yang dicintai warga dan masyarakat. Tidak ada yang disimulasikan, mengalir layaknya air. Salam sehat selalu Bu Khofifah
+Tidak diragukan lagi kasih sayang masyarakat untuk Ibu Khofifah begitu besar, lanjutkan Bunda untuk memimpin Jawa Timur semakin maju dan sejahtera xemoticonx
+Luar biasa perhatian pemimpin kepada warganya. Bravo Bu Khofifah
+Minta kaos 02 dipersulit harus ada izin orang dalam xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Momen seperti ini yang saya banggakan, Ibu Khofifah selalu hadir untuk sandaran masyarakat
+Melihat dan apalagi mendekap mereka, itu sudah sangat mereka merasa diperhatikan apalagi bisa memberikan yang terbaik untuk rakyat dan negeri ini, itu sudah sangat luar biasa, sehat dan semangat selalu Ibu Gubernurku xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Terima kasih Ibu Khofifah, kita percaya Jawa Timur semakin maju dan sejahtera di tangan Khofifah-Emil xemoticonx
+Pelukan yang penuh hangat dari sosok Ibu Khofifah, menandakan Jawa Timur semakin sejahtera
+Doa dan harapan dari masyarakat begitu besar untuk Ibu Khofifah agar memimpin kembali Jawa Timur yang semakin maju dan sejahtera
+Semoga keberkahan selalu mengalir untuk masyarakat dan Ibu Khofifah-Emil. Terima kasih Bunda yang selalu hadir untuk masyarakat xemoticonx
+Selalu hadir untuk rakyat xemoticonx xemoticonx
+Sikap peduli pemimpin terhadap warganya ya seperti ini. Salam sehat Bu Khofifah
+Momen sangat langka dan menyentuh hati, rasa perhatian seorang pemimpin kepada warganya. Bravo Bu Khofifah
+Hubungan antara pemimpin dan warganya, tanpa sekat dan jarak. Mantap jiwa
+Pelukan hangat tanpa rekayasa dari seorang pemimpin kepada warganya
+Gubernurku memang paling menyejukkan vibesnya
+Dekapan hangat dari seorang pemimpin kepada warganya yang menjadi buruh. Luar biasa sekali
+Bu Gubernur xemoticonx xemoticonx
+Doa tulus dari warga Jawa Timur xemoticonx
+Dekapan hangat dari seorang pemimpin yang dicintai warga dan masyarakat. Luar biasa
+Semoga dilancarkan segala urusannya Bu
+Luar biasa masyaallah terima kasih Bu Khofifah
+Tangisan tulus penuh cita
+Langkah menuju kemenangan xemoticonx xemoticonx xemoticonx xemoticonx
+Gas pol Bu Khofifah
+Bismillah dua periode
+Ketulusan terpancar dari hati, khalifah di bumi Allah siap berjuang untuk kemakmuran rakyatnya, semoga dimudahkan Allah dalam setiap langkah beliau, amin amin ya rabbal alamin
+Penuh cinta
+Hangat sekali
+Jadi ingat ibu di rumah
+Sehat-sehat Bu Khofifah xemoticonx xemoticonx xemoticonx
+Kekuatan seorang ibu bukan hanya di rumah, tapi juga di lapangan. Kita berjuang untuk masa depan yang lebih baik
+Setiap usaha yang kita lakukan adalah langkah menuju impian. Ibu-ibu pejuang, kita tidak sendiri
+Di balik setiap kesuksesan, ada ibu yang bekerja keras. Mari kita rayakan perjuangan kita
+Bukan hanya mencukupi kebutuhan, tapi juga membangun masa depan. Ibu pejuang, kita luar biasa
+Kemandirian adalah kunci. Ibu-ibu hebat
+Menjadi ibu dan pejuang ekonomi bukanlah hal yang mudah, tapi setiap langkah adalah cerita yang berharga
+Mimpi besar dimulai dari kerja keras kecil. Ibu-ibu, kita adalah inspirasi bagi generasi selanjutnya
+Setiap detik berharga untuk mencapai impian. Ibu-ibu, jangan pernah menyerah
+Kekuatan ibu terletak pada ketekunan dan semangat tak kenal lelah. Bersama kita bisa
+Mewujudkan impian keluarga adalah alasan kita berjuang. Untuk semua ibu pejuang, teruslah bersinar
+Ibunya anak Jawa Timur xemoticonx xemoticonx
+Sosok pemimpin yang sangat diidamkan xemoticonx xemoticonx xemoticonx
+Terharu, melihat kedekatan Bu Khofifah dan masyarakat Jawa Timur xemoticonx
+Mulia sekali Bu Khofifah, saya ikut kagum melihatnya xemoticonx
+Tidak tahu mengapa kalau melihat sosok Ibu xemoticonx sehat xemoticonx ibuk Indonesia xemoticonx xemoticonx
+Momen bahagia untuk kita semua xemoticonx
+Tuban hadir Bu Khofifah dukung jenengan xemoticonx
+Bu Khofifah pasti didukung penuh rakyat Jawa Timur
+Semua kalangan elemen masyarakat dukung Bu Khofifah
+Semoga berkah selalu
+Ibu xemoticonx
+Ibu Khofifah sosok yang selalu inspiratif
+Bu Khofifah semoga dimudahkan segala urusannya
+Ibuk xemoticonx kulo nderek mbrebes mili
+Tetap Bu Khofifah xemoticonx
+Menyentuh semua lapisan masyarakat, sehat selalu para ibu pejuang. Semoga rezekinya lancar. Bu Khofifah semoga menang
+Turut merasakan kebahagiaan yang sama Bu. Sehat terus, panjang umur. Pemimpin yang paling ramah Bu Khofifah dan Mas Emil
+Saksi bukti cintanya kepada rakyat. Jawa Timur sangat beruntung memiliki pemimpin yang selalu turun ke bawah melihat kondisi bagaimana rakyatnya. Bu Khofifah dan Mas Emil
+Bukti cinta pada rakyat. Jawa Timur beruntung ada Bu Khofifah dan Kang Emil yang selalu membantu rakyat yang pada susah
+Bersama ibu-ibu hebat. Maju terus Jawa Timur. Pemimpin yang selalu membersamai rakyatnya, Khofifah Emil
+Mbak ya dari dulu seperti gini, mengapa harus mendekati pemilihan umum dulu
+Ih gini sekali cari muka Bu
+Mengapa baru sekarang turunnya kemarin xemoticonx Waktu menjabat kok tidak gini xemoticonx
+Momen langka dari Bu Khofifah yang biasa terlihat hanya ketika kampanye karena waktu menjabat entah ke mana
+Bu Khofifah main perasaan ketika kampanye, waktu menjabat entah ke mana
+Lewat dulu lah, mau cari pemimpin yang bawa perubahan baik
+Momen gini waktu kampanye saja aku yakin, waktu menjabat entah ke mana
+Bohong saja Bu Khofifah ini, sudah waktunya ganti pemimpin
+Terisak tangis bahagia melihat Ibu memeluk para pejuang ekonomi keluarga. Kami sayang Ibu xemoticonx xemoticonx
+Pelukan erat yang tulus dari Ibu Khofifah bukti bahwa Ibu sangat sayang dengan mereka. Dan siap menjadi garda terdepan untuk memperjuangkan hak-hak mereka
+Tersentuh hati saya Bu, Ibu memang the real mother untuk para pekerja. Solid bersama Ibu Jawa Timur sejahtera
+Doa xemoticonx terbaik untuk Ibu. xemoticonx Ya Allah, jadikanlah orang terbaik seperti Bu Khofifah sebagai pemimpin kami. Jangan Engkau berikan kekuasaan itu pada orang yang jahat dari kami
+Geser ke Bakol Ijo dong, kemarin habis menang
+Sehat-sehat selalu para perempuan yang menanggung beban ekonomi keluarga xemoticonx
+Berikan solusi dong bukan hanya didatangi saja tapi tidak ada solusi
+Solusi untuk para buruh agar sejahtera ada tidak
+Jangan hanya datang untuk cari suara saja, selama ini buruh tidak pernah diperhatikan
+Semangat, Bu Khofifah! Ibu-ibu pejuang ekonomi sangat terinspirasi oleh dedikasi dan kepemimpinan Ibu
+Doa dan harapan untuk kesehatan dan kesejahteraan Ibu. Teruslah menjadi inspirasi bagi kami semua
+Semoga segala usaha Ibu dalam memperjuangkan kesejahteraan para ibu di luar sana mendapatkan balasan yang berlimpah
+Berkah dan kebahagiaan untuk Bu Khofifah! Ibu telah banyak berkontribusi dalam meningkatkan kesejahteraan keluarga
+Terima kasih telah menjadi sosok panutan bagi ibu-ibu di Indonesia. Semoga selalu diberikan kesehatan dan kebahagiaan
+Keberanian dan ketulusan Ibu dalam memperjuangkan ekonomi keluarga patut dicontoh. Semoga terus sukses
+Semoga semangat dan dedikasi Ibu memotivasi lebih banyak ibu untuk menjadi pejuang ekonomi keluarga
+Ibu Khofifah, terima kasih atas segala usaha dan perhatian untuk kesejahteraan kita. Semoga Allah selalu melindungi Ibu
+Salam hormat untuk Bu Khofifah! Kebaikan dan perhatian Ibu terhadap para ibu pejuang sangat berarti bagi kami
+Pemimpin seperti Bu Khofifah itu pemimpin yang kokoh imannya, mulia akhlaknya, dan istikamah ibadahnya. Sehat-sehat ya Bu
+Berikan solusi dong Bu bukan hanya didatangi tapi tidak ada solusi
+Kasih sayang yang tulus dari Ibu membuat mereka tambah percaya kalau Ibu pemimpin terbaik sepanjang masa. Teringat ucapan Bong Chandra, xemoticonx Tugas pemimpin bukan untuk membuat pengikutnya mengerti, tapi untuk membuat pengikutnya percaya xemoticonx
+Berikan solusi dong Bu, bukan hanya didatangi tapi tidak ada solusi xemoticonx
+Terharu dengan kedekatan rakyat beliau
+Butuh solusi Bu, bukan hanya didatangi tapi ujung-ujungnya tidak ada solusi xemoticonx
+Sangat manis sekali Bu. Asli aku terenyuh melihat ini. Sehat-sehat ya Bu, semoga Ibu kembali memimpin Jawa Timur. Amin
+Momen yang penuh haru, Ibu begitu inspiratif! Semoga sehat selalu dan kembali memimpin Jawa Timur dengan penuh kebijaksanaan
+Semangat Ibu tak pernah padam, sehat-sehat ya Bu! Kami semua mendukungmu untuk terus membawa perubahan di Jawa Timur
+Terima kasih Bu Khofifah, atas perhatian dan kepeduliannya kepada mereka yang membutuhkan. Bangga punya pemimpin seperti Ibu
+Bangga sekali melihat Bu Khofifah selalu peduli dengan rakyatnya. Terima kasih Bu, semoga terus diberi kekuatan memimpin
+Terima kasih Bu Khofifah atas kepeduliannya pada mereka yang membutuhkan. Pemimpin yang tulus dan penuh cinta
+Salut Bu Khofifah! Pemimpin yang tak pernah lelah memperhatikan rakyat. Semoga terus sukses dan maju
+Bangga melihat Bu Khofifah yang selalu ada untuk rakyat. Terima kasih Bu, semoga Jawa Timur makin maju di bawah kepemimpinanmu
+Hangat sekali pelukan Bu Khofifah
+Terharu sekali Bu Khofifah
+Ikut terharu Bu
+Hangat sekali pelukan Bu Khofifah
+Hangat sekali itu
+Hangat sekali rasa haru terkumpul menjadi satu
+Bu ke Situbondo dong Bu xemoticonx xemoticonx xemoticonx xemoticonx
+Pilih nomor 02 mau jadi apa Jawa Timur kalau pilih Bu Khofifah yang ada makin hancur Jawa Timur ini
+Program kamu kurang hasil Bu di rakyat yang ada rakyat kena imbas janji manis kamu
+Program kerja kamu itu tidak ada yang hasil di warga Jawa Timur Bu jadi tidak usah lanjut dua periode
+Ibu kita semua warga Jawa Timur xemoticonx xemoticonx xemoticonx
+Bu Khofifah selalu di hati xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx semangat dan sehat selalu Bunda Khofifah, curahkan kasih sayangmu dalam pengabdian
+Sehat xemoticonx untuk para ibu sedunia xemoticonx xemoticonx xemoticonx
+Kenaikan gaji buruh kecil sekali Bu, contoh nomor Pak Karwo, kenaikan 100 xemoticonx untuk karyawan swasta
+Ganti saja deh
+Masyarakat begitu sayang denganmu Bu xemoticonx xemoticonx
+Sehat selalu xemoticonx xemoticonx
+Ya Allah banyak yang sayang Bu Khofifah xemoticonx xemoticonx xemoticonx
+Semoga Bu Khofifah jadi gubernur Jawa Timur lagi
+Banyak yang sayang Bu Khofifah xemoticonx xemoticonx xemoticonx
+Lanjut Bunda jilid dua xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Omong kosong Bu tidak ada bukti nyata
+Banyak omong-omong saja
+Telat Bu kalau baru turun sekarang
+Semoga Bu Khofifah jadi gubernur lagi
+Sangat manis sekali Bunda xemoticonx sehat-sehat ya Bunda sayang semoga menang lagi xemoticonx
+Waduh Bu mending kamu fokus ke depan Jawa Timur dibuat apa
+Kemarin ke mana saja
+Kemarin ke mana saja Bu
+Pembuktian hanya cukup dengan satu periode saja
+Semoga cukup dengan satu periode saja
+Ibu yang tidak pernah marah-marah
+Cari muka saja ke masyarakat dekat pemilihan kepala daerah
+Baru turun ke masyarakat rek
+Dekat pemilihan kepala daerah baru gerak ke masyarakat
+Tolong cari muka sih ini xemoticonx
+Halah selama ini kemana saja bu xemoticonx xemoticonx
+Pintar kalau waktunya cari muka xemoticonx xemoticonx xemoticonx
+Srikandi-srikandi Indonesia, salam Kopipahitz
+Sedih tapi lebih sedih kalau dipegang Bu Khofifah lagi
+Bu Khofifah, Anda memang pemimpin yang peduli! Teruskan program-program ini
+Kegiatan yang positif dari relawan Bolo Khofifah! Semoga terus kompak dan diberkahi xemoticonx xemoticonx
+Selalu dicintai rakyatnya
+Warga Tanjung Perak absennya xemoticonx
+Program ngopi gratis ini menunjukkan perhatian Bu Khofifah terhadap masyarakat. Luar biasa
+Terima kasih atas inisiatif ngopi gratis ini, semoga selalu kompak dan solid xemoticonx xemoticonx
+Salut untuk relawan Bolo Khofifah dan keluarga besar Bugis-Makassar! Tetap semangat bersama xemoticonx xemoticonx
+Sederhana tetapi sangat menyentuh
+Lanjutkan Bu xemoticonx xemoticonx
+Terima kasih kepada Bu Khofifah yang selalu mendukung inisiatif positif seperti ini
+Keren sekali, relawan Bolo Khofifah selalu kompak dan menginspirasi! Terima kasih mengopi gratisnya xemoticonx xemoticonx
+Salam Jawa Timur Maju Berprestasi
+Di mana pun tempatnya, warga pasti menyambutnya
+Khofifah idolaku
+Keren para relawan
+Keren relawan-relawan ini
+Lanjutkan hal yang bermanfaat bagi masyarakat xemoticonx
+Kopi gratis kawan
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM. BAGAIMANA BISA MENANG xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Kawal bersama menuju dua periode
+Ya ini gubernurku
+Gas penuh
+Terima kasih untuk mengopi gratisnya! Semoga selalu diberi keberkahan dan semangat xemoticonx xemoticonx
+Surabaya dukung penuh Khofifah Emil
+Gas pilih nomor dua
+Semangat terus relawan! Terima kasih sudah berbagi kebaikan di Tanjung Perak xemoticonx xemoticonx
+Luar biasa Bolo Khofifah! Mengopi sambil mempererat kebersamaan, sukses terus xemoticonx xemoticonx
+PERCUMA MILIH 02 MINTA KAOS SAJA DIPERSULIT HARUS ADA ORANG DALAM
+Pak Ramly bersahaja sekali xemoticonx
+Bangga melihat relawan selalu hadir dengan semangat berbagi! Terima kasih Bolo Khofifah xemoticonx xemoticonx
+Sungguh menginspirasi melihat relawan Bolo Khofifah berkontribusi dalam kebersamaan
+Mengopi bersama di Teluk Betung, semoga terus kompak dan sukses selalu untuk relawan! xemoticonx xemoticonx
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM, BAGAIMANA BISA MENANG xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM, BAGAIMANA BISA MENANG xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Lanjutkan sekali lagi xemoticonx xemoticonx
+Semua memilih Khofifah
+Ibu terbaik masyarakat Jawa Timur
+Terima kasih, Bu Khofifah, atas dukungan dan semangatnya! Inisiatif mengopi gratis ini benar-benar mempererat kebersamaan di komunitas kita
+Luar biasa, Bu Khofifah! Kegiatan mengopi gratis ini tidak hanya memanjakan lidah, tetapi juga menguatkan tali silaturahmi antar warga
+Kami sangat menghargai perhatian Bu Khofifah terhadap komunitas. Mengopi gratis ini membuat suasana makin hangat dan akrab
+Sangat menginspirasi, Bu Khofifah! Inisiatif ini menunjukkan betapa pedulinya Ibu terhadap kesejahteraan masyarakat
+Mengopi gratis di bawah bimbingan Bu Khofifah adalah momen yang menyenangkan! Semoga makin banyak kegiatan positif seperti ini
+Terima kasih, Bu Khofifah, untuk semua yang telah dilakukan! Mengopi gratis ini adalah cara yang luar biasa untuk memperkuat komunitas Bugis-Makassar
+Barakallah semoga Allah SWT selalu memberikan kesehatan kepada kita semua
+Relawan bu Khofifah bukan main kontribusinya
+Tim pemenangan bu Khofifah orang-orang tulus
+Menyala Bu xemoticonx
+Tim bu Khofifah baik semua
+Bu Khofifah didukung semua masyarakat
+Abu Khofifah dan tim semoga diberkahi selalu
+Bu Khofifah lanjutkan
+Mantap timnya bu Khofifah
+Tim bu Khofifah solid dan proaktif
+xmentionx mengopi ya
+Adem sekali bu gubernur kebanggaan saya xemoticonx
+Subhanallah Ibu adem melihatnya
+Sekeren ini xemoticonx xemoticonx
+Mengopi dulu xemoticonx xemoticonx
+Wah bu Khofifah
+Enak sekali mengopi
+Dekat sekali bu Khofifah dengan masyarakatnya
+Ya ini relawan bu Khofifah sejati xemoticonx
+Begitu sederhana sosok bu Khofifah
+Relawan oke sekali
+Sudah nomor dua
+Kopinya enak sepertinya ya bu
+Relawan bu Khofifah sama baik semua xemoticonx
+Gas mengopi
+Pilih nomor dua pasti sejahtera
+Mantap nih bu Khofifah
+Terima kasih atas dukungannya bolo
+Tetap di jalan 02 xemoticonx xemoticonx
+Bolo-nya Khofifah mantap
+Semoga tetap guyub rukun dan kompak
+Makin kuat dukungan 02 xemoticonx xemoticonx xemoticonx xemoticonx
+Makin kuat barisan 02
+Yakin optimis menang xemoticonx xemoticonx
+Makin kuat luar
+Wah waktunya dua periode
+Entah mengapa selalu adem tiap melihat senyum bu Khofifah, sehat selalu bu
+Panutan sekali sih Bu Khofifah, selalu inspiratif xemoticonx
+Sungguh acara yang luar biasa! Hari Santri Nasional ini begitu bermakna dengan zikir, doa, dan hataman Quran yang penuh keikhlasan. Semoga PAC Muslimat NU Taman selalu dilimpahi keberkahan dan semua hajat kita dikabulkan Allah SWT. Amin! xemoticonx xemoticonx
+Semoga keberkahan selalu menyertai kegiatan rutin zikir dan salawat. Terima kasih atas inspirasinya Bu Khofifah! xemoticonx
+Respect bu, selalu hadir di acara penting xemoticonx
+Acara yang sangat menyentuh dan penuh keberkahan. Semoga hajat kita dikabulkan Allah SWT. Amin xemoticonx
+Suasananya adem sekali, insyaallah berkah
+Selalu hadir di padatnya kegiatan ibu xemoticonx
+Masyaallah, semoga berkah selalu Bu
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx salam diajari semoga sukses ibu Khofifah dan pak Emil Dardak xemoticonx xemoticonx xemoticonx
+Bu Khofifah sehat-sehat ya
+Momen Peringatan Hari Santri Nasional bersama Muslimat NU benar-benar menggetarkan hati. Semoga segala doa yang dilantunkan selama acara ini dikabulkan oleh Allah SWT. Terima kasih kepada para panitia dan semua yang terlibat. Mari terus menjaga semangat zikir, doa, dan salawat ini. Amin xemoticonx xemoticonx
+Terima kasih Bu Khofifah atas kehadirannya. Semoga acara ini membawa berkah untuk kita semua. Amin xemoticonx
+Selamat hari santri ibu Khofifah xemoticonx
+Acara yang sangat berkah xemoticonx
+Acara zikir dan doa bersama dalam rangka Hari Santri Nasional ini membawa ketenangan yang luar biasa. Semoga semua amal kita diterima oleh Allah SWT, dan setiap hajat kita dikabulkan. Terima kasih PAC Muslimat NU Taman atas acaranya yang penuh berkah ini xemoticonx xemoticonx
+Semoga para santri selalu dalam lindungan Allah xemoticonx xemoticonx
+xemoticonx xemoticonx Ibu
+Makin dekat dengan Allah
+Semoga doa semua dikabulkan
+Semoga doa kita semua dikabulkan oleh Allah SWT
+Salut sih bu Khofifah masih aktif di rutinan, dekat dengan masyarakat, terbaik bu Khofifah
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM, BAGAIMANA BISA MENANG xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bu Khofifah sosok pemimpin peduli umat
+Bu Khofifah pasti didukung warga NU
+Bu Khofifah benar-benar seperti santri aktif dalam acara rutinan islam, mampu menyempatkan waktu yang sangat sibuk untuk mendatangi acara ini
+Bu Khofifah menunjukkan dirinya seorang yang dekat dengan rakyat
+Barakallah, semoga zikir dan salawat ini membawa keberkahan bagi Jawa Timur dan seluruh masyarakat xemoticonx
+Masyaallah berkah sekali! Santri, salawat, Quran, komplit
+Semoga acara zikir dan doa ini menjadi penyemangat bagi kita semua. Terima kasih telah hadir, Ibu Khofifah! xemoticonx
+Menyempatkan ke acara hari santri, tidak punya capai sepertinya ini bu Khofifah
+Kaum santri takkan pernah terlepas dari Provinsi Jawa Timur maka tidak mengherankan jika pemimpin Jawa Timur adalah ia yang mampu merawat kondisi ini, itu semua tercerminkan dari sosok Bu Khofifah
+Acara yang penuh berkah
+Selalu menginspirasi dengan kegiatan yang penuh kebaikan. Semoga semua doa kita dikabulkan. Amin xemoticonx
+Acara Hari Santri Nasional kali ini sungguh penuh berkah. Hataman Quran, zikir, dan salawat bersama menambah kekhidmatan acara. Terima kasih kepada PAC Muslimat NU Taman yang telah menjaga semangat keagamaan ini. Semoga semua doa kita dikabulkan oleh Allah SWT. Amin! xemoticonx xemoticonx xemoticonx
+Alhamdulillah, menghadiri Peringatan Hari Santri Nasional di Sidoarjo benar-benar membawa kedamaian tersendiri. Rutinan zikir, doa, salawat, dan hataman Quran yang diselenggarakan PAC Muslimat NU Taman sangat menginspirasi. Semoga Allah SWT mengabulkan segala doa dan hajat kita semua. Amin ya rabbal alamin! xemoticonx xemoticonx
+Respect dengan bu Khofifah xemoticonx
+Santri vibes! Semoga kita semua diberkahi ya bu, amin
+Acara yang penuh dengan ketenangan dan keberkahan. Semoga Allah senantiasa melimpahkan rahmat-Nya. Amin xemoticonx
+Suasana penuh berkah dan khidmat menyelimuti acara Peringatan Hari Santri Nasional ini. Terima kasih kepada PAC Muslimat NU Taman yang telah menyelenggarakan kegiatan mulia ini. Semoga zikir, salawat, dan hataman Quran yang rutin dilakukan membawa keberkahan bagi kita semua dan segala hajat kita dikabulkan oleh Allah SWT. Amin xemoticonx xemoticonx
+Masyaallah bu Khofifah keren deh, di masa-masa kampanye masih bisa menghadiri acara-acara rutinan
+Masyaallah semoga dengan zikir semua hajat kita terkabul
+Makin cinta deh dengan acara-acara keagamaan seperti ini, berkah untuk kita semua
+Keren sekali sih ini, suasana acara keagamaan bikin hati adem xemoticonx
+Luar biasa Ibu Khofifah, selalu dekat dengan masyarakat dan penuh doa. Semoga semua hajat kita dikabulkan Allah. Amin xemoticonx
+Keren sekali Bu Khofifah! Semoga kita semua dilancarkan urusannya
+Inspiratif sekali bu, semoga makin banyak kegiatan positif seperti ini xemoticonx
+Pemimpin yang memberikan berkah juga untuk rakyatnya. Terima kasih ibu gubernur, teladan kami semua xemoticonx
+Luar biasa hataman Al Quran bikin hati adem
+Bangilan hadir dukung Khofifah
+Saya harap Bu Khofifah peduli dengan umat
+Selamat hari santri semoga ke depannya santri makin maju
+Bu Khofifah saya rasa pemimpin yang sayang rakyatnya
+Mantap
+Khofifah pemimpin peduli dengan rakyat
+Bu Khofifah semoga lancar selalu rezeki dan urusannya
+Bangga jadi santri
+Selamat Hari Santri! Semoga santri Indonesia terus memberikan inspirasi dan kontribusi terbaik untuk negeri
+Hari Santri adalah bukti nyata bahwa peran santri begitu penting dalam perjalanan bangsa ini
+Selamat Hari Santri! Teruslah menjadi penerang di tengah kegelapan dengan ilmu dan akhlak mulia
+Hari Santri bukan hanya tentang santri, tetapi tentang semangat juang, ketulusan, dan cinta tanah air
+Santri selalu menjadi teladan dalam kehidupan beragama dan bermasyarakat. Selamat Hari Santri Nasional
+Selamat Hari Santri! Jadilah santri yang kuat dalam ilmu dan mulia dalam akhlak
+Hari Santri adalah hari di mana semangat kebersamaan, toleransi, dan pengabdian diperingati
+Santri adalah penjaga akhlak dan moral bangsa. Selamat Hari Santri untuk semua santri di seluruh Indonesia
+Selamat Hari Santri! Mari bersama menjaga semangat keislaman dan kebangsaan yang diwariskan para santri
+Hari Santri adalah momen untuk bersyukur atas dedikasi santri dalam menjaga dan membangun bangsa
+Selamat Hari Santri! Semoga semangat juang para santri tetap hidup dan menjadi inspirasi bagi generasi muda
+Santri bukan hanya pembelajar agama, tetapi juga pahlawan bangsa. Selamat Hari Santri
+Hari Santri mengingatkan kita akan dedikasi santri dalam menjaga persatuan dan kemajuan bangsa
+Santri adalah bagian penting dari sejarah bangsa. Selamat Hari Santri, semoga terus berkarya untuk negeri
+Selamat Hari Santri! Teruslah menjadi teladan dalam menegakkan akhlak dan mencintai bangsa
+Hari Santri adalah bukti bahwa santri selalu ada di garda terdepan dalam menjaga keutuhan bangsa
+Selamat Hari Santri! Semoga santri Indonesia selalu istikamah dalam menjaga nilai-nilai Islam dan cinta tanah air
+Santri adalah pelopor pendidikan karakter bangsa. Selamat Hari Santri, teruslah menginspirasi
+Hari Santri, momen untuk mengenang dan menghargai perjuangan santri dalam menjaga agama dan tanah air
+Selamat Hari Santri Nasional! Santri bukan hanya pembelajar, tetapi juga pejuang nilai-nilai keislaman dan kebangsaan
+Suasana bu xemoticonx xemoticonx xemoticonx xemoticonx
+Ya ini gubernurku
+Ibu yang sesungguhnya para santri xemoticonx xemoticonx
+Sidoarjo hadir Bu xemoticonx xemoticonx
+Pemimpin idaman umat ya begini
+Masyaallah, semoga setiap langkah dan doa selalu mendapat rida-Nya. Terima kasih Bu Khofifah! xemoticonx
+Semoga semangat juang santri selalu menjadi inspirasi bangsa
+Merasa sangat terhormat bisa hadir dalam Peringatan Hari Santri Nasional yang penuh dengan zikir dan doa. Semoga setiap ayat yang dibaca dan setiap doa yang dipanjatkan membawa kita semua lebih dekat kepada Allah SWT, serta segala hajat dikabulkan-Nya. Amin ya rabb xemoticonx xemoticonx
+Zikir, salawat, dan hataman Quran pada Hari Santri Nasional ini begitu menyentuh hati. Alhamdulillah, semoga semua yang hadir mendapatkan berkah dari kegiatan ini dan hajat-hajat kita dikabulkan oleh Allah SWT. Terima kasih PAC Muslimat NU Taman atas acara yang luar biasa ini! xemoticonx xemoticonx xemoticonx
+Bu Khofifah, semangat dan dedikasi Anda dalam mendukung Hari Santri sangat menginspirasi! Terima kasih atas komitmennya
+Sungguh luar biasa melihat Bu Khofifah hadir dalam acara ini. Semoga semua hajat kita terkabul
+Pengabdian Bu Khofifah kepada masyarakat dan agama patut dicontoh. Terima kasih atas semua yang telah dilakukan!
+Semoga santri terus membawa perubahan positif bagi bangsa
+Acara yang sangat bermakna! Terima kasih, Bu Khofifah, telah memimpin dengan teladan
+Doa dan zikir yang rutin adalah bagian penting dari kehidupan. Terima kasih, Bu Khofifah, telah mengingatkan kita semua
+Bu Khofifah, kehadiran Anda menambah khidmat acara ini. Semoga Allah SWT selalu memberkati langkah Anda
+Kegiatan seperti ini sangat penting untuk memperkuat ukhuwah. Terima kasih, Bu Khofifah, atas dukungannya
+Kepemimpinan Bu Khofifah membawa angin segar bagi kita semua. Semoga hajat kita semua dikabulkan Allah
+Satu hati dalam zikir dan doa! Terima kasih, Bu Khofifah, atas inisiatif yang luar biasa ini
+Sangat mengesankan melihat Bu Khofifah berkomitmen pada nilai-nilai spiritual. Semoga kita semua terus diberkahi!
+Sukses untuk semua santri Indonesia
+Amin ya Allah
+Terima kasih bu Khofifah sudah memperingati hari santri
+Semoga kebaikan untuk Jawa Timur selalu
+Semoga bu Khofifah bahagia dan dilancarkan rezekinya
+Kalau terpilih kembali, semoga lebih amanah
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+MINTA KAOS 02 DIPERSULIT HARUS ADA IZIN ORANG DALAM, BAGAIMANA BISA MENANG xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat hari santri
+PAC Taman hebat kuat xemoticonx xemoticonx
+Mantap
+Mantap xemoticonx xemoticonx
+Sehat selalu
+Ibu Khofifah menunjukkan dirinya yang selalu dekat dengan rakyatnya, mengayomi dan melindungi. Dan untuk PAC Muslimat Taman makin maju dan sukses dalam segala hal
+Beliau benar-benar memimpin Jawa Timur dengan penuh rasa keibuan, penuh cinta kasih. Wajar apabila rakyat banyak yang kagum dengan sosoknya xemoticonx
+Mengharukan atas kunjungan Ibu ke petani xemoticonx xemoticonx
+Mentari terbit di ufuk timur, ikan berlari di tepian rawa. Bu Khofifah bijak dan makmur, membangun negeri dengan penuh cahaya
+Ramah sekali masyaallah xemoticonx xemoticonx
+Saya ikut terharu ibu xemoticonx kepedulian pimpinan untuk mendengar masyarakat yang paling bawah. Semoga Allah memberikan berkah dan ibu akan memimpin Jawa Timur periode kedua karena semua masyarakat Jawa Timur sangat cinta kepada ibu xemoticonx
+Semoga petani Ngadimulyo selalu diberkahi kesehatan dan hasil panen yang melimpah. Amin! xemoticonx xemoticonx
+Alhamdulillah, panen buah naga tahun ini berkah sekali! Semoga petani Ngadimulyo selalu diberikan kesehatan dan rezeki yang melimpah. Amin! xemoticonx xemoticonx
+Semangat untuk petani Ngadimulyo! Semoga panennya sukses dan rezekinya melimpah selalu xemoticonx xemoticonx
+Sukses selalu untuk para petani, semoga diberikan rezeki yang melimpah xemoticonx
+Harus menangis aku melihat sinetron ini hanya bisa bicara tetapi tidak ada hasilnya xemoticonx
+Petani yang hebat! Semoga panen buah naganya sukses besar dan mendatangkan rezeki melimpah. Amin xemoticonx
+Sukses dan sehat selalu ibu xemoticonx xemoticonx xemoticonx
+Kalau Indonesia punya Prabowo, Jawa Timur punya Khofifah
+Saling mendoakan ya mbah. Semoga anda sekeluarga dan seluruh warga Ngadimulyo sehat walafiat, berkah dan terus berkarya. Terima kasih
+Ya Allah berikan perlindungan untuk beliau
+Bu Khofifah, terima kasih atas perhatian dan dukungan kepada petani. Semoga panen kali ini melimpah!
+Kapan ke Jember Ibu?
+Hormat Bu, semoga menang. Pendukung sebelah yang resah xemoticonx tidak urusannya xemoticonx xemoticonx xemoticonx
+Hormat pada upayanya xemoticonx xemoticonx
+Lanjut dua periode xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Memang benar kalau orang-orang di daerah tahunya Bu Khofifah. Kapan lalu saya mudik ke kampung kebetulan ibu saya pedagang. Setiap ada orang yang datang ke rumah, saya tanya pilih siapa mereka jawabnya Bu Khofifah. Kalau ibu saya sendiri, saya tanya mengapa pilih Bu Khofifah jawabannya sederhana karena setiap cek kendaraan gratis xemoticonx
+KIM plus ya, ogah ah xemoticonx xemoticonx
+Jawa Timur ekonominya bergerak berkat beliau
+Sudah tidak saatnya seperti ini, Jawa Timur butuh hasil nyata tidak di depan kamera saja. Wahai Jawa Timur maju cukup satu periode saja Bu Khofifah
+Sehat dan semangat selalu calon gubernur xemoticonx
+Tolong Jawa Timur jangan ganti gubernur
+Ketulusan dari Bu Khofifah untuk rakyatnya sudah tidak perlu diragukan lagi
+Masih banyak petani yang ditipu tengkulak
+Bu Khofifah, kehadiran Anda membawa harapan bagi para petani. Semoga hasil panennya melimpah
+Momen yang indah! Semoga buah naga dari Ngadimulyo semakin dikenal dan diminati
+Kehangatan dan dukungan Anda sangat berarti bagi petani. Semoga rezeki mereka berlimpah, Bu
+Semangat panen! Semoga petani Ngadimulyo mendapatkan hasil yang maksimal dari kerja keras mereka
+Bu Khofifah, keberadaan Anda membuat kami merasa diperhatikan. Semoga buah naga ini membawa berkah
+Semangat terus Ibu, saya bukan warga Jawa Timur tapi saya mengidolakan ibu
+Sungguh luar biasa melihat dukungan Anda terhadap petani. Semoga mereka mendapatkan hasil yang memuaskan
+Bu Khofifah, terima kasih atas kepedulian Anda. Semoga panen ini membawa kebahagiaan bagi semua petani
+Ibu saya ya Bu Khofifah xemoticonx xemoticonx
+Bu Khofifah, terima kasih telah mendukung pertanian lokal. Semoga semua petani sehat dan sukses
+Semoga terus blusukan semoga Bu xemoticonx xemoticonx
+Semoga Bu Khofifah dua periode
+Jos kamu Bu lanjutkan
+Sukses terus para petani Ngadimulyo, semoga panennya melimpah dan penuh berkah xemoticonx
+Ngadimulyo Banyuwangi penghasil buah enak xemoticonx
+Terima kasih atas kerja keras para petani Ngadimulyo. Buah naganya segar dan berkualitas xemoticonx
+Jawa Tengah juga butuh pemimpin seperti Bu Khofifah xemoticonx
+Sehat terus ya Bu, Jawa Timur butuh pemimpin yang tulus seperti Anda
+Panen buah naga di Ngadimulyo pasti meriah! Semoga para petani sehat selalu dan rezekinya lancar xemoticonx xemoticonx
+Ibu xemoticonx ke Pasuruan Sukorejo Bu
+Buah naga ternyata diproduksi di Jawa Timur luar biasa
+Luar biasa sekali, petani Ngadimulyo! Semoga jerih payah kalian selama ini terbayar dengan panen yang melimpah dan membawa kebahagiaan untuk keluarga. Semoga selalu diberkahi xemoticonx xemoticonx
+Bapak-bapak pun hormat ke Bu Khofifah xemoticonx
+Sangat menginspirasi! Semoga petani Ngadimulyo terus bersemangat dan sukses dalam bertani
+Ramah sekali senyuman Bu Khofifah
+Buah naga dari Ngadimulyo selalu segar dan manis. Terima kasih untuk para petani yang luar biasa xemoticonx xemoticonx
+Buah naganya enak tuh Bu
+Masyaallah terharu sekali melihat beliau begitu dekat dengan masyarakatnya
+Terharu melihat ketulusan ibu untuk rakyatnya xemoticonx
+Semangat untuk para petani buah naga di Ngadimulyo! Kalian pahlawan pangan kita xemoticonx xemoticonx
+Selalu kagum dengan dedikasi para petani Ngadimulyo. Panen kali ini semoga menjadi berkah berlimpah dan membawa kesejahteraan yang lebih baik. Amin xemoticonx xemoticonx xemoticonx
+Panen buah naga di Ngadimulyo memang menggembirakan! Semoga semua petani diberkahi kesehatan dan kesuksesan. Kerja keras kalian terbayar lunas xemoticonx xemoticonx
+Allah karim turut larut dalam suasana Ibu sehat selalu xemoticonx xemoticonx
+Silakan Bu, ajak petani buah naga Banyuwangi budidaya secara organik agar bisa di ekspor ke Eropa. Permintaan banyak tapi yang diminta yang organik xemoticonx
+Luar biasa panennya, semoga petani Ngadimulyo selalu diberikan kekuatan dan rezeki yang melimpah. Sungguh inspiratif melihat ketekunan kalian xemoticonx xemoticonx
+Sukses selalu Bu, banyak rakyat yang sayang Anda xemoticonx xemoticonx
+Sehat selalu ibu, Anda orang baik xemoticonx xemoticonx xemoticonx
+Ini baru pemimpin yang mendengarkan bukan hanya dari laporan, tapi langsung dari lapangan
+Sehat-sehat ibu
+Tetap amanah Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Sambutan yang luar biasa hangat dari para petani untuk Bu Khofifah
+Lah selama ini ke mana saja?
+Sukses selalu ibu menolong orang kecil
+bismillah Bu
+Sehat selalu Bu
+Masyaallah sampai ada yang menangis seperti itu, berarti memang pemimpin yang diinginkan masyarakat
+Hormat banyak Bu xemoticonx
+Jadi ikut terharu xemoticonx xemoticonx
+Lancar terus panennya Pak Bu
+Halo ibu, masyaallah pernah bertemu dan bersalaman waktu masih ada almarhum bapak, yang sangat mengagumi kamu. Semoga ibu xmentionx sehat panjang umur dimudahkan segala urusannya, dikabulkan hajat-hajatnya Bu. Salam sayang dari saya sekeluarga xemoticonx xemoticonx xemoticonx
+Banyuwangi hanya butuh pupuk Bu xmentionx bahkan walaupun bukan subsidi, kami akan beli. Karena tanpa pupuk, buah naga kami tidak akan berbuah maksimal xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Kekurangan pupuk sudah terjadi beberapa tahun ini
+bismillah lanjutkan Bu
+Lihatlah tangis hati masyarakat Jawa Timur untuk Bu Khofifah xemoticonx xemoticonx
+Masyaallah Ibu aku makin yakin dukung penuh Khofifah
+Sedekat itu ikatan pemimpin dan rakyatnya
+Pemimpin sekeren ini xemoticonx
+Lanjutkan dua periode Bu xemoticonx
+Salut untuk para petani Ngadimulyo, semoga panen buah naganya selalu sukses dan membawa keberkahan xemoticonx xemoticonx
+Terbaik Ibu xmentionx
+Mantap satu komando bersama Prabowo dan jajarannya. Seluruh Indonesia satu tujuan pilih Khofifah titik. Jangan sampai lagi ada peristiwa U 20 xemoticonx
+Wakil Tuhan
+Bangga sekali dengan petani Ngadimulyo, kerja keras kalian luar biasa! Semoga panen kali ini membawa kesejahteraan dan rezeki yang terus mengalir. Amin xemoticonx xemoticonx
+Salut untuk petani-petani hebat di Ngadimulyo! Semoga selalu diberikan kesehatan dan panen buah naga tahun ini membawa banyak kebaikan. Amin xemoticonx xemoticonx
+Kangen Bu Khofifah jadi Mensos, ibu terbaik xemoticonx xemoticonx
+Buah naga dari Ngadimulyo, hasil dari kerja keras yang penuh berkah. Semoga panen ini membawa kebahagiaan dan rezeki yang melimpah untuk para petani. Amin xemoticonx xemoticonx
+Sehat-sehat teladanku
+Bu Khofifah terbaik untuk warga Jawa Timur
+Bu Khofifah peduli petani
+Bu Khofifah selalu hadir untuk mendengarkan keluhan petani di Banyuwangi. Pemimpin yang peduli dan siap membantu
+Bu Khofifah menunjukkan kepedulian nyata dengan turun langsung melihat kondisi petani di Banyuwangi
+Petani di Banyuwangi butuh perhatian, dan Bu Khofifah selalu hadir dengan solusi
+Bu Khofifah mengerti betapa pentingnya peran petani di Banyuwangi. Terima kasih atas dukungan nyatanya
+Pemimpin sejati hadir dan mendengarkan. Bu Khofifah selalu mendukung petani di Banyuwangi dengan tulus
+Bu Khofifah memahami perjuangan petani di Banyuwangi, hadir memberi dukungan dan solusi konkret
+Petani buah semoga semakin makmur
+Petani Banyuwangi adalah pahlawan pangan, dan Bu Khofifah hadir memberi perhatian yang tulus
+Terima kasih Bu Khofifah atas kepeduliannya kepada petani Banyuwangi. Semoga pertanian semakin maju
+Kepedulian Bu Khofifah pada petani di Banyuwangi membuktikan bahwa beliau pemimpin yang mengutamakan rakyat
+Bu Khofifah turun langsung ke Banyuwangi, memberi semangat dan dukungan nyata bagi petani
+Pemimpin yang memahami masalah rakyatnya. Bu Khofifah selalu peduli pada nasib petani di Banyuwangi
+Petani Banyuwangi mendapat perhatian khusus dari Bu Khofifah. Pemimpin yang peduli masa depan pertanian
+Maju terus petani Jawa Timur
+Sudah waktunya dua periode xemoticonx
+Siap kawal Bu Khofifah sampai menang xemoticonx
+Banyuwangi dukung penuh Khofifah Emil
+Bu Khofifah semoga sehat selalu
+Saya rasa Bu Khofifah cocok jadi gubernur
+Lanjut dua periode xemoticonx xemoticonx
+Sehat selalu Ibu saya untuk warga Jawa Timur
+Merinding ibu, semoga keikhlasan mendapatkan kemampuan membangun Jawa Timur lebih baik
+Tidak bisa kerja ya Bu, sampai yang diposting kunjungan sana sini cari simpati
+Tapi maaf untuk kali ini kami butuh pemimpin yang bawa kemajuan untuk Jawa Timur
+Assalamualaikum Ibu Khofifah, semoga Allah selalu memberi kesehatan dan dilancarkan tugasnya Ibu
+Ayo Bu Khofifah blusukan ke desa-desa mereka sangat menginginkannya xemoticonx xemoticonx xemoticonx
+Posting kunjungan sana sini cari simpati, tidak ada hasil kerjanya ya Bu?
+Sudah cukup mempermainkan kami, kami butuh perubahan
+Bu, anak-anak tetangga saya Kabupaten milih xmentionx terus provinsi merasa nyaman dengan ibu, tapi dengan pendukungnya Bu xmentionx aku dimusuhi. Katanya milih Gus Maki tidak boleh milih ibu. Maksudnya bagaimana? Aku anggota paguyuban bukan anggota parpol
+Tidak dulu, butuh bukti bukan hanya janji
+Hasil kerja dong Bu yang di pos, masa yang diposting kunjungan sana sini cari simpati
+Ya Allah Pak, semoga pemerintah terus hadir untuk Bapak dan petani-petani lainnya ya
+Lanjutkan Bu Khofifah kami masih butuh kepemimpinan anda xemoticonx
+Terima kasih mau berkunjung di dusun kami Ngadimulyo Bulurejo
+Pernah bertemu beliau di SPBU waktu itu terus dikasih kerupuk xemoticonx xemoticonx dan uang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Lanjutkan Bu
+xemoticonx xemoticonx xemoticonx terharu melihatnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Tulus apa dia hanya pencitraan xemoticonx depan rakyat saja nanti kalau jadi terpilih juga tidak akan mau pencitraan seperti itu lagi
+Pencitraan apa lagi ini sudah bosan rakyat seperti ini tuh, program kerja xemoticonx kampanye yang agak bermanfaat untuk rakyat begitu lo
+Pemimpin yang baik pasti dekat di hati rakyat, sehat selalu Ibu Gubernur lanjutkan dua periode
+Sudah kapok milih Bu Khofifah programnya tidak sesuai perkataannya, kata-kata manis melulu yang diucap
+Insyaallah beliau dua periode memimpin Jawa Timur
+Ya Allah jika melihat bunda Khofifah serasa adem, salam dua jari xemoticonx xemoticonx
+Saya ikut bangga terharu dan sangat kagum pada sosok Bunda KIP. Sehat selalu Bunda rasanya ingin selalu dekat Bunda agar juga ikut banyak didoakan orang-orang khususnya warga Jawa Timur yang menginginkan Bunda KIP menjadi Gubernur kembali. Lanjutkan Bunda untuk membawa Jawa Timur Maju Berprestasi xemoticonx xemoticonx
+Mohon maaf belum bisa ikut kemarin Bu
+Sehat selalu Ibu xemoticonx xemoticonx xemoticonx xemoticonx
+Terima kasih
+Kalau terpilih semoga tambah jujur dan amanah
+bismillah, terpilih Bunda xmentionx sebagai Gubernur
+Fungsi dan manfaatnya apa, paling hanya cari sensasi
+Selalu riwa-riwi tanpa tujuan selalu cari sensasi
+Cari suaranya ke rakyat yang gampang untuk dikasih bicara-bicara
+Amin xemoticonx xemoticonx xemoticonx xemoticonx dua
+Anda lima tahun di mana saja, Bu? xemoticonx
+Bu Khofifah pilihan saya xemoticonx
+Cukuplah satu periode, tidak ada kemajuan
+Neneknya menangis, aku ikut menangis nenek xemoticonx xemoticonx
+Semangat Ibu yang penuh kasih, aku kagum xemoticonx xemoticonx
+Apa kabar janji kemarin Bu xemoticonx
+Sehat selalu ya Bu Khofifah xemoticonx
+Sehat selalu ibu Khofifah amin
+Sudah lima tahun menjabat kok baru sekarang ke sana xemoticonx
+Seperti ada maunya xemoticonx
+Bu Khofifah sudah teruji, cerdas
+Banyak janji tidak tahu setelah jadi ditepati apa tidak
+Kalau ada butuhnya baru turun ke rakyat ya Bu
+Kasihan hanya dijanjikan harapan palsu saja rakyatnya
+Bu Khofifah harus jadi lagi pokoknya go Jawa Timur xemoticonx
+Saya dukung Bu Khofifah sebagai Gubernur
+Saya dukung Bu Khofifah sebagai Gubernur Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bu disuap berapa pun oleh yang lain saya terima Bu, tapi kalau di TPS saya suap kertasnya nomor dua xemoticonx xemoticonx
+Bu terima kasih adanya Trans Jawa Timur dari Surabaya ke Bangkalan bisa lebih maju di Madura. Kalau bisa yang tidak ada di Madura tolong adakan Bu. Terima kasih
+Aku padamu Bu xemoticonx
+Itulah alasan saya dari beliau mencalonkan sebagai gubernur pertama kali saya dukung beliau, wanita tangguh yang rendah hati memiliki jiwa sosial yang tinggi, menjadi contoh bagi kami anak muda khususnya Jawa Timur. Sehat selalu ibu, semoga Allah senantiasa melindungi, saya siap dukung nomor urut dua ibu Khofifah Kang Emil Dardak xemoticonx xemoticonx
+Terharu dengan bapaknya, merasa tidak diperhatikan itu oleh pemerintah daerah berpuluh tahun pak
+Petani di sana memang terbaik, buah naganya memang beda, karena semuanya serba alami terutama pupuknya, dan dibuat berantai, akarnya dari pohon randu, daunnya untuk ternak kambing, kotoran kambingnya dibuat pupuk pohon naga, hasil buah naganya jadi manis dan luar biasa
+Sayang kamu bunda xmentionx xemoticonx xemoticonx xemoticonx salam dari Malang Selatan
+Terima kasih sudah singgah di kampung kami Bu xemoticonx xemoticonx
+Bicara kosong tidak ada kerja nyata
+Banyak bicara-bicara saja tidak ada hasil yang nyata
+Peh enak ini xemoticonx xemoticonx
+Info tempatnya
+Enak itu
+Mau dong
+Kalau kebunnya dibuat wisata kebun naga menarik xemoticonx
+Dengar-dengar minta kaos 02 dipersulit order? Apa iya?
+Masih banyak konflik petani dengan tengkulak
+Ibu Khofifah memang suka buah lokal ya xemoticonx seperti saya
+Lanjutkan Bu
+Idola saya xemoticonx xemoticonx
+Judul sinetronnya apa ini Bu sedih sampai ingin gubernurnya ganti
+Begini ini cari muka saja jelasnya xemoticonx
+Manis di awal saja ini xemoticonx xemoticonx
+Jangan bicara saja Bu buktikan kerja nyatanya haha xemoticonx
+Ibu xemoticonx xemoticonx, jadi kangen ibu di rumah xemoticonx xemoticonx xemoticonx
+Tidak ada alasan apa pun untuk tidak mencintai sosok IBU, meminjam istilah orang Jawa bahwa Ibu adalah xemoticonx Pangeran yang terlihat xemoticonx Sosok yang menjadi alasan agar hidup ini terus diperjuangkan dan terus dilanjutkan. Terima kasih Bu Khofifah, ingatan tentang ibu terus lestari dalam hati ini
+Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah tulus sekali ibu xemoticonx xemoticonx
+Sehat selalu Bu Khofifah xemoticonx
+xemoticonx xemoticonx xemoticonx jadi ingat ibu
+Cinta dan dedikasi ibu bagi bangsa sangat nyata xemoticonx xemoticonx
+Bukti ikatan cinta antara pemimpin dan rakyat yang begitu kuat
+Ibu xemoticonx xemoticonx xemoticonx xemoticonx
+Ah rindu
+Ingat ibu di rumah xemoticonx
+Jadi rindu ibu di kampung xemoticonx xemoticonx
+Terima kasih khusus untuk ibu xmentionx
+Anda orang baik Bu xemoticonx xemoticonx
+Untuk anakku jangan lupa jasa-jasa ibu ya. Ibu sayang kalian xmentionx xmentionx
+Masyaallah Ibu
+Ya Allah kapan bisa bertemu Anda
+Terima kasih Bu Khofifah jadi ingat ibu
+SIAPA YANG TARUH BAWANG DI SINI xemoticonx xemoticonx
+Bundanya Jawa Timur Bu Khofifah xemoticonx xemoticonx
+Sayang sekebun untuk ibu xemoticonx xemoticonx
+Bu saya selalu mendoakan kebaikan ibu, sukses Khofifah Emil 2024 xemoticonx xemoticonx
+bismillah semoga ibu selalu sehat ya xmentionx
+Terima kasih inspirasinya Bunda, lanjutkan xemoticonx xemoticonx xemoticonx
+Bu Khofifah selalu turun langsung ke lapangan untuk melihat dan merasakan langsung kebutuhan warga
+Maju bersama Khofifah Emil
+Bu Khofifah keibuan sekali
+Cinta sekabin Bu Khofifah xemoticonx xemoticonx
+Ibu xemoticonx
+xhashtagx xhashtagx ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Semoga ibu selalu diberi kesehatan dan kedamaian xemoticonx xemoticonx
+Ketulusan Bu Khofifah tercermin dalam setiap langkah dan programnya untuk kemajuan Jawa Timur
+Setiap tindakan Bu Khofifah selalu berfokus pada kebaikan dan kesejahteraan masyarakat. Terima kasih atas kepeduliannya
+Semoga Bu Khofifah sehat selalu
+Ingat si ibu di rumah xemoticonx
+Cinta untuk ibu xemoticonx xemoticonx
+Kepemimpinan Bu Khofifah penuh ketulusan, setiap kebijakan selalu didasarkan pada kebutuhan rakyat
+Ibu apabila jadi lagi, mohon ditepati janjinya untuk membantu menampung anak xemoticonx Palestina ya Bu xemoticonx
+Pemimpin yang mengayomi dan peduli seperti Bu Khofifah membawa harapan baru bagi Jawa Timur
+Ketulusan Bu Khofifah terlihat dari kesungguhannya dalam memperhatikan kesejahteraan warga
+Pemimpin yang selalu bekerja tanpa pamrih seperti Bu Khofifah sangat berharga bagi Jawa Timur
+Ibu kangen ibu
+Kepemimpinan Bu Khofifah adalah contoh nyata bagaimana tulus bekerja untuk rakyat
+Selagi ibu masih ada, kita punya kesempatan emas untuk membahagiakan-nya. Waktu bersama ibu adalah anugerah yang tak ternilai, mari manfaatkan sebaik-baiknya
+Bu Khofifah terima kasih
+Saya sangat cinta dengan ibu saya, karena itu saya sangat suka dengan Bu Khofifah
+Setiap momen bersama ibu adalah kesempatan berharga yang tak akan terulang. Selagi beliau masih di sini, mari kita membuatnya tersenyum setiap hari
+Tak ada kebahagiaan yang lebih besar bagi seorang ibu selain melihat anaknya sukses dan bahagia. Selagi ibu ada, mari kita bahagiakan hatinya dengan cinta dan perhatian
+Waktu dengan ibu tak bisa dibeli kembali. Selagi ada kesempatan, buatlah setiap hari menjadi momen istimewa untuknya
+Hargailah setiap detik bersama ibu. Bahagiakan dia selagi masih bisa, karena kasih sayangnya takkan pernah bisa tergantikan
+Bu Khofifah selalu menginspirasi
+Bu Khofifah memang ibu-nya Jawa Timur xemoticonx xemoticonx
+Ibu adalah sosok yang selalu ada di setiap langkah hidup kita. Selagi beliau masih di sini, pastikan kita memberikan kebahagiaan yang pantas untuknya
+Ibu-nya Jawa Timur
+Ibu kita sangat sayang dengan kita xemoticonx
+Khofifah selalu menginspirasi kita
+Semoga ibu saya bahagia selalu
+Semoga aku bisa membalas kebaikan ibu
+Bunda Khofifah memang orang yang tulus xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Ya Allah pertemukan aku dengan Ibu Khofifah kapan pun sehingga aku bisa memeluknya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Ibu adalah benteng yang tak pernah runtuh xemoticonx xemoticonx
+Sehat selalu ibu xemoticonx xemoticonx
+Sehat terus Bu xemoticonx xemoticonx
+Perjuangan tak kenal lelah, lanjut terus Bu
+Sehat selalu para pahlawan
+xemoticonx xemoticonx ibu adalah sosok yang selalu jadi inspirasi, 02 lanjutkan
+Bu Khofifah, Anda benar-benar sosok ibu bagi kami. Kepedulian dan kasih sayang Anda terasa di setiap langkah
+Sebagai pemimpin, Anda selalu memperlakukan kami seperti anak. Terima kasih atas perhatian dan dukungan Anda
+Ibu Khofifah, Anda adalah pilar kekuatan dan kasih sayang bagi rakyat. Kami merasa aman di bawah kepemimpinan Anda
+Anda bukan hanya pemimpin, tapi juga ibu yang selalu mendengarkan dan memahami kebutuhan kami
+Dengan hati yang tulus, Bu Khofifah, Anda menunjukkan kasih sayang kepada rakyat. Kami sangat menghargai itu
+Setiap kebijakan yang Anda ambil mencerminkan cinta dan kepedulian seorang ibu. Terima kasih, Bu Khofifah
+Ibu Khofifah, Anda menginspirasi kami untuk selalu saling mendukung, seperti seorang ibu dalam keluarga
+Keberanian dan ketulusan Anda membuat kami merasa dekat
+Di tengah tantangan, Anda selalu menjadi sumber kekuatan bagi kami. Terima kasih telah menjadi ibu yang hebat
+Ibu Khofifah, cinta dan perhatian Anda membuat kami merasa seperti satu keluarga. Kami bangga memiliki Anda
+Sehat selalu ibu xemoticonx xemoticonx
+Sehat-sehat Bu xemoticonx xemoticonx
+Tulus sekali xemoticonx
+Masyaallah begitu banyak orang yang sayang anda Bu
+Amal apa yang bisa disayangi masyarakat banyak xemoticonx xemoticonx xemoticonx
+Sayang Bu xemoticonx xemoticonx xemoticonx xemoticonx
+Masyarakat Jawa Timur sayang anda xemoticonx
+Sehat selalu ibu saya xemoticonx
+Tetap 02
+Banyak yang sayang Bu Khofifah xemoticonx xemoticonx xemoticonx
+Ibu saya xemoticonx xemoticonx
+Selamat hari santri ibu xemoticonx
+Selamat hari santri untuk para santri Indonesia, sehat selalu ibu xemoticonx xemoticonx
+Bangga menjadi santri. Teruslah menjadi benteng moral di era digital ini. Selamat Hari Santri xemoticonx xemoticonx xemoticonx
+Insyaallah Indonesia aman adem ayem tenteram karena banyak pondok pesantren
+Selamat hari santri untuk para santri Indonesia xemoticonx
+Semoga para santri selalu diberikan kekuatan untuk menjaga moral bangsa di tengah perkembangan digital. Selamat Hari Santri xemoticonx
+Makan mangga dengan Pak Tri. Aku bangga, jadi santri oke gas oke gas nomor dua kita gas
+Selamat hari santri xemoticonx
+Selamat Hari Santri. Semoga terus berkontribusi menjaga moral bangsa di tengah kemajuan teknologi xemoticonx xemoticonx xemoticonx
+Selamat Hari Santri Nasional. Teruslah menjadi teladan dalam menjaga nilai-nilai keislaman dan kebangsaan
+Semoga berbahagia selalu para santri
+Santri adalah garda terdepan penjaga moral bangsa. Selamat Hari Santri Nasional xemoticonx xemoticonx
+Sehat selalu santri di Indonesia
+Terus semangat para santri xemoticonx
+Selamat hari santri semua xemoticonx
+Selamat hari santri semoga santri siap untuk mewujudkan impian Indonesia
+Insyaallah Indonesia makin maju bersama para santri penjaga NKRI ya Bu
+Santri bukan hanya belajar ilmu agama, tapi juga ilmu kehidupan. Selamat Hari Santri Nasional
+Keren ibu, kaya terus santri Indonesia
+Santri salah satu elemen penting pembangun bangsa dan negara kita
+Semoga para santri siap meraih cita-cita bangsa
+Semoga para santri selalu diberkahi hidupnya
+Hari santri adalah hadiah dari Pak Jokowi untuk perjuangan KH Hasyim Asyari
+Santri adalah simbol perjuangan dan pengabdian. Selamat Hari Santri Nasional, semoga terus berkontribusi untuk bangsa
+Santri hebat, Indonesia kuat. Selamat Hari Santri Nasional 2024. Semoga selalu menjadi penjaga nilai-nilai luhur bangsa xemoticonx xemoticonx
+Senantiasa berkah untuk santri yang sedang menuntut ilmu
+Melambung terus ibu
+Selamat hari santri semoga hebat semua santri Indonesia
+Hari Raya Para Santri xemoticonx
+Untuk Santri Maju Berprestasi
+Jaya negeriku bersama para santri
+Menyala Ibu Khofifah xemoticonx xemoticonx
+Para santri siap menghadapi tantangan global dengan semangat dan moral yang kuat. Selamat Hari Santri Nasional xemoticonx xemoticonx
+Menyala Ibu-nya para Santri xemoticonx xemoticonx
+Selamat Hari Santri untuk Jawa Timur lebih berprestasi
+Selamat Hari Santri Nasional. Semoga para santri selalu menjadi penjaga moral dan pilar bangsa di era digital ini xemoticonx xemoticonx
+Tantangan global dan transformasi digital siap dihadapi dengan semangat para santri. Selamat Hari Santri Nasional xemoticonx xemoticonx
+Santri Indonesia siap hadapi tantangan global dengan akhlak mulia dan teknologi. Selamat Hari Santri Nasional 2024 xemoticonx xemoticonx
+Semangat para santri dalam membela negara dan menegakkan agama patut kita teladani. Selamat Hari Santri Nasional
+Semoga berkah selalu ilmunya xemoticonx
+Selamat Hari Santri Nasional 2024. Santri bukan hanya pewaris tradisi, tapi juga pelopor inovasi dengan tetap menjaga moralitas di era digital
+Hari Santri adalah perjuangan panjang para santri agar negara ini tetap berdiri. Dengan semangat itu, Santri akan terus membara untuk membakar semua daya juangnya xemoticonx xemoticonx
+Selamat hari santri untuk seluruh masyarakat santri
+Selamat Hari Santri Nasional. Semoga para santri terus menjadi penjaga moral dan pilar akhlak mulia di era digital, siap menghadapi tantangan global dengan iman dan ilmu
+Optimis santri kita lebih maju dan berkembang
+Santri selalu jadi pilar kekuatan moral bangsa. Selamat Hari Santri Nasional untuk para santri hebat
+Dengan hati yang tulus dan pikiran yang jernih, santri siap menjadi pemimpin masa depan
+Semoga para santri siap dalam menghadapi masa depan Indonesia
+Selamat Hari Santri xemoticonx xemoticonx
+Menyambung Juang Merangkuh Masa Depan, Selamat Hari Santri Bu xemoticonx xemoticonx
+Dengan landasan akhlak dan moral yang kuat, santri siap menjadi garda terdepan dalam menjaga nilai-nilai kebaikan di tengah pesatnya perkembangan teknologi. Selamat Hari Santri
+Hari Santri Nasional adalah momentum untuk mengenang peran besar santri dalam sejarah perjuangan Indonesia. Selamat
+Selamat Hari Santri Nasional. Santri bukan hanya pejuang agama, tapi juga pahlawan bangsa
+Santri hebat, Indonesia kuat. Selamat Hari Santri Nasional untuk semua santri di seluruh Nusantara
+Hari Santri Nasional mengingatkan kita pada perjuangan yang penuh keikhlasan dan cinta tanah air. Selamat
+Selamat Hari Santri Nasional. Semoga santri selalu menjadi pelopor perdamaian dan kebaikan
+Bangga menjadi bagian dari Indonesia yang memiliki santri-santri hebat. Selamat Hari Santri Nasional
+Peran santri dalam membangun negeri ini sangat besar. Selamat Hari Santri Nasional, teruslah berkarya untuk bangsa
+Hari Santri Nasional adalah hari penghargaan untuk seluruh santri yang telah berjuang demi agama dan negara
+Selamat hari Santri xemoticonx
+Selamat Hari Santri Nasional. Semoga semangat santri selalu hidup dalam menjaga keutuhan NKRI
+Santri adalah garda terdepan dalam menjaga moral bangsa. Selamat Hari Santri Nasional
+Selamat Hari Santri Nasional. Teruslah menjadi santri yang menginspirasi dan berkontribusi untuk negeri
+Selamat hari santri Bu Khofifah
+Hari Santri adalah momen untuk mengingat pentingnya ilmu, akhlak, dan cinta tanah air. Selamat Hari Santri Nasional
+Santri dan santriwati keduanya di era modern ini mampu beradaptasi dan membangun peradaban
+Berkah selalu untuk santri Indonesia xemoticonx xemoticonx
+Selamat Hari Santri Nasional. Semoga santri-santri Indonesia terus menjadi cahaya dalam kegelapan
+Hari Santri Nasional adalah bukti nyata bahwa santri punya peran penting dalam sejarah bangsa ini
+Selamat Hari Santri Nasional. Tetap jaga semangat juang dan pengabdian untuk agama dan bangsa
+Selamat hari santri kalangan bercelana sarung nasionalis
+Terima kasih Bu Khofifah
+Santri kita sekarang sudah hebat-hebat bisa bersaing di global
+Selamat hari santri 2024
+Maju terus santri Jawa Timur
+Selamat Hari santri xemoticonx
+Bangga menjadi santri
+Santri kita mutiara kita
+Hari santri yang begitu membahagiakan
+Bu Khofifah selamat hari santri
+Santri semoga ke depannya lebih maju dan berkembang
+Pembangunan negara tidak bisa lepas dari kontribusi santri
+Para santri yang terus menjaga moral
+Khofifah Emil pilihan-nya anak-anak santri
+Selamat hari santri Bu xemoticonx
+Santri makin kuat untuk membangun negeri
+Semoga makin banyak santri berprestasi
+Bersama santri membangun Indonesia yang lebih keren
+Selamat hari Santri, anak saya juga santri Bu
+Inspiratif, Bu Khofifah. Semoga santri kita selalu siap menghadapi tantangan zaman
+Selamat Hari Santri. Peran santri sangat penting dalam menjaga moral di era digital
+Terima kasih, Bu Khofifah, atas dukungan untuk santri dalam mengembangkan nilai-nilai luhur
+Kami mendukung penuh upaya Bu Khofifah dalam mempersiapkan santri untuk masa depan
+Semoga semangat santri tetap berkobar, siap menjadi agen perubahan di tengah transformasi digital
+Bu Khofifah, kepemimpinan Anda sangat memotivasi kami untuk terus mendukung santri
+Selamat Hari Santri. Mari kita jaga bersama moralitas di era yang penuh tantangan ini
+Santri kuat, Indonesia hebat. Selamat hari santri xemoticonx xemoticonx
+Kami yakin santri akan menjadi teladan di tengah kemajuan teknologi berkat arahan Bu Khofifah
+Bu Khofifah, Anda selalu menginspirasi kami untuk berpikir kritis dan beretika dalam teknologi
+Selamat hari santri, teruskan perjuangan ulama dan tegakkan kebenaran xemoticonx
+Selamat Hari Santri. Semoga santri bisa menjadi penerus yang membawa nilai-nilai positif dalam masyarakat
+Selamat hari santri Bu Khofifah xemoticonx xemoticonx
+Semoga keberkahan dan kedamaian senantiasa menyertai para santri xemoticonx
+Nomor satu dibuka nomor dua dicoblos nomor tiga ditutup luar jangan lupa
+Meskipun saya nasrani tetap salut dengan santri xemoticonx xemoticonx xemoticonx
+Selamat hari santri lur xemoticonx
+Selamat hari santri xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat hari santri ges
+Bangga jadi santri xemoticonx
+Santri masa depan mampu mengaji mampu ilmu IT, menyongsong masa depan lebih sejahtera dan mulia. Selamat Hari Santri
+Selamat Hari Santri Nasional sebagai upaya membangun Ibu Pertiwi xemoticonx
+Santri bukan hanya pelajar agama, tapi juga agen perubahan yang siap berkontribusi dalam pembangunan bangsa. Selamat Hari Santri Nasional, semoga semangat santri makin menginspirasi
+Santri berperan penting dalam membentuk generasi yang tidak hanya cerdas intelektual, tetapi juga berakhlak mulia. Semoga para santri terus menginspirasi
+Di Hari Santri Nasional ini, mari kita dukung santri sebagai penjaga nilai-nilai luhur di tengah dinamika zaman. Santri hebat, Indonesia kuat
+Luar biasa santri Jawa Timur
+Santri bisa menjadi pilar kehidupan bangsa
+Semoga santri tak pernah patah semangat, selamat hari santri xemoticonx xemoticonx
+Selamat hari santri semua
+Sukses terus untuk para santri
+Amin ya rab
+Adem tenteram 02
+Bu Khofifah, kehadiran Anda selalu membawa keceriaan. Semoga rezeki melimpah bagi semua
+Senang melihat interaksi beliau dengan para pedagang
+Luar biasa sambutannya di Pasar Ikan Brak Kalimoro. Semoga para nelayan dan pedagang di Muncar selalu diberkahi kesehatan dan rezeki yang melimpah. Amin
+Sambutan yang luar biasa, membuktikan kalau beliau masih dicintai rakyatnya
+Sambutan dari nelayan dan pedagang pasar ikan di Muncar sangat berkesan. Semoga sehat selalu dan usahanya lancar jaya. Amin
+Kehangatan nelayan dan pedagang di Pasar Ikan Brak Kalimoro benar-benar terasa. Semoga semuanya diberi kesehatan dan banyak rezeki. Amin
+Salut dengan dukungan Bu Khofifah untuk para nelayan dan pedagang. Semoga terus maju dan sejahtera xemoticonx xemoticonx
+Kehadiran Bu Khofifah di pasar bikin suasana makin meriah
+Bu Khofifah, Anda adalah teladan bagi banyak orang
+Hanya di depan kamera ramahnya xemoticonx
+Bu Khofifah menginspirasi banyak orang dengan sikapnya
+Terima kasih nelayan dan pedagang Muncar atas sambutan hangatnya. Semoga rezeki melimpah dan pasar ikan selalu ramai. Amin
+Bu Khofifah, terima kasih sudah mendengar aspirasi kami
+Kehadiran Anda membawa semangat baru untuk para pedagang ikan. Teruskan pekerjaan hebat ini
+Inspirasi bagi kami semua. Terima kasih telah mendengarkan dan mendukung komunitas nelayan
+Dengan kehadiran Anda, kami merasa optimis untuk masa depan yang lebih baik. Semoga berkah selalu
+Semua Masyarakat Jawa Timur begitu mencintai beliau, sukses selalu Bu Khofifah
+Bangga dengan nelayan Muncar
+Dukung terus nelayan lokal! Terima kasih Bu Khofifah sudah menyapa dan memperhatikan mereka xemoticonx xemoticonx
+Rasa syukur kami kepada Bu Khofifah tidak terhingga
+Komitmen Bu Khofifah untuk masyarakat sangat menginspirasi
+Cukup satu periode Bu Khofifah Jawa Timur agar ada perubahan
+Terima kasih atas kehangatan nelayan dan pedagang Muncar! Semoga pasar ikan semakin ramai dan sukses terus, rezeki berlimpah, amin
+Dari ujung timur hingga ujung barat, dari sisi utara hingga sisi selatan, semua serentak sepakat Bu Khofifah gubernurnya
+Semoga nelayan Muncar selalu diberikan keselamatan saat melaut
+Rakyat merasa diperhatikan, terima kasih Bu Khofifah
+Semangat Bu Khofifah patut dicontoh oleh semua pemimpin
+Banyak pelajaran berharga dari kunjungan pasar ini
+Kunjungan yang dirindukan masyarakat xemoticonx
+Terima kasih telah memperhatikan kebutuhan pasar kami Bu Khofifah
+Pilih nomor dua kawan, jangan lupa xemoticonx
+Terima kasih Bu Khofifah, rakyat bersama Ibu
+Semoga ikan Jawa Timur semakin maju
+Semua akan 02 pada waktunya
+Semoga dukungan untuk pedagang ikan semakin meningkat
+Semoga Bu Khofifah selalu istikamah turun ke rakyat
+Semoga Bu Khofifah panjang umur ya Allah
+Amin, semoga rezeki nelayan terus mengalir deras seperti laut Muncar yang kaya
+Lautnya memang penuh berkah semoga selalu memberi hasil melimpah untuk semua nelayan
+Senang melihat komitmen Bu Khofifah untuk meningkatkan kesejahteraan nelayan, semoga sukses selalu
+Kunjungan dari Bu Khofifah sangat berarti untuk para pedagang di sana xemoticonx
+Sambutan dari nelayan dan pedagang pasar ikan Muncar memang luar biasa, semoga semuanya sehat selalu dan usahanya semakin maju, amin
+Pasar Ikan Brak Kalimoro penuh kehangatan! Semoga para nelayan dan pedagang di sana terus diberi kesehatan dan rezeki melimpah, amin
+Sungguh luar biasa, terima kasih untuk dukungan dan kehangatan dari semua nelayan dan pedagang Muncar, semoga pasar makin sukses dan diberkahi, amin
+Bu Khofifah, selalu peduli dengan masyarakat, terima kasih atas dukungan Anda untuk para nelayan!
+Mantap Bu Khofifah langsung turun lapangan untuk melihat kondisi rakyatnya xemoticonx
+Selalu menyenangkan bertemu dengan nelayan dan pedagang yang penuh semangat, semoga usaha di Pasar Ikan Brak Kalimoro semakin maju dan sehat semua, amin
+Keren sambutan dari nelayan dan pedagang pasar ikan Muncar xemoticonx
+Dukung penuh 02, bismillah Khofifah Emil 2024 xemoticonx
+Terima kasih para nelayan, berkat kalian kami bisa menikmati ikan
+Senang bisa merasakan langsung dukungan dari nelayan dan pedagang di Muncar, semoga pasar ikan terus berkembang dan sukses! Amin
+Dukungan Anda sangat berarti bagi kami, Bu, semoga sehat selalu dan terus berkarya!
+Semoga nelayan semakin maju, amin
+Lancar terus Bu xemoticonx xemoticonx
+Terima kasih Bu Khofifah sudah mau turun ke masyarakat
+Jawa Timur siap maju bersama Khofifah Emil
+Kami merasa didengar dan diperhatikan, terima kasih Bu Khofifah atas segala upaya Anda!
+Semoga kegiatan seperti ini terus berlanjut, Bu Khofifah, Anda benar-benar luar biasa!
+Kami mendukung penuh program-program yang menguntungkan nelayan, terima kasih Bu Khofifah
+Jawa Timur maju berprestasi
+Pasar ikan Muncar memang juara
+Gas penuh Bu Khofifah
+Semoga terus membawa berkah
+Ikan dari Muncar memang paling favorit xemoticonx
+Kunjungan Bu Khofifah ke Pasar Ikan Brak Kalimoro menunjukkan kepeduliannya pada pedagang kecil! Luar biasa!
+Antusias sekali warga Banyuwangi, masyaallah
+Nomor dua selamanya
+Orang kecil butuh perhatian khusus dari pemerintah
+Antusias sekali para warga Banyuwangi
+Bu Khofifah layak jadi gubernur lagi
+Bu Khofifah dengan para warga Banyuwangi terbaik
+Semoga selalu menginspirasi yang lainnya
+Nomor dua jaminan maju xemoticonx
+Bu Khofifah nomor dua gas xemoticonx
+Bu Khofifah menang xemoticonx xemoticonx
+Nomor dua xemoticonx xemoticonx
+Bu Khofifah mantap xemoticonx
+Bu Khofifah jangan capai untuk bela rakyat
+Bu Khofifah pasar kita semakin makmur Bu
+Ikan enak itu Bu
+Muncar Banyuwangi punya cerita
+Siap Bu, siap mendukung Anda
+Bu beras dengan 404lenge404 belum turun ke sini, masa kampanye tahun lalu ada sekarang tidak?
+Bu Khofifah memberikan semangat bagi para pedagang pasar ikan
+Semoga nelayan dan pedagang Pasar Ikan Muncar selalu diberi kesehatan dan rezeki yang melimpah, amin! xemoticonx xemoticonx
+Pasar ikan Muncar memang pusat hasil laut terbaik! Semoga nelayan dan pedagang di sini semakin sukses, amin! xemoticonx xemoticonx
+Sehat selalu untuk para nelayan Muncar! Terima kasih Bu Khofifah sudah peduli dengan kesejahteraan mereka xemoticonx xemoticonx
+Nelayan dan pedagang ikan Muncar memang luar biasa, semoga semakin banyak rezeki dan berkah, amin! xemoticonx xemoticonx
+Muncar, pusatnya ikan segar! Terima kasih Bu Khofifah atas dukungannya pada nelayan dan pedagang lokal xemoticonx xemoticonx xemoticonx
+Terima kasih Bu Khofifah sudah hadir di tengah-tengah nelayan dan pedagang, semoga ekonomi lokal semakin berkembang! xemoticonx xemoticonx
+Doa terbaik untuk para nelayan Muncar! Semoga selalu diberi kesehatan dan rezeki yang melimpah, amin! xemoticonx xemoticonx
+Berkah
+Khofifah-Emil lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Banyuwangi menyala bersama Bunda xemoticonx
+Bu, tidak ingin sidak ke SMA negeri? xemoticonx
+Produksi ikan daging dan beras tertinggi nasional tapi warganya masih banyak makan nasi aking pakai garam
+Banyuwangi 02 xemoticonx xemoticonx
+Pasti menang 02 xemoticonx xemoticonx
+Banyuwangi pasti 02
+Menang mutlak
+02 di hati xemoticonx xemoticonx
+Bismillah menang 02
+Dua menggema di mana-mana
+Mutlak 02
+Dua pasti menang xemoticonx xemoticonx
+Lanjutkan nomor dua, Anda adalah ibu kami orang-orang Jawa Timur, tidak perlu marah-marah untuk jadi pemimpin yang baik
+Harga beras dengan minyak belum turun sudah ganti program saja, Anda Bu, aduh
+Yang didatangi rakyat yang berpenghasilan tetap melulu, yang berpenghasilan tidak pasti dilupakan
+Waktu mau menambah periode saja mau turun ke pasar yang periode kemarin, Anda ke mana Bu tidak muncul
+Ya begini ini kalau ada maunya saja turun langsung ke lapangan, nanti giliran sudah enak saja dilupakan
+Sudah cukup satu periode saja, mau jadi apa Jawa Timur kalau mau lanjut dua periode
+Orang tidak bisa kerja adanya hanya ria-ria begini
+Haha lucu beliau ini, giliran cari suara langsung turun ke lapangan
+Posting hasil kerja dong, orang kok bisanya kunjungan sana sini
+Posting hasil kerjanya mana ya, yang dipos kok kunjungan sana sini
+Ada-ada saja, orang ya besok tidak dikerjakan saja lo
+Sudah cukup Bu, sudah bosan kerjanya Anda lalu tidak ada yang dibalas
+Aku milih lainnya saja, ini jelas tidak masuk akal
+Nomor dua datang kalau waktu ada maunya hiya hiya xemoticonx
+Tidak pandang bulu katanya, orang kesejahteraan saja masih tidak merata xemoticonx
+Mau berharap apa, kegiatan seperti ini hanya pemanis, selanjutnya tidak bakal konsisten dan tidak ada kontribusinya
+Banyak buzzer-nya ya komentar, sukses Bu
+Kalau dekat pemilu saja blusukan xemoticonx
+Iya lah ramah, kan ada maunya xemoticonx
+Di pasar terus kawan, kemarin di mana saja
+Apa ya yang mau dilanjutkan di kepemimpinan beliau
+Dua selalu menggema
+Menyala 02
+xemoticonx xemoticonx bismillah
+Kegiatan seperti ini penting untuk meningkatkan perekonomian lokal
+Inisiatif yang luar biasa untuk mendukung ekonomi lokal
+Rasa cinta pada rakyat tampak jelas dari sikap beliau
+Kepemimpinan yang merakyat, semoga terus berlanjut
+xemoticonx xemoticonx xemoticonx semoga memimpin untuk kedua kalinya Bu Khofifah dan Emil Dardak xemoticonx xemoticonx
+Kunjungannya hanya ketika kampanye
+Hanya janji-janji manis saja
+Turun ketika kampanye
+Jangan salah pilih, nanti takutnya kalau sudah menang seperti periode kemarin
+Alhamdulillah, akhirnya turun ke masyarakat setelah satu periode tidak tahu keberadaannya
+Itu memang blusukan atau sudah disetting sebelumnya ya
+Kebanyakan janji Bu kasihan rakyatnya
+Janji melulu tapi waktu jadi lupa dengan janjinya
+Tidak begitu itu Bu banyak bicara saja tidak ada kenyataan
+Khofifah Emil lanjutkan xemoticonx xemoticonx
+Menyala 02 xemoticonx xemoticonx
+02 semakin menyala xemoticonx
+Hanya orang tertentu yang memilih beliau tapi tidak dengan prestasinya, Jawa Timur butuh perubahan
+Jawa Timur butuh orang yang tegas, cerdas xemoticonx tanggung jawab dengan gagasan xemoticonx progressnya, Bu Khofifah banyak tugas yang belum terselesaikan kemarin
+Masih banyak pekerjaan rumah xemoticonx kepengin mau jadi lagi jangan ya Bu ya
+Jawa Timur maju bersama Bu Risma xemoticonx xemoticonx
+Ikan asin jambal putih memang juara! Rasanya yang khas selalu bikin nagih, apalagi kalau dimasak dengan petai, makin mantap
+Favorit sekali, ikan asin jambal dari Muncar
+Rindu rasanya! Ikan asin ini memang selalu jadi favorit, terima kasih Bu Khofifah atas dukungannya
+Lezat, gurih, dan serbaguna! Ikan asin jambal putih dari Muncar tidak hanya enak, tapi juga mendukung perekonomian lokal
+Jambal Muncar memang paling terbaik
+Bu Khofifah, terima kasih telah membawa perhatian pada kuliner lokal, ikan asin ini adalah salah satu yang terbaik!
+Hmm enak sekali Bu itu gurih pasti
+Wah, langsung ngiler melihat jambal ini! Pasti gurih sekali apalagi kalau dimasak balado atau dicampur petai! xemoticonx xemoticonx xemoticonx
+Semangat Ibu untuk memajukan UMKM lokal sangat inspiratif! Ikan asin ini buktinya
+Ikan asin jambal putih bukan hanya lezat, tapi juga mendukung ekonomi lokal, semangat terus Bu Khofifah
+Orang Jawa Timur beneran ini Bu Khofifah, pasti enak sekali rasanya
+Ikan asin jambal Muncar memang juara! Bangga sekali dengan produk lokal yang bisa go internasional! xemoticonx xemoticonx xemoticonx
+Ikan asin jambal Muncar, andalan sekali
+Asli ikannya enak sekali
+Ikan asin jambal putih Muncar selalu jadi andalan kalau mau masak yang praktis tapi lezat, super recommended
+Resep andalan xemoticonx jambal Muncar xemoticonx petai, siap-siap bikin lidah goyang
+Jambal putih Muncar memang salah satu kebanggaan Banyuwangi
+Bangga dengan produk lokal seperti ikan asin jambal putih dari Muncar, rasanya lezat dan mendukung UMKM, combo sempurna
+Bu Khofifah pemimpin terbaik Jawa Timur
+Aduh, ikan asin jambal dari Muncar memang tidak ada lawannya
+Asli Banyuwangi punya
+Ikan jambal putih memang juara xemoticonx
+Ikan asin jambal putih dari Banyuwangi memang beda
+Tidak bisa menolak ikan asin jambal Muncar, gurihnya khas sekali
+Ibunya UMKM Jawa Timur
+Produk Jawa Timur memang tidak kaleng-kaleng
+Selamat Bapak Jenderal xemoticonx
+Selamat untuk Pak Prabowo dan Mas Gibran
+Selamat untuk Pak Prabowo dan Mas Gibran! Semoga amanah dan membawa kemajuan bagi seluruh rakyat Indonesia xemoticonx xemoticonx xemoticonx
+Selamat kepada Bapak Prabowo dan Bapak Gibran! Semoga kepemimpinan baru ini membawa Indonesia semakin maju dan sejahtera, kami siap mendukung
+Kami bangga dengan pencapaian Pak Jokowi dan KH Ma'ruf Amin, kini mari kita songsong masa depan yang cerah bersama Pak Prabowo dan Mas Gibran, sukses selalu
+Selamat atas pelantikannya, warga Jawa Timur siap mendukung
+Terima kasih kepada Bapak Jokowi dan KH Ma'ruf Amin, kepemimpinan mereka telah memberikan banyak manfaat bagi kita semua
+Selamat Pak Prabowo dan terima kasih Pak Jokowi untuk pengabdiannya 10 tahun untuk Indonesia
+Terima kasih Pak Jokowi dan KH Ma'ruf Amin atas dedikasinya, semoga estafet pembangunan semakin lancar di tangan Pak Prabowo dan Mas Gibran xemoticonx xemoticonx
+Prabowo saya yakin orangnya tulus
+Terima kasih Pak Jokowi dan KH Ma'ruf Amin! Semoga Pak Prabowo dan Mas Gibran dapat melanjutkan pembangunan dengan sukses xemoticonx xemoticonx
+Terima kasih Pak Jokowi dan selamat Pak Prabowo
+Membawa perubahan positif untuk seluruh rakyat Indonesia xemoticonx
+Indonesia menuju masa depan yang cerah! Terima kasih untuk Pak Jokowi dan KH Ma'ruf Amin atas semua usaha kerasnya xemoticonx xemoticonx
+Semoga kepemimpinan Pak Prabowo dan Mas Gibran membawa perubahan besar bagi Indonesia, terima kasih Pak Jokowi atas pengabdiannya! xemoticonx xemoticonx xemoticonx
+Mari bersama mendukung langkah-langkah baru demi kemajuan bangsa
+Terima kasih Pak Jokowi dan selamat Pak Prabowo
+Selamat mengemban amanah Pak Prabowo Mas Gibran xemoticonx
+Kami melihat dari TV, tidak terasa air mata menetes, presiden terbaik, sabar dan membungkam semua hater dengan prestasi, sehat selalu Pak dan Ibu, sehat selalu dan panjang umur, amin
+Selamat bekerja Pak Prabowo xemoticonx xemoticonx
+Mari bersama-sama membangun Indonesia menjadi lebih baik
+Semoga kepemimpinan baru membawa semangat baru, terima kasih Pak Jokowi
+Harapan besar untuk Indonesia lebih maju
+Kami dukung dengan penuh semangat
+Presidennya Prabowo, gubernurnya Bu Khofifah xemoticonx xemoticonx
+Terima kasih Pak Jokowi, selamat atas pelantikannya Pak Prabowo xemoticonx xemoticonx
+Saya menangis terharu melihat perpisahan Pakde xemoticonx xemoticonx
+Pemimpin baru harapan baru xemoticonx
+Selamat bekerja Jenderal
+Selamat Pak xmentionx semoga tegas memberantas korupsi, tidak ada lagi tempat berlindung bagi para koruptor
+Selamat atas pelantikannya Pak
+Selamat untuk Pak Prabowo dan Mas Gibran semoga amanah
+Semoga dengan kepemimpinan Pak Prabowo dan Mas Gibran, Indonesia semakin bersatu dan maju, terima kasih Pak Jokowi atas kontribusinya selama ini xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat atas pelantikan Pak Prabowo dan Mas Gibran! Kami di Jawa Timur siap mendukung penuh demi Indonesia yang lebih baik xemoticonx xemoticonx
+Selamat kepada Bapak Prabowo dan Mas Gibran! Semoga kepemimpinannya membawa Indonesia semakin maju dan sejahtera! xemoticonx xemoticonx xemoticonx
+Indonesia butuh pemimpin yang kuat dan visioner seperti Pak Prabowo dan Mas Gibran, selamat memimpin negeri tercinta! xemoticonx xemoticonx xemoticonx
+Kepemimpinan adalah amanah, dan hari ini amanah itu diberikan kepada Pak Prabowo dan Mas Gibran, selamat bertugas!
+Sukses selalu Pak Prabowo xemoticonx xemoticonx
+Selamat Pak Jenderal
+Alhamdulillah berkah maslahat datang umat, amin
+Ibu xmentionx tercantik dan tercerdas di Jawa Timur xemoticonx xemoticonx xemoticonx bismillahirrahmanirrahim gubernur sedikit lagi Bu xemoticonx xemoticonx
+Assalamualaikum Ibu Khofifah, semoga Allah selalu memberi kesehatan untuk Ibu dan lancar dalam tugas
+Habis ini anda Bu xemoticonx xemoticonx
+Tetap saja Mbak judul boneka partai xemoticonx
+Selamat Pak Prabowo dan Mas Gibran xemoticonx
+Pendukung setia Pak Prabowo hadir
+Warga Jawa Timur senang negeri ini dipimpin Prabowo
+Maju Jawa Timur hebat Indonesia ku
+Berikan kemudahan kepada pemimpin kami ya Allah
+Keduanya orang baik tulus dukung kemajuan Indonesia
+Kami warga Ngawi Jawa Timur juga siap mencoblos Bu Khofifah lagi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Mantap Pak Prabowo
+Kita tunggu 100 hari kerja Pak Prabowo optimis makin maju
+Dengar-dengar ada masalah tentang pelanggaran hak karyawan yang dilakukan oleh salah satu perusahaan kecantikan yang berlokasi di Kepanjen Malang dan sudah berkonsultasi dengan pihak Disnaker tapi setelah dua bulan lebih belum ada titik terangnya jelas pihak karyawan sudah menyodorkan beberapa bukti pelanggaran yang sudah dilakukan pihak perusahaan mohon segera dilakukan penyelesaian masalah yang ada karena kita sama-sama tahu bahwa salah satu kegunaan didirikannya Kantor Disnaker adalah untuk menyelesaikan hal seperti ini jangan sampai ada hak tenaga buruh yang dieksploitasi xmentionx
+Sukses selalu untuk Pak Prabowo dan Mas Gibran Jawa Timur siap berkontribusi dalam mewujudkan visi Indonesia yang lebih baik xemoticonx
+Terima kasih kepada Pak Jokowi dan KH Ma'ruf Amin atas dedikasinya selama ini semoga pembangunan yang sudah dijalankan terus berlanjut demi kemajuan bangsa xemoticonx
+Selamat kepada pemimpin baru Indonesia semoga membawa semangat persatuan dan kebersamaan untuk mencapai Indonesia Emas 2045
+Pemimpin baru harapan baru semoga Pak Prabowo dan Mas Gibran mampu mewujudkan Indonesia yang lebih sejahtera dan berkeadilan bersama kita bisa
+Terima kasih kepada Pak Jokowi dan KH Ma'ruf Amin atas kepemimpinan yang penuh pengabdian semoga estafet pembangunan dilanjutkan dengan baik oleh Pak Prabowo dan Mas Gibran
+Selamat kepada Bapak Prabowo dan Bapak Gibran semoga kepemimpinan mereka membawa perubahan yang signifikan bagi bangsa
+Kebersamaan dan persatuan adalah kunci dukungan dari Jawa Timur sangat berarti untuk kemajuan Indonesia
+Semoga dengan pelantikan ini Indonesia makin maju dan sejahtera bersama kita bisa
+Dukungan Jawa Timur untuk pembangunan adalah langkah yang sangat positif mari kita wujudkan harapan bersama
+Kita semua berharap pelantikan ini menjadi awal yang baik untuk masa depan Indonesia yang lebih cerah
+Selamat kepada pemimpin baru semangat kebersamaan akan membawa kita menuju kemajuan yang lebih besar
+Terima kasih kepada para pemimpin sebelumnya semoga setiap langkah selanjutnya membawa manfaat bagi masyarakat
+Dengan dukungan dari seluruh daerah kita bisa bersama-sama mewujudkan Indonesia yang sejahtera dan berdaya saing
+Kerja keras para pemimpin kita patut dihargai semoga pembangunan yang telah dilakukan dapat terus berlanjut
+Kepemimpinan yang hebat datang dari kerja sama yang kuat kami mendukung penuh langkah Pak Prabowo dan Mas Gibran untuk Indonesia yang lebih maju xemoticonx
+Dengan semangat kebersamaan mari kita lanjutkan pembangunan yang sudah dimulai terima kasih Pak Jokowi dan KH Ma'ruf Amin serta selamat memimpin Pak Prabowo dan Mas Gibran xemoticonx
+Semoga di bawah kepemimpinan Pak Prabowo dan Mas Gibran Indonesia makin solid sejahtera dan berdaya saing tinggi Jawa Timur mendukung penuh xemoticonx
+Pak Jokowi presidenku selamanya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat dan sukses atas pelantikan beliau berdua sebagai presiden dan wakil presiden
+Contoh seakan orang saleh yang lolos dari jerat hukum contoh kamuflase politik di negara tak berpendirian
+Selamat begitu juga Ibu mudah-mudahan bisa terpilih lagi dan bisa membenahi pulau kami Masalembu Ibu
+Karena tanpa Ibu Masalembu tidak akan tersentuh tapi Ibu turun melihat langsung yang paling parah di Sukajeruk
+Seperti dua tahun kemarin ada berita kalau Ibu mau turun tapi permainan nakhoda semua mengatakan ombak setinggi tiga meter tapi semua kongkalikong nakhoda jadi kalau Ibu mau turun langsung saja Ibu jangan mau mendengar dari mereka karena itu semua maling alias takut ketahuan langsung pakai kapal TNI Ibu dan jangan diberitahu oleh petugas karena kalau diinformasikan mereka pasti akal-akalan lagi
+Selamat untuk Pak Prabowo semoga Indonesia lebih maju dan rakyatnya makmur xemoticonx
+Semoga dengan dilantiknya Pak Prabowo dapat membuat perubahan bagi Indonesia
+Selamat Pak Prabowo dan Pak Gibran xemoticonx
+Semoga dengan Pak Prabowo dan Pak Gibran dapat memberikan perubahan yang lebih baik bagi Indonesia
+Pajak mobil di Jawa Timur turunkan Bu Khofifah
+Selamat Pak Prabowo semoga amanah
+Terima kasih Pak Jokowi xemoticonx xemoticonx
+Selamat Pak Prabowo dan Mas Gibran semoga jadi presiden dan wakil presiden terbaik xemoticonx
+Terima kasih juga Pak Jokowi Bapak infrastruktur jasamu tidak akan kami lupakan Pak xemoticonx xemoticonx
+Selamat Prabowo Gibran semoga amanah xemoticonx
+Terima kasih banyak Pak Jokowi xemoticonx xemoticonx xemoticonx
+Terima kasih untuk Pak Jokowi xemoticonx xemoticonx
+Selamat bertugas Prabowo Gibran xemoticonx
+Selamat Pak Prabowo dan Mas Gibran semoga amanah ya
+Terima kasih Pak Jokowi sudah jadi pahlawan bangsa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat Pak Prabowo dan Mas Gibran xemoticonx xemoticonx
+Terima kasih juga untuk Pak Jokowi xemoticonx xemoticonx xemoticonx
+Terima kasih Pak Jokowi xemoticonx
+Selamat bertugas Pak Prabowo xemoticonx
+Selamat Pak Prabowo
+Terima kasih Jokowi
+Terima kasih Pak Jokowi xemoticonx
+xmentionx komisi mengenai bahan tambang
+Keberadaan Bu Khofifah di acara seperti ini selalu memberikan energi positif
+Pesan yang sangat inspiratif Bu Khofifah humor memang kunci kebahagiaan dalam rumah tangga
+Senang melihat Bu Khofifah selalu memberikan dukungan positif pada acara pernikahan
+Keren sekali tipsnya Bu humor dan makan malam kompak pasti bikin rumah tangga harmonis semoga mereka bahagia selalu xemoticonx xemoticonx xemoticonx
+Selamat atas pernikahan Fikri dan Ailsa semoga selalu dipenuhi cinta dan kebahagiaan
+Selamat untuk pasangan baru dengan dukungan dari sosok seperti Bu Khofifah pasti akan makin bahagia
+Cinta dan komunikasi memang penting tapi humor pasti membuat suasana makin ceria
+Tips yang sangat bijak semoga pasangan baru ini bisa mengaplikasikannya dengan baik
+Humor dan makanan memang resep rumah tangga bahagia terima kasih Bu Khofifah atas inspirasinya xemoticonx xemoticonx xemoticonx
+Pernikahan ini semoga membawa berkah
+Alhamdulillah selamat ya xemoticonx semoga sakinah mawadah warahmah ya putra putri Abah Arum Sabil
+Selamat menempuh hidup baru semoga cinta kalian selalu hangat dan indah selamanya
+Pernikahan yang indah adalah tentang memahami satu sama lain dan tumbuh bersama
+Sakinah mawadah warahmah amin
+Selamat menikah semoga hari-hari kalian ke depan selalu penuh dengan kebahagiaan
+Bu Khofifah terima kasih atas inspirasi dan dukungan yang selalu diberikan kepada generasi muda
+Selamat untuk pasangan bahagia semoga cinta kalian selalu menginspirasi orang di sekitar
+Semoga cinta kalian terus tumbuh dan makin kuat dalam ikatan pernikahan ini
+Selamat menempuh hidup baru semoga pasangan ini selalu diberi kebahagiaan dan keberkahan xemoticonx xemoticonx
+Kebersamaan dan kompak dalam memilih menu malam ide yang sangat menarik
+Saya tidak diundang Bu
+Semoga perjalanan baru kalian selalu penuh dengan cinta dan kebahagiaan
+Semoga cinta Fikri dan Ailsa bisa selalu tumbuh dan bersemi seperti yang Bu Khofifah harapkan
+Cinta sejati adalah ketika kamu menemukan seseorang yang membuat hidup lebih indah setiap harinya
+Cantik sekali Bu Khofifah
+Semoga rumah tangganya diberkahi selalu amin
+Bahagia selalu xemoticonx xemoticonx
+Pernikahan adalah perjalanan bukan tujuan akhir setiap hari adalah kesempatan untuk saling memahami lebih dalam
+Pernikahan adalah perjalanan bersama saling mendukung di setiap langkah kehidupan
+Selamat menempuh hidup baru
+Bahagia selalu untuk semua
+Pernikahan adalah janji untuk bersama dalam suka dan duka dalam tawa dan air mata
+Turut berbahagia
+Langgeng pernikahannya
+Pernikahan bukan akhir dari cerita cinta tapi awal dari petualangan yang baru
+Langgeng terus
+Langgeng selalu xemoticonx
+Tips yang sangat membantu kita semua terima kasih Bu Khofifah
+Setuju sekali Bu humor dalam rumah tangga itu penting agar tidak bosan semoga pernikahan mereka langgeng selalu xemoticonx xemoticonx xemoticonx
+Semoga cinta kalian tumbuh dan berkembang seiring waktu
+Dekorasi bunganya indah sekali suasananya begitu romantis
+Pernikahan bukan hanya tentang dua orang tapi tentang menyatukan dua hati dan dua keluarga
+Selamat menempuh hidup baru semoga selalu diberkati dengan cinta dan kebahagiaan
+Masyaallah cantik sekali pengantinnya
+Sakinah mawadah warahmah semoga yang belum menyusul
+Pernikahan hal yang sakral
+Kebaya pengantin wanitanya cantik sekali detailnya luar biasa
+Wah tips dari Bu Khofifah selalu inspiratif semoga pasangan baru ini selalu bahagia dan penuh cinta xemoticonx xemoticonx xemoticonx
+Mau tanya dong bagaimana ya cara menghilangkan perut buncit yang efektif saya merasa kurang nyaman sekali akhir-akhir ini xemoticonx
+Matur sembah nuwun Ibu sehat selalu xemoticonx xemoticonx
+Pernikahan adalah komitmen untuk selalu bersama saling menghargai dan mendukung
+Ketika dua hati bersatu cinta yang tulus akan selalu menemukan jalannya xemoticonx
+Sehat selalu Ibu xemoticonx xemoticonx cantik sekali
+Pernikahan ada hal yang menyempurnakan ibadah kita
+Pasangan yang tampak bahagia semoga pernikahan ini langgeng
+Pernikahan kalian semoga diberkahi Allah SWT
+Selamat untuk pasangan pengantin baru semoga langgeng dan selalu dalam lindungan Allah SWT xemoticonx xemoticonx
+Semoga sakinah mawadah warahmah pernikahannya
+Mas Anang dan Mbak Ashanty memang pasangan inspiratif semoga pasangan baru ini juga bisa kompak seperti mereka xemoticonx xemoticonx
+Selamat menempuh hidup baru semoga bahagia selalu
+Cantiknya Ibu xemoticonx
+Semoga setiap momen dalam pernikahan ini penuh dengan cinta tawa dan kebahagiaan
+Semoga pernikahan ini menjadi awal dari kebahagiaan yang tak pernah berakhir
+Bu Khofifah selalu menginspirasi semoga sehat selalu
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Bu Nyai Gubernur xemoticonx xemoticonx
+Pasangan yang sangat serasi semoga langgeng sampai kakek nenek
+Hawa tercipta di dunia untuk menemani sang Adam
+Semoga pernikahan mereka selalu harmonis dan penuh kebahagiaan seperti tips dari Bu Khofifah xemoticonx xemoticonx
+Salut dengan pasangan ini semoga sakinah mawadah warahmah
+Pernikahan penuh cinta dan humor pasti langgeng selamat untuk pasangan baru semoga bahagia selalu xemoticonx xemoticonx
+Semoga jadi keluarga yang sakinah mawadah warahmah xemoticonx xemoticonx
+Ikut senang melihat dua insan saling mencintai dan melengkapi
+Semoga selalu saling melengkapi dan menguatkan serta tak lupa menghadirkan canda tawa dalam rumah tangga selamat berbahagia
+Minta kaos 02 dipersulit harus ada izin orang dalam bagaimana bisa menang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Semoga pernikahan ini menjadi awal dari babak baru yang penuh kebahagiaan kesuksesan dan cinta yang tak terhingga xemoticonx
+Bismillah lancar sehat selalu xemoticonx xemoticonx
+Alhamdulillah semoga sakinah mawadah warahmah oh ya yang suka dengan barang jadul vintage era 70 80 90 an silakan mampir ya tapi mohon maaf jika banyak yang sold out xemoticonx xemoticonx
+Ungu ungu
+Terima kasih atas kedatangannya Ibu xemoticonx
+Alhamdulillah selamat berbahagia xemoticonx xemoticonx
+Sakinah mawadah warahmah Mbak dan Masnya
+Ikut bersukacita dengan kabar baik yang datang semoga sakinah mawadah warahmah ya
+Sakinah mawadah warahmah dan langgeng sampai akhir hayat
+Sakinah mawadah warahmah
+Selamat menempuh hidup baru semoga rumah tangga selalu dipenuhi dengan cinta kebahagiaan dan keberkahan
+Pernikahan adalah awal dari perjalanan yang indah semoga selalu kompak dan saling mendukung di setiap langkah
+Bersama pasangan yang tepat setiap hari adalah petualangan semoga cinta kalian makin tumbuh dan langgeng selamanya
+Saran yang bijak dan penuh humor selamat berbahagia untuk kedua mempelai semoga langgeng dan selalu kompak
+Komunikasi humor dan makanan lezat sempurna untuk pernikahan bahagia semoga cinta selalu mengiringi hari-hari kalian
+Selamat untuk pasangan baru semoga cinta dan kebahagiaan terus bersemi sepanjang perjalanan hidup kalian bersama
+Saran yang keren sekali semoga kedua mempelai selalu harmonis saling mencintai dan menikmati setiap momen bersama selamat berbahagia xemoticonx
+Pernikahan yang indah selamat menempuh hidup baru semoga kebahagiaan dan cinta selalu bersama kalian sepanjang masa xemoticonx
+Janjian ya Bu Ketua nuansa bajunya sama ungu hahaha
+Amin semoga bahagia lahir batin
+Selamat Pak semoga langgeng ya xemoticonx
+Tuhan memberkati xemoticonx xemoticonx
+Sakinah mawadah warahmah Pak xemoticonx xemoticonx
+Semoga langgeng terus xemoticonx xemoticonx
+Cinta Bu Khofifah xemoticonx xemoticonx
+Semoga sakinah mawadah warahmah Pak
+Selamat Pak
+Semoga sakinah mawadah warahmah
+Sakinah mawadah warahmah Pak
+Sakinah mawadah warahmah
+Luar biasa Bu Khofifah peresmian Bandara Dhoho pasti akan meningkatkan perekonomian masyarakat Kediri
+Inisiatif yang luar biasa ini adalah momen bersejarah bagi Kediri dan sekitarnya
+Harusnya yang ikut hadir pelaksana tugas gubernur bukan Khofifah xemoticonx
+Alhamdulillah semoga Bandara Dhoho Kediri membawa banyak manfaat bagi masyarakat dan meningkatkan perekonomian Jawa Timur xemoticonx xemoticonx
+Bandara Dhoho adalah langkah besar untuk memajukan wilayah selatan Jawa Timur sangat menginspirasi
+Jawa Timur makin mendunia
+Luar biasa Bandara Dhoho siap menggerakkan ekonomi Jawa Timur selatan xemoticonx xemoticonx xemoticonx
+Semangat untuk pembangunan yang merata di Jawa Timur terima kasih Bu Khofifah atas komitmen Anda
+Bagus sekali akhirnya ada bandara internasional di Kediri
+Kebijakan yang tepat untuk mendukung kesejahteraan masyarakat bravo Bu Khofifah
+Dengan adanya bandara ini aksesibilitas dan peluang ekonomi akan makin terbuka terima kasih Bu Khofifah
+Langkah yang sangat visioner Bandara Dhoho akan membawa banyak manfaat bagi masyarakat
+Bandara Dhoho Kediri akan jadi kebanggaan baru Jawa Timur semoga sukses dan bermanfaat untuk masyarakat xemoticonx xemoticonx xemoticonx
+Selangkah lebih maju terima kasih Khofifah atas Bandara Dhoho xemoticonx xemoticonx
+Terima kasih atas kehadiran dan dukungannya Ibu xmentionx xemoticonx xemoticonx
+Semoga harga tiketnya murah agar semua kalangan bisa menikmati
+Menyala Kediri ku xemoticonx xemoticonx
+Lebih mudah untuk akses ke selatan Jawa Timur nih
+Pemerataan pembangunan makin nyata dengan peresmian Bandara Dhoho xemoticonx xemoticonx
+Pembangunan bandara bukti nyata pemerataan pembangunan di Jawa Timur
+Maju terus Jawa Timur Bandara Dhoho jadi penghubung masa depan cerah xemoticonx xemoticonx xemoticonx
+Semoga dengan bandara ini perekonomian Jawa Timur makin meningkat
+xemoticonx xemoticonx xemoticonx Bu Khofifah untuk Jawa Timur satu
+Pembangunan terus progresif di Jawa Timur xemoticonx
+Haduh malah meresmikan bandara padahal tidak menjabat apa-apa aneh sekali SMA itu lo yang masih bayar penting itu diurus jangan tutup mata bisanya buat konten saja pencitraan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Wah gila keren sekali
+Semoga bisa membuka lowongan pekerjaan untuk masyarakat setempat
+Kediri akan lebih banyak dikenal orang
+Bandara terbaik di Jawa Timur
+Peresmian ini menunjukkan dedikasi Bu Khofifah dalam memajukan daerah semangat terus
+Wah bagus sekali
+Kesejahteraan masyarakat pasti akan meningkat selamat atas pencapaian ini Bu Khofifah
+Luar biasa gubernur saya
+Orang Kediri tambah luar biasa ini
+Pembangunan yang inklusif dan berkelanjutan terima kasih Bu Khofifah untuk semua usaha Anda
+Harapannya bandara ini juga bisa meningkatkan perekonomian UMKM di sekitar Kediri
+Pembangunan makin oke di tangan Bu Khofifah
+Jawa Timur makin terbaik memang xemoticonx
+Gas penuh terus Bu Khofifah xemoticonx
+Khofifah bawa perubahan besar untuk masyarakat Jawa Timur Selatan! xemoticonx xemoticonx
+Bandara baru, harapan baru untuk ekonomi dan kesejahteraan Jawa Timur! xemoticonx xemoticonx xemoticonx
+Bandara Dhoho, simbol pemerataan pembangunan di Jawa Timur! xemoticonx xemoticonx
+Tol Kertosono - Kediri sampai sekarang bagaimana progresnya? Lama sekali tidak jadi-jadi.
+Pemerataan pembangunan lanjutkan Ibu xemoticonx xemoticonx xemoticonx xemoticonx
+Priiittt.... Offside!
+Jawa Timur makin maju dan berkembang di bawah kepemimpinan Bu Khofifah
+Bu Khofifah berhasil membawa Jawa Timur menjadi provinsi yang lebih modern dan inovatif
+Makin terlihat kemajuan Jawa Timur di berbagai sektor dengan kerja keras Bu Khofifah
+Bu Khofifah selalu hadir dengan solusi untuk menjadikan Jawa Timur lebih baik dan sejahtera
+Kehadiran Bandara Dhoho bakal jadi penggerak ekonomi daerah! xemoticonx xemoticonx
+Bu Khofifah hadirkan fasilitas strategis untuk kesejahteraan masyarakat! xemoticonx xemoticonx xemoticonx
+Jawa Timur Selatan kini lebih terhubung, terima kasih Bandara Dhoho! xemoticonx xemoticonx xemoticonx
+Lanjutkan Khofifah
+Mantap sekali deh, ada bandara di Kediri ini
+Semoga Bandara Dhoho Kediri menjadi titik penting bagi pertumbuhan ekonomi dan aksesibilitas Jawa Timur bagian selatan! xemoticonx xemoticonx
+Jawa Timur maju bersama Bu Khofifah yang punya visi dan kepemimpinan kuat
+Bangga menjadi warga Jawa Timur yang dipimpin oleh Bu Khofifah, sosok yang selalu mengutamakan rakyat.
+Di bawah kepemimpinan Bu Khofifah, Jawa Timur makin sejahtera dan terus berinovasi
+Bu Khofifah membawa Jawa Timur menuju kemajuan yang nyata di berbagai bidang
+Luar biasa! Peresmian Bandara Dhoho Kediri ini pasti akan membawa perubahan besar bagi perekonomian wilayah sekitarnya. xemoticonx xemoticonx xemoticonx
+Terima kasih Bu Khofifah sudah memimpin Jawa Timur dengan dedikasi dan kepemimpinan yang luar biasa
+Bandara baru, peluang baru! Semoga Bandara Dhoho bisa mendukung ekonomi dan meningkatkan kesejahteraan masyarakat Jawa Timur. xemoticonx xemoticonx xemoticonx
+Selamat atas peresmian Bandara Dhoho Kediri! Semoga menjadi penghubung penting untuk pembangunan di wilayah selatan. xemoticonx xemoticonx
+Bandara Dhoho Kediri diresmikan! Semoga meningkatkan akses dan pemerataan pembangunan di seluruh Jawa Timur. xemoticonx xemoticonx
+Luar biasa, Bu Khofifah! Semoga Bandara Dhoho Kediri membawa kesejahteraan dan meningkatkan mobilitas ekonomi daerah. xemoticonx xemoticonx
+Kok bisa aku tidak tahu kalau hari ini peresmian xemoticonx padahal dekat sekali dengan rumah
+Top... dua periode... Lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx
+Banyak bandara namun manfaatnya juga tidak terasa Trunojoyo Madura, Bawean, Banyuwangi, Kediri dan di Jawa Tengah ada bandara Ngloram Cepu bisakah dihitung tiap tahunnya berapa pengunjung dan berapa pesawat yang mendarat di bandara tersebut mending perbaiki jalan penghubung antar desa Bu xmentionx xmentionx xemoticonx
+Kalau bisa ada penerbangan Kediri ke Brunei, Taiwan dan lain-lain, karena rata-rata masyarakat Jawa Timur selatan banyak yang bekerja menjadi TKI
+Jawa Timur makin terkonektivitas dengan global
+Ekonomi optimis tergerak
+Makin maju Jawa Timur
+Jawa Timur gerbang Nusantara bisa terwujud
+Semoga bandara ini banyak mendatangkan banyak manfaat
+Maju terus Kediri dan sekitarnya
+Terima kasih Bu Khofifah Jawa Timur makin maju
+Ekonomi bergerak pastinya
+Makin maju Jawa Timurku xemoticonx xemoticonx
+Mantap Jawa Timurku makin maju
+Gas dukung penuh 02
+Itu terwujud berkat kepiawaian gubernur kebanggaan kita ... sukses selalu Ibu
+Jawa Timurku makin maju xemoticonx xemoticonx xemoticonx xemoticonx
+Kerja bagus Jawa Timur
+Makin menyala
+Jawa Timur Maju Berprestasi
+Lah dia siapa xemoticonx
+Dari semua postingan hanya pencitraan tidak ada pembangunan sama sekali
+Hanya swasta yang bisa bangun bandara begini xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx sekelas internasional pula xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+GUDANG GARAM MENYALA xemoticonx xemoticonx
+Klaim prestasi xemoticonx
+Tiket dalam negeri mahal sekali Bu
+Bandaranya kan sudah beroperasi sudah lama kok baru diresmikan?? Lagian Jawa Timur lagi dipegang Pelaksana Jabatan mengapa Pelaksana Jabatannya tidak hadir?? xemoticonx xemoticonx
+Tetap energik... Semangat terus ya Ibu.
+Pret lah. Jalan provinsi tidak ada perubahan, macet, rusak
+Bandara Kediri itu, jasanya Gudang Garam untuk mempermudah aksesnya. Khofifah lo, tidak punya peran apa-apa di sana. Hanya menumpang saja
+Gudang Garam yang menopang perekonomian Kediri dan sekitarnya,
+Netizen yang suka mengkritik... dibaca dulu itu... memang ada tulisannya gubernur...? xemoticonx Suka-suka lah diundang ke Kediri oleh bos GG... kalau iri bilang saja... astaghfirullah... buruk sangka jangan dipelihara.. xemoticonx
+Kediri titik ekonomi baru
+Halo Khofifah, mau tanya ini. Saat debat kemarin sungguh luar biasa, menggunakan data Indikator Kinerja Utama atau IKU yang jelas-jelas tidak tercapai. Saat Khofifah mengatakan Indeks Rasio Gini dan Indeks Steil, lah itu kan dua IKU yang bahkan sampai 2023 saja tidak mencapai target, berdasarkan data dari https xemoticonx xemoticonx xemoticonx sipd.go.id xemoticonx justru tahun 2023 Rasio Gini meningkat, artinya kesenjangan itu makin lebar di 2023. Ditekan angkanya dari mana?
+Bismillah harga Gudang Garam tidak naik, kalau bisa turun hehe
+Ikut nebeng pencitraan sepertinya xemoticonx
+Bukannya sekarang Plt-nya Pak Adi Karyono ya
+Kalau masih ada Ibu Khofifah mengapa orang lain xemoticonx xemoticonx xemoticonx terus aku tetap Ibu gubernurku
+Kediri raya makin maju amin
+Lanjutkan Bu, sudah kerja nyata
+xemoticonx xemoticonx xemoticonx xemoticonx jaya xemoticonx xemoticonx xemoticonx xemoticonx
+Kalau peresmian pasti Ibu ini tidak pernah ketinggalan
+l
+L
+Bisa saja ya permainan politik xemoticonx bukannya sudah ada Plt Gubernur Jawa Timur. Masa begini mainnya Bu? Tidak salah sih, tidak beretika saja xemoticonx Tidak termasuk strategi xemoticonx menghalalkan segala cara xemoticonx juga karena halal-halal saja. Tidak beretika saja sih
+Mantap Jawa Timur makin di depan xemoticonx xemoticonx xemoticonx
+Wah mantap ini, transportasi makin maju xemoticonx xemoticonx
+Jawa Timur makin maju saja
+Bismillah Khofifah sekali lagi
+Semoga tiketnya tidak mahal... please
+Mantap betul, Jawa Timur makin maju begini ini xemoticonx xemoticonx
+Sukses terus Ibu xemoticonx xemoticonx
+Lanjutkan kemajuan Jawa Timur Bu xemoticonx xemoticonx
+Luar biasa, Bu Khofifah! Anda selalu peduli terhadap perkembangan pendidikan anak-anak kita
+Peran guru sangat penting dalam membimbing anak-anak RA! Semoga sukses selalu Bu Khofifah dan para guru. xemoticonx xemoticonx xemoticonx
+Luar biasa! Semangat yang ditularkan kepada guru RA adalah langkah penting untuk menjaga fondasi pendidikan di tengah arus teknologi
+Bu Khofifah, semangat Anda dalam mendukung guru dan murid sangat menginspirasi! Teruslah berkarya
+Sangat setuju, Bu! Keterampilan menulis tetap penting di era digital. Terima kasih atas dukungannya!
+Lanjutkan Bu Khofifah xemoticonx xemoticonx
+Saya dari Nganjuk hadir Bu... Siap dukung Ibu menang
+Sangat mengagumkan melihat perhatian Anda terhadap aspek sensitivitas dan budaya anak. Bravo, Bu Khofifah!
+Luar biasa, Gebyar Seni dan Olahraga RA bisa menjadi ajang pengembangan bakat anak sejak dini. Semoga makin banyak acara seperti ini
+Gebyar Seni dan Olahraga Raudlatul Athfal pasti penuh kreativitas dan semangat! Selamat untuk semua peserta! xemoticonx xemoticonx
+Terima kasih Bu Khofifah telah peduli dengan pendidikan generasi penerus
+Bu Khofifah, inspirasi untuk pendidikan anak generasi alfa! Terima kasih telah mendorong semangat para guru RA
+Semoga acaranya sukses ya xemoticonx xemoticonx
+Bu Khofifah cocok jadi gubernur lagi xemoticonx
+Kegiatan yang sangat positif tidak hanya mendukung anak dalam olahraga juga dalam kemampuan menulis
+Salut dengan pemimpin ini xemoticonx xemoticonx
+Bu Khofifah, Anda adalah pilar pendidikan yang kuat. Terus dorong kami untuk mencetak generasi berkualitas!
+Bu Khofifah pemimpin peduli dengan guru
+Alhamdulillah, semoga anak-anak generasi alfa bisa tetap semangat belajar menulis di tengah perkembangan teknologi. xemoticonx xemoticonx xemoticonx
+Semangat terus untuk para guru RA! Terima kasih telah membimbing generasi penerus bangsa dengan penuh dedikasi. xemoticonx xemoticonx
+Perhatian yang luar biasa bagi generasi alfa! Mengajarkan menulis sejak dini adalah bekal tak ternilai untuk masa depan mereka.
+Semoga pendidikan Jawa Timur makin maju
+Guru RA mempunyai peranan penting
+Semangat para guru RA dan terus dukung pendidikan di Jawa Timur Bu xemoticonx xemoticonx xemoticonx
+Terima kasih Bu Khofifah karena pendidikan memang penting
+Pengajaran menulis sejak dini adalah fondasi yang kuat. Terima kasih atas perhatian Anda, Bu Khofifah!
+Menulis adalah seni! Terima kasih telah mengingatkan pentingnya mengajarkan anak-anak kita, Bu
+Mengajarkan menulis sejak dini memang penting! Terima kasih Bu Khofifah atas dukungannya pada pendidikan anak-anak. xemoticonx xemoticonx xemoticonx
+Bu Khofifah punya visi jelas untuk membawa Jawa Timur menjadi provinsi terbaik
+Alhamdulillah, kegiatan yang sangat inspiratif! Semoga anak-anak bisa tumbuh dengan kemampuan menulis yang baik meski di tengah era digital
+Kesejahteraan masyarakat dan pertumbuhan ekonomi Jawa Timur sangat terasa di era Bu Khofifah
+Dengan dukungan Anda, generasi alfa akan lebih siap menghadapi tantangan masa depan. Terima kasih, Bu!
+Dukungan Anda untuk pendidikan RA sangat berarti. Semoga semangat ini terus menyebar, Bu Khofifah
+Pendidikan merupakan hal yang sangat penting bagi semua orang, sukses selalu Ibu xemoticonx xemoticonx
+Salut para guru RA tetap berjuang
+Pemimpin yang menginspirasi banyak orang xemoticonx xemoticonx
+Generasi Alfa memang tumbuh di era digital
+Semangat para guru RA
+Mendidik anak di era digital memang butuh pendekatan yang berbeda
+Kegiatan seperti ini yang sangat dinantikan oleh rakyat xemoticonx xemoticonx
+Sehat selalu Bu Khofifah dan Bu guru-guru
+Acara yang sangat bermanfaat
+Betul, setiap anak itu memang harus memiliki kemampuan menulis xemoticonx
+Jawa Timur makin berprestasi di bawah kepemimpinan Bu Khofifah. Lanjutkan!
+Bangga melihat Bu Khofifah membawa Jawa Timur jadi provinsi terdepan dalam banyak sektor
+Bersama Bu Khofifah, Jawa Timur terus maju dan berprestasi di bidang pendidikan dan ekonomi
+Bu Khofifah berhasil meningkatkan kesejahteraan masyarakat Jawa Timur. Teruskan prestasinya! xemoticonx
+Dengan kepemimpinan Bu Khofifah, Jawa Timur makin unggul dalam pembangunan infrastruktur
+Prestasi Jawa Timur di bawah Bu Khofifah sangat luar biasa, semoga makin berjaya
+Bangga menjadi warga Jawa Timur yang dipimpin oleh sosok hebat seperti Bu Khofifah
+Jawa Timur makin maju di berbagai sektor, semua berkat kerja keras Bu Khofifah
+Terus dorong pendidikan Jawa Timur agar makin berkualitas xemoticonx xemoticonx xemoticonx
+Bu Khofifah membawa banyak perubahan positif di Jawa Timur. Terima kasih Bu
+Kemajuan pariwisata dan pertanian di Jawa Timur makin terasa bersama Bu Khofifah
+Pemimpin visioner seperti Bu Khofifah membuat Jawa Timur makin dikenal dengan prestasinya
+Salut untuk Bu Khofifah yang terus mengedepankan kesejahteraan rakyat Jawa Timur. xemoticonx
+Terima kasih Bu Khofifah telah membawa Jawa Timur menjadi provinsi berprestasi di berbagai bidang
+Prestasi pendidikan di Jawa Timur makin meningkat dengan program Bu Khofifah
+Jawa Timur terus berkembang dan makin berprestasi berkat kepemimpinan Bu Khofifah
+Program kesehatan dan sosial Bu Khofifah sangat menginspirasi. Jawa Timur makin berprestasi
+Pemimpin yang hebat membawa Jawa Timur menuju kesuksesan bersama rakyatnya. Terima kasih Bu Khofifah
+Jawa Timur berprestasi, rakyat sejahtera! Semua berkat kepemimpinan Bu Khofifah yang luar biasa
+Menginspirasi sekali! Di era digital, tetap mengajarkan menulis dan menebalkan tulisan adalah upaya menjaga nilai-nilai dasar pendidikan
+Terharu melihat komitmen untuk membangun sensitivitas, budaya, dan keterampilan motorik anak-anak melalui kemampuan menulis
+Pesan penuh makna! Guru RA terus berperan penting dalam membentuk karakter anak bangsa di tengah kemajuan teknologi
+Tindakan nyata yang mengingatkan kita bahwa meski di era AI, kemampuan dasar seperti menulis tetap esensial untuk perkembangan anak-anak.
+Pendidikan anak usia dini sangat penting! Terima kasih Bu Khofifah atas perhatiannya pada generasi alfa. xemoticonx xemoticonx xemoticonx
+Mengajarkan anak-anak menulis sejak dini sangat penting di era digital ini. Terima kasih Bu Khofifah atas perhatiannya! xemoticonx xemoticonx xemoticonx
+Alhamdulillah, semoga makin banyak acara positif seperti ini
+Sudah waktunya ganti gubernur, pilih yang jujur
+Semoga guru-guru di Indonesia makin maju
+Pemimpin yang peduli seni dan olahraga Jawa Timur
+Semangat terus Bu Khofifah xemoticonx xemoticonx
+Di Madura sangat sulit lapangan pekerjaan Bu
+Sangat adem Bu, tetap menyala xemoticonx xemoticonx xemoticonx demi xhashtagx yang tercinta
+Bu... jika terpilih nanti tolong jangan bolehkan musik horeg ada di Jawa Timur sudah itu saja
+Rusak xemoticonx xemoticonx
+Sepakat
+Lanjutkan sekali lagi Bu Khofifah
+Luar biasa melihat semangat anak-anak di acara Gebyar Seni dan Olahraga Raudlatul Athfal
+Acara ini benar-benar menginspirasi, anak-anak menunjukkan bakat mereka dengan penuh percaya diri
+Bu Khofifah pemimpin peduli dengan nasib guru
+Guru pasti bisa bangun bangsa berkualitas
+Semoga Bu Khofifah diberkahi langkahnya
+Menyala Ibuku xemoticonx xemoticonx
+Selalu ada saja pembangunannya xemoticonx xemoticonx xemoticonx
+Muslimat dukung penuh 02
+AI buang saja
+Bu Khofifah semua keluarga saya mendukung anda terus lanjut GUBERNUR JAWA TIMUR PERIODE KEDUA SEMOGA SUKSES AMIN
+Pendidikan memang penting Bu... Tapi tolong lihat juga yang mencari rupiah untuk biaya pendidikannya xemoticonx
+Semoga guru-guru RA makin sejahtera
+Menyala Ibuku xemoticonx
+Mantap betul Ibu xemoticonx xemoticonx xemoticonx
+Bismillah dua menang xemoticonx xemoticonx
+Tetap semangat Ibu xemoticonx xemoticonx
+Motivasi yang bagus
+Menyala xemoticonx xemoticonx
+Lanjutkan
+Bu Khofifah mewakili pesisir, Mas Emil mewakili pegunungan. Sungguh luar biasa, semoga menang! xemoticonx xemoticonx xemoticonx
+Ibu keren sekali xemoticonx xemoticonx
+Tuh kan, gaya fashionnya Ibu pakai rok jarik terus sepatunya casual lo kok bagus ya... juara xemoticonx
+Keren sekali ya Bu tapi cukup satu periode saja ya
+Menyala Ibu xemoticonx xemoticonx xemoticonx xemoticonx
+Benar keren habis, siapa coba yang tidak salah fokus dengan sarungnya xemoticonx
+Wah, keren sekali konsepnya! Dari sepatu dan sandal saja sudah mewakili keberagaman Jawa Timur. xemoticonx xemoticonx xemoticonx
+Salah fokus sandal Mas Emil santai tapi berkelas xemoticonx
+Wah, perpaduan pantai dan gunung berasa sekali suasana Nusantaranya
+Nuansa pantai dan pegunungan, kombinasi sempurna! Sepatu dan sandal pun bisa jadi simbol persatuan Jawa Timur. xemoticonx xemoticonx xemoticonx
+Semangat Ibu
+Bu Khofifah ibunya Jawa Timur terbaik
+Menyala sekali Ibu semalam, Top Perform. MVP
+MVP Debat kesatu malam tadi xemoticonx Khofifah-Emil Menyala xemoticonx xemoticonx xemoticonx
+Sukses selalu Bunda xmentionx
+xemoticonx 10000 aura xemoticonx
+Fashion yang dipakai Bu Khofifah dan Pak Emil sangat merepresentasikan budaya
+Infokan sarung Pak Emil beli di mana, keren sekali
+Eh salah fokus tidak sih Pak Emil jago sekali mix and match outfit, sarungnya beli di mana ya? xemoticonx
+Tapi sayang sekali lima tahun tidak anda jalani dengan baik Bu
+Harmoni budaya dalam kesederhanaan. Langkah kaki kalian benar-benar melambangkan keberagaman Jawa Timur
+Jawa Timur maju berprestasi... Kalau lihat sepatu Ibu dan sandalnya Mas Emil menunjukkan kenyamanan xemoticonx. Bu Khofifah dan Mas Emil memimpin Jawa Timur dengan enjoy dan nyaman sehingga rakyatnya merasa aman dan nyaman
+Sandal dan sepatu yang bercerita! Bu Khofifah dan Mas Emil selalu punya cara unik untuk menunjukkan kekayaan budaya Jawa Timur xemoticonx xemoticonx xemoticonx
+Simbolisasi keragaman Jawa Timur yang luar biasa, pantai dan gunung bertemu dalam satu langkah
+Teruskan Jawa Timur bersama xmentionx dan xmentionx
+Semoga bisa mensejahterakan guru honorer
+Memang Khofifah-Emil adalah pasangan pemimpin Jawa Timur yang romantis, konsisten dan berkomitmen untuk menuntaskan dua xemoticonx dua xemoticonx periode ke depan xemoticonx xemoticonx terlihat seirama saat debat pemilihan gubernur tadi malam mantap sekali
+Pemenang debat tadi malam jelas Khofifah Emil
+Kerja nyata dong, bukan cuma janji-janji
+Dua gaya tetapi tetap serasi
+Sepatu pantai dan sandal pegunungan, simbol sinergi pesisir dan dataran tinggi. Jawa Timur bersatu, siap maju! xemoticonx xemoticonx xemoticonx
+Ibu selalu mengutamakan kenyamanan, termasuk bagaimana membuat masyarakat Jawa Timur nyaman hidupnya. Terima kasih Ibu, lanjutkan memimpin Jawa Timur maju berprestasi
+Debat kemarin menggambarkan bagaimana Bu Khofifah akan membawa Jawa Timur ke depan xemoticonx
+Sandal Lily
+Cukup satu periode agar yang bersih xemoticonx Jawa Timur
+Sudah cukup Bu
+Ampun Bu cukup
+Kode berpakaiannya keren Bunda xmentionx dan Mas xmentionx xemoticonx, sarungnya bikin salah fokus xemoticonx
+Maaf lewati dulu
+Lamongan semalam nonton bareng debat, tetap Bu Khofifah terbaik xemoticonx
+Keren sekali! Kombinasi sempurna antara pantai dan pegunungan, seolah menyatukan Jawa Timur dalam satu frame
+Nuansa budaya dan daerah yang sangat kental! Sumenep dan Bromo hadir dalam harmoni yang unik
+Sepatu pantai vs sandal gunung ini baru kolaborasi Nusantara yang keren
+Sarungnya bagus xemoticonx
+Bu Khofifah gubernur saya xemoticonx
+Keanggunan Bromo terasa bahkan lewat sarung
+Top Bu xmentionx terbaik xemoticonx xemoticonx xemoticonx
+Semoga lancar berkah
+Menyala Ibu xmentionx bismillah menang
+Paling mantap xemoticonx
+Sehat-sehat Ibu Bapak xemoticonx xemoticonx xemoticonx
+xemoticonx sehat selalu Bu xemoticonx
+Keren sekali sarung Mas Emil xemoticonx sarung Pak Emil xemoticonx xemoticonx xemoticonx
+Keren, aura kemenangan di depan mata
+Sepatu khas pantai jadi ingin liburan ke pantai
+Produk-produk dalam negeri, ya Bu Gubernur xemoticonx
+Bismillah Bu xmentionx dua periode
+Info keranjang kuningnya, mau beli sarung yang dipakai Emil xemoticonx
+Sandalnya Mas Dardak sandal bapak saya dulu
+Aura pemimpin Jawa Timur xemoticonx xemoticonx tidak ada obat
+Nuansa pantai Sumenep dan gunung Bromo perpaduan yang epik
+Salut dengan jawaban yang logis saat debat kemarin, makin yakin xemoticonx xemoticonx
+Masyaallah tabarakallah idola saya, semoga Allah memudahkan semua urusannya dan semoga Allah meridai sukses selalu bidadari surga amin, salam sehat selalu
+Masyaallah xemoticonx xemoticonx xemoticonx xemoticonx bismillah Indonesia bisa lebih baik dalam segalanya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Pakaian dan orangnya cocok bawa Jawa Timur adem ayem tenteram
+Sepatunya merek apa Ibu xmentionx
+Sarung yang dipakai Pak Emil berwibawa sekali
+Saya awal melihat foto juga mata tertuju ke sana xemoticonx xemoticonx xemoticonx
+Sarung gunung dan sepatu pantai keren sekali Nusantara dalam satu frame
+Insyaallah lancar menang amin ya rabbal alamin xemoticonx xemoticonx xemoticonx
+Sandal legenda, sandal Lily seperti punya kakek saya xemoticonx
+Ibu kami menunggu pembukaan di asrama Sukolilo, kasihan anak-anak Ibu xemoticonx xemoticonx
+Ibu sudah di mana? xmentionx
+Semoga berkenan memakai udeng khas Tengger Bromo Pak Emil Bu xemoticonx
+Ibu, sama dengan saya Bu, kalau waktu kebaya ke kantor agar bisa lari-lari, pakai sepatu olahraga saja xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Sandalnya Pak Emil jadul, hehe, legenda Pak. Lanjutkan jadi pasangan calon gubernur lagi
+Keren Bunda xemoticonx xemoticonx
+Menang Bu
+Namanya sandal Lily Pak Emil xmentionx
+Semoga menang gas nomor xemoticonx mantap Khofifah Emil
+Bismillah menang Ibu Khofifah Emil xemoticonx
+Semoga Allah SWT memberkahi langkahnya untuk memimpin Jawa Timur ke depan amin xemoticonx xemoticonx
+Dukung penuh Bunda
+Bu Khofifah semalam penampilannya luar biasa
+Semoga dikuatkan xemoticonx dimudahkan untuk Jawa Timur xemoticonx
+Makan jamur di bawah pohon kelapa, Jawa Timur tetap Bu Khofifah, salam dua periode
+Dari Pacitan sampai Kangean dukung Ibu xemoticonx xemoticonx xemoticonx
+Sepatunya Bu Khofifah selalu mencuri perhatian
+Debatnya lancar xemoticonx xemoticonx semoga lancar sampai pemilihan kepala daerah xemoticonx
+Sudah layak kan dilanjutkan xemoticonx
+Mantap melangkah menuju Grahadi
+Insyaallah Bu Khofifah dan Mas Emil gubernur dan wakil gubernur Jawa Timur amin xemoticonx xemoticonx
+Semoga diberi kemudahan Ibunda
+Sehat selalu Bu Khofifah, menyala xemoticonx
+Jawa Timur dukung Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
+Sehat selalu untuk Ibu. Semalam terlihat begitu energik dan menguasai panggung, tidak ada kata lain selain lanjutkan. Jawa Timur maju berprestasi!
+Makin bangga xemoticonx xemoticonx top perform sekali xemoticonx xemoticonx xemoticonx
+Bagus
+Sandal Lily dari masa ke masa
+xemoticonx xemoticonx bagus Bu Khofifah dan Pak Emil xemoticonx xemoticonx bismillah pasti menang mutlak xemoticonx xemoticonx lanjutkan
+Batiknya Bunda keren xemoticonx
+Insyaallah dua periode berkah Bu
+Semalam jadi tahu siapa yang asal mencalonkan dan siapa yang benar-benar tahu problem di Jawa Timur xemoticonx xemoticonx
+Pasangan calon lain menjual janji, tetapi Khofifah Emil ini sudah terbukti xemoticonx
+Sukses selalu Ibu
+Sederhana tetapi pasangan calon lain tidak bisa xemoticonx
+Sudah jelas kualitas argumennya xemoticonx
+Mas Emil sudah seperti santri kekinian
+Benar-benar MVP xemoticonx xemoticonx
+Memang penampilan Ibu semalam membuat saya terpukau, apalagi sarung yang dipakai oleh Mas Emil xemoticonx
+Siap menang
+Allahumma dua periode xemoticonx xemoticonx xemoticonx xemoticonx
+Debat kemarin membuktikan bahwa bagaimana Khofifah Emil akan membawa Jawa Timur ke depannya xemoticonx
+Sehat dan sukses selalu untuk Khofifah Emil, semoga debat selanjutnya makin memukau seperti debat semalam xemoticonx
+Keren sekali nih
+Salam xemoticonx xemoticonx periode
+Lanjutkan Ibu, keren sekali
+Lanjutkan Ibu, saya ASN Lamongan mendukung Ibu
+Bajunya bagus, sayangnya tidak serasi dengan sepatunya, apa tidak ada yang mengarahkan kostumnya ya
+Di mana melihat debatnya? Saya ketinggalan xemoticonx
+Terbaik xemoticonx
+Memang penampilan Khofifah Emil semalam sangat mengagumkan xemoticonx xemoticonx
+You can't control everyone's mind, emotion and action. So, just go straight ahead, and give the best things Bu!
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Khofifah untuk Jawa Timur satu
+Sandal Lily menyala abangku xemoticonx
+Sarungnya bagus betul Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Salam dari Pamekasan untuk Ibu
+Keren Bu pakaiannya, sepatu Ibu xemoticonx sandal Mas Emil TOP sekali xemoticonx xemoticonx
+MVP malam kemarin xemoticonx xemoticonx
+Sehat dan sukses selalu Ibu dan Bapak xemoticonx
+Optimis lanjutkan xemoticonx
+Bagus sekali pakaian adatnya xemoticonx
+Keren sekali Ibu dan Bapak Emil xemoticonx xemoticonx
+Pasangan ideal yang pas sekali untuk memimpin Jawa Timur, lanjutkan Ibu Khofifah dan Mas Emil
+Bismillah semoga berkah sukses Bu
+Sandal Pak Emil legenda xemoticonx
+Top perform semalam, lanjutkan dua periode Ibunda xemoticonx
+Mewakili dua elemen alam yang indah, pantai dan gunung xemoticonx terlihat dari gaya berpakaian kalian!
+Kebersamaan dalam perbedaan! Paduan sempurna antara tradisi Sumenep dan Bromo
+Elegan dan penuh makna, kalian mewakili kekayaan tradisi pantai dan pegunungan
+Pak Emil sandalnya beli di mana
+Cinta Bunda xemoticonx xemoticonx xemoticonx
+Semoga terpilih ya Bu Khofifah xemoticonx Mas Emil, saya orang Jawa Timur yang tinggal di Kota Bekasi, senang dengan kepemimpinan mereka berdua
+Bu Khofifah pembawaannya tenang tetapi menang xemoticonx
+Keren xmentionx anak muda Bu xemoticonx xemoticonx
+Cukup Bu lima tahun kemarin sudah tidak ada perubahan ketika Anda menjabat, periode selanjutnya tidak usah lanjut Bu
+Kampanye dan program Bu Khofifah tidak ada yang berjalan mulus hanya awal-awal saja dengan kata-kata manis terakhirnya sudah dilupakan
+Anda mundur saja Bu tidak usah lanjut menjabat lagi sudah cukup kacau Jawa Timur dengan periode Anda kemarin
+Keren sekali Bu! Memperlihatkan kekayaan budaya Jawa Timur melalui pakaian yang dipilih
+Sepatunya Ibu bagus sekali jadi ingin tetapi mungkin mahal xemoticonx xemoticonx
+Sangat menginspirasi Bu! Pilihan pakaian yang menunjukkan keindahan budaya Jawa Timur
+Seperti sandal almarhum bapak xemoticonx jadi rindu, semoga hasil terbaik untuk Ibu xmentionx dan Bapak xmentionx
+Keren Bu Khofifah! Anda benar-benar mengangkat nilai-nilai lokal dengan gaya yang memukau
+Pakaian yang Anda pilih sangat menggambarkan kearifan budaya kita Bu. Terima kasih atas dedikasinya!
+Bu, Anda selalu mempromosikan budaya Jawa Timur dengan cara yang elegan. Sungguh luar biasa
+Dukung penuh Ibu xemoticonx xemoticonx
+Memukau! Pakaian Anda tidak hanya cantik, tetapi juga kaya akan makna budaya
+Bu Khofifah, pilihan baju Anda sangat mencerminkan identitas kita sebagai orang Jawa Timur. Keren
+Teruslah menginspirasi Bu! Pakaian Anda menunjukkan betapa berartinya warisan budaya kita
+Keren sekali Bu! Anda berhasil menunjukkan kebanggaan akan budaya Jawa Timur dengan cara yang stylish
+Bu, pilihan busana ini membuat kita makin bangga dengan kekayaan budaya daerah kita!
+Bismillah semoga sukses dua periode Bunda
+Terlalu banyak nuansa-nuansa, hasil kerja saja tidak terbukti
+Semoga sehat selalu Ibu dan Bapak
+Komitmenmu percuma Bu, hasil kerja tidak terbukti takut sekali
+Ibu keren sekali semoga Ibu selalu yang terbaik amin
+Bu kalau terima jadi gubernur lagi tolong tambah tunjangan gaji GTT dan PTT Pemprov Jawa Timur. Minimal UMR Bu
+Menyala Ibu Khofifah sehat selalu Ibu Khofifah
+Sukses Ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Keren sekali Bu, mewakili keberagaman Jawa Timur dari ujung pantai sampai pegunungan. Semoga sukses selalu! xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Wah, ini baru keren! Setiap detail punya arti, bahkan dari alas kaki pun bisa mencerminkan Jawa Timur xemoticonx xemoticonx xemoticonx
+Sepatu dan sandal dengan pesan yang dalam, siap mengangkat Jawa Timur dari pantai hingga pegunungan! xemoticonx xemoticonx xemoticonx xemoticonx
+Betapa berharganya usaha ini! Menulis adalah jendela bagi anak-anak untuk merasakan dunia dengan sensitivitas dan kreativitas mereka
+Keren Bu sepatunya xemoticonx xemoticonx xemoticonx xemoticonx sederhana xemoticonx
+Pasangan pejabat paling menyala xemoticonx xemoticonx xemoticonx
+Artinya Ibu dan Pak Emil mengayomi untuk semua xemoticonx xemoticonx xemoticonx
+Pasangan calon gubernur yang penuh prestasi saat jadi gubernur 2019-2024 xemoticonx xemoticonx
+Sehat dan sukses selalu Ibu ketua kebanggaan kami, kami cinta Anda salam cinta dari Gorontalo Ibu Nyai xmentionx sayang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Ibu xmentionx dan kutunggu tatapan matanya Mas xmentionx
+Bu Khofifah Indar Parawansa kembali menjadi gubernur Jawa Timur dan Emil Dardak calon wakil gubernur Jawa Timur
+Sepatunya mirip dengan orang itu
+Dress code-nya Nusantara sekali Bu Khofifah xemoticonx Mas Emil. Bismillah pasti menang xemoticonx lanjutkan xemoticonx xemoticonx
+Selalu dalam lindungan Allah
+xemoticonx xemoticonx xemoticonx xemoticonx serasi
+Bersih-bersih Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Menyala Bu xmentionx xemoticonx xemoticonx xemoticonx
+Itu sandal ciri khas produksi Malang Jawa Timur xemoticonx
+Aku anak Surabaya, ikut mendukung Bu Khofifah Mas Emil semoga dan setuju menang tetap memimpin Jawa Timur
+Sandal yang dipakai xmentionx merek Lily 2000, itu sandal tahun 90-an tetapi masih eksis di daerah tertentu
+Sandalnya Pak Emil aroma toko online xemoticonx
+Lewati dulu Bu, butuh bukti nyata bukan janji manis
+Cukup satu periode tidak ada kemajuan
+Itu sandal Lily Bu
+Tidak masuk sama sekali, lewati saja lah
+Lewati-lewati, rakyat kecil tidak diperhatikan sama sekali
+Saya tidak merasa jadi penjahat melakukan kejahatan pada orang lain, kalau orang lain melakukan saya buat tuduhan benar ada jaringan. Dilindungi karena sama-sama asli penjahatnya. Seharusnya TNI bertemu saya bawa-bawa saja dulu ke Mabes TNI mencari tahu benar tidak. Saya ada nanti tempat
+Aku ke sana
+Sandal Lily punya saya persis seperti yang dipakai Mas Emil. Tetapi sayangnya waktu ziarah ke Kyai Kholil Bangkalan tertukar. Kirain pakai sandal Lily sudah paling beda. Ternyata tetap ada yang menyamakan, tertukar ukuran lebih kecil xemoticonx
+Sandal yang dipakai Mas Emil mirip sekali dengan sandalnya mbah saya xemoticonx
+Ibu tolong perempatan Legundi Krian macet sudah puluhan tahun tolong ya Bu kalau dapat amanah lagi
+Mantap
+Gubernur saya xemoticonx xemoticonx xemoticonx
+Yang dibicarakan cuma omong kosong, tidak ada bukti nyata
+Visi misinya yang jelas dulu dong
+Kebanyakan hal-hal yang tidak ada faktanya, kerja nyatanya tidak ada
+Kok benar sih Bu fokus saya ke situ memang xemoticonx
+Menyala Ibu saya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Kostumnya keren xemoticonx xemoticonx xemoticonx xemoticonx
+Insyaallah Jawa Timur bagus
+Mbak xmentionx bagus pakai sneaker xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Mas xmentionx pakai sandal Lily jadul xemoticonx xemoticonx xemoticonx
+Bagi info sepatu dan sandalnya Ibu xemoticonx
+Terus lima tahun kemarin melakukan apa saja sebagai warga Jawa Timur seperti tidak punya gubernur
+Bismillah Bu Khofifah Pak Emil bakal terpilih jadi pemimpin Jawa Timur lagi xemoticonx xemoticonx
+Asam di gunung, garam di laut bertemu di belanga xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Pasangan tenang dan elegan, lanjutkan xemoticonx xemoticonx
+Ibu Khofifah dengan Mas Emil saling melengkapi, lanjutkan untuk Jawa Timur xemoticonx
+xemoticonx xemoticonx mantap gubernur saya xemoticonx xemoticonx Bu Khofifah dan Cak Emil xemoticonx xemoticonx xemoticonx xemoticonx
+Ini Jawa Timur, jangan coba-coba pilih yang belum pasti dan belum berpengalaman. Lanjutkan untuk dua periode untuk Jawa Timur maju dan berprestasi, Khofifah Emil istikamah untuk kita percaya lima tahun ke depan
+Banyak program yang belum terselesaikan
+Semoga sukses Bu, salam hangat dan sambung doa dari lereng Argopuro
+Khofifah itu malas tidak bisa kerja, seremonial saja. Makanya Jawa Timur tidak ada kemajuannya, pencitraan paling pintar Khofifah
+Lima tahun merasa kurang ada kemajuan di Jawa Timur hmm
+Kalau dekat pemilihan kepala daerah baru turun ke rakyat
+Dari dulu kurang peka, dekat pemilihan kepala daerah baru peduli
+Keren debatnya. Sekali bicara bikin kubu lawan mati gaya xemoticonx. Lanjut dua putaran Bu Khofifah
+Menang menang Bu xemoticonx harus menang
+Bunda harus cetar lo, gas penuh
+Sehat selalu Ibu Khofifah dan Mas Emil, amin
+Hidup nomor dua
+Empat suara untuk kalian
+Pak Emil tolong link sarungnya dong, suami saya minta dibelikan
+Semoga terpilih Bu Hajah xmentionx, amanah selalu
+Dari debat saja sudah jelas bahwasanya banyak yang belum tuntas dalam periode anda, cukup satu periode saja Bu
+Kinerjanya begitu, cukup satu periode saja Bu
+Bravo Khofifah-Emil
+Pakaiannya keren xemoticonx xemoticonx xemoticonx xemoticonx, semoga bisa memimpin Jawa Timur untuk periode kedua. Amin. Bismillah
+Selalu pencitraan tidak mengutamakan kebijakannya
+Gimmick terus sampai lupa rakyat
+Pencitraan terus
+Bunda buktikan kalau cetar, gas penuh
+Mas Emil pakai sandal Lily xemoticonx kita mengenal sebagai sandal mbah kung
+Dari kemarin ke mana saja Bu
+Bangga xemoticonx xemoticonx xemoticonx sukses mewujudkan visi misi Jawa Timur berprestasi xemoticonx
+Yang lain saja, kemarin sudah seperti itu soalnya
+Cukup satu periode saja
+Sudah ya sekali saja jabatnya
+Lanjut Bu Khofifah dan Mas Emil Dardak untuk Jawa Timur
+Masih kurangnya warga yang diberdayakan
+Mas Emil pakai sandal Lily
+Tolong Bu, masih banyak rakyat Jawa Timur yang kesusahan
+Ayo pakai sepatu lukis Bu
+Tapi keren Bu xemoticonx xemoticonx xemoticonx
+Sarungnya bagus sekali
+Barakallah Ibu Ketua PP Muslimat NU dari Kota Ternate, kami doakan semoga kembali memimpin Jawa Timur
+Hahaha
+Bagaimana to, kok ya begini saja atenya dilanjut
+Cukup satu periode saja Bu kalau begini
+Aku tidak masalah siapa yang memimpin, pokok jangan anda
+Ibu minta tolong Bu. Gaji honorer kelurahan Surabaya UMK dong Bu. Suami saya anaknya tiga Bu agar cukup untuk kebutuhan. Minimal lah Bu susu, pampers, jajan anak terpenuhi syukur-syukur
+Tetap keren Bu Khofifah xemoticonx
+Calon gubernur dan calon wakil gubernurku ini bos
+Gubernurku ini bos
+Senggol dong xemoticonx
+Mangga Podang ini luar biasa, segar dan manisnya sampai membuat saya bangga dengan produk lokal kita. Terima kasih telah mendukung petani lokal, ini adalah langkah kecil tapi berdampak besar bagi perekonomian kita
+Wah, saya baru tahu kalau mangga ini khas dari Kediri. Harus coba beli nih
+Mangga Podang ini bukan sekadar buah, tapi simbol kebanggaan atas kekayaan daerah kita. Terasa istimewa bisa menikmati hasil kerja keras petani lokal dan ikut membantu perekonomian mereka
+Rasa segar dan manis Mangga Podang Kediri ini seolah menggambarkan dedikasi petani kita. Setiap buah yang kita borong adalah bentuk apresiasi nyata untuk mereka. Bangga dengan produk lokal kita
+Mangga Podang ini begitu lezat, namun lebih dari itu, ada rasa bangga dan haru mengetahui bahwa kita turut serta memperkuat perekonomian petani lokal. Mari terus dukung produk lokal Jawa Timur
+Buahnya segar-segar xemoticonx xemoticonx
+Buah lokal, rasa internasional! Mangga Podang Kediri memang tak tertandingi. Ayo dukung petani kita! xemoticonx xemoticonx
+Wah, mangga Podang Kediri memang juara! Rasanya segar dan manis, benar-benar kebanggaan Jawa Timur! xemoticonx xemoticonx
+Mangga Podang memang juara, rasanya manis dan segar sekali! Bangga sekali bisa menikmati produk lokal
+Mangga Podang memang segar Bu Khofifah
+Selain enak mangga ini juga murah meriah
+Membeli Mangga Podang Kediri membuat hati ini hangat, karena kita tahu hasil bumi ini adalah kerja keras petani lokal yang berdampak langsung pada kesejahteraan mereka. Bangga rasanya bisa berkontribusi
+Sangat bangga ketika bisa menikmati hasil bumi dari petani lokal sendiri
+Ayo, siapa yang belum coba mangga Podang Kediri? Dijamin tidak menyesal, manisnya pas sekali! xemoticonx xemoticonx
+Foto Ibu di slide keempat Mas xemoticonx xmentionx
+Mantap Bu Khofifah, terus dukung produk lokal seperti mangga Podang. Bangga rasanya bisa ikut beli dan nikmati hasil bumi Jawa Timur! xemoticonx xemoticonx
+Sangat berdampak besar bagi petani dan masyarakat setempat
+Mantap Ibu xemoticonx xemoticonx
+Informasikan beli di mana ini teman
+Wajib coba! Rasanya beda dari mangga-mangga lain. Sekali coba pasti ketagihan
+Mangga asam mangga manis semua sama
+Dengan beli produk lokal seperti mangga Podang benar-benar membantu roda perekonomian
+Semoga makin banyak yang beli mangga Podang ini
+Harga terjangkau kualitas premium
+Kualitas Kediri xemoticonx
+God said to share xemoticonx If you are very rich, with whom should I share? I have a lot of money
+Betul sekali! Selain nikmat, kita juga berkontribusi mendukung petani lokal. Semoga makin banyak yang kenal Mangga Podang
+Bu Khofifah kalau Ibu jadi gubernur hilangkan pemungutan liar di sekolah dengan berkedok xemoticonx infak xemoticonx
+Tidak ada yang bisa mengalahkan rasa Mangga Podang Kediri. Ketika membeli, rasanya seperti ikut merasakan jerih payah petani lokal. Ayo dukung mereka dan nikmati hasil bumi terbaik dari Jawa Timur
+Setiap gigitan Mangga Podang ini penuh dengan rasa syukur dan kebanggaan. Dengan membelinya, kita tidak hanya menikmati buah yang lezat, tetapi juga membantu kehidupan petani yang berdedikasi
+Nikmatnya Mangga Podang Kediri ini bukan hanya soal rasa, tapi juga kebanggaan bisa mendukung perekonomian daerah dan petani yang selalu setia memberikan yang terbaik
+Mangga Podang jadi buah tangan khas Kediri
+Lebih enak beli buah lokal daripada buah impor
+Di rumahku ada pohonnya itu Bu
+Ibu xemoticonx xemoticonx mangga Podang adalah mangga yang paling enak, setiap bertemu penjualnya saya selalu beli banyak untuk dibagi dan stok di rumah, segar sekali dan tahan lama
+Kalau Jawa Timur mau lebih bagus dan maju pilihan yang tepat Ibu Rismaharini lebih bagus jadi gubernur Jawa Timur, berani tegas mengayomi masyarakat dan semua yang telah dikerjakan nyata dan bisa dipertanggungjawabkan
+Aku dulu cuma sekali makan mangga Podang jadi ingin beli lagi
+Ingin mangganya Bu
+Keren, makin dikenal berkat perhatian Bu Khofifah di masa kampanye
+Mangganya besar-besar kuning-kuning segar
+Waduh segar itu xemoticonx xemoticonx
+Silakan rumah saya Bu, terima kasih sudah mampir
+Aku juga suka mangga
+Memang tidak perlu diragukan lagi SDA Jawa Timur ini
+Memang tidak perlu diragukan xemoticonx xemoticonx xemoticonx xemoticonx
+Mangga Podang Kediri adalah lebih dari sekadar buah. Saat membelinya, ada rasa puas karena kita ikut mendukung petani lokal yang bekerja keras. Semoga mereka makin sejahtera
+Tidak ada kebahagiaan yang lebih besar daripada bisa menikmati mangga yang manis sambil tahu kita sedang mendukung petani lokal. Mangga Podang Kediri adalah simbol kesejahteraan dan kerja keras masyarakat kita
+Kediri punya mangga Podang yang luar biasa! Terima kasih Bu Khofifah sudah selalu mendukung produk lokal xemoticonx xemoticonx
+Borong mangga Podang, yuk! Kita bangga dengan hasil tani Jawa Timur, makin sejahtera petani kita xemoticonx xemoticonx
+Mangga Podang Kediri memang paling segar! Semoga terus maju produk lokal Jawa Timur dan petani kita makin berjaya! xemoticonx xemoticonx
+Beli mangga Podang, kita juga bantu ekonomi petani lokal. Terima kasih Bu Khofifah sudah terus memperhatikan kesejahteraan petani! xemoticonx xemoticonx
+Jadi ingin Mangga Podang xemoticonx xemoticonx
+Wah segarnya
+Sekuning itu ya, sepertinya enak tuh
+Jadi ingin beli xemoticonx xemoticonx
+Memang urusan kuliner, Jawa Timur tidak ada habisnya
+Sepertinya enak nih mangganya xemoticonx
+Gas beli sih ini
+Aku jual mangga juga Bu Khofifah
+Inspiratif, Bu Khofifah! Mendukung produk lokal seperti mangga Podang sangat penting untuk kesejahteraan petani
+Jalan-jalan ke Kediri, jangan lupa beli mangga, ayo kawan sekali lagi, kita pilih nomor dua
+Mangga Podang memang luar biasa! Terima kasih telah mengangkat produk lokal kita ke tingkat yang lebih tinggi
+Keberhasilan peresmian bandara Dhoho dan promosi produk lokal adalah langkah positif untuk perekonomian Jawa Timur!
+Kegiatan seperti ini membuat kita makin bangga dengan hasil pertanian daerah. Ayo kita dukung petani lokal!
+Mangga yang lezat
+Bu Khofifah, terima kasih atas perhatian Anda terhadap produk lokal. Mangga Podang benar-benar menggugah selera!
+Sangat mendukung inisiatif ini! Mari kita semua borong mangga Podang untuk membantu perekonomian petani
+Peresmian bandara Dhoho dan promosi produk lokal adalah sinergi yang hebat! Semoga makin banyak yang mendukung
+Bu Khofifah, Anda adalah pendorong perubahan bagi perekonomian lokal. Mangga Podang adalah contoh nyata dari keberhasilan ini!
+Kegiatan seperti ini menunjukkan betapa pentingnya kolaborasi antara pemerintah dan petani. Teruskan, Bu
+Bangga melihat dukungan Anda terhadap produk lokal! Semoga makin banyak orang yang terinspirasi untuk membeli mangga Podang
+Semoga Jawa Timur makin cerah di bawah kepemimpinan Ibu. Jawa Timur emas xemoticonx xemoticonx
+Musik horeg itu tolong dimusnahkan, menggangu dan tidak menguntungkan, kebiasaan aneh
+Korupsi
+Ibu musik horeg yang bikin kaca rumah warga pecah, yang sengaja merusak jalan agar bisa lewat tolong diurusin. Kita sebagai warga sudah resah. Terima kasih Ibu
+MUSIK HOREG ITU BENERIN xemoticonx xemoticonx xemoticonx
+Tumben datang ke pasar? Lima tahun yang lalu di mana saja Bulek xemoticonx xemoticonx xemoticonx
+Di Surabaya ada tidak Bu? Di mana belinya? Ingin coba
+Zaman kecilku mangga Podang itu tidak dikupas, tapi digemburkan sampai nyaman untuk dikenyut xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Enak sekali mangga Podang ini, kalau beli suka milih yang bokongnya merah soalnya lebih manis
+Mangga Podang khas Kediri, mantap
+Segar xemoticonx itu xemoticonx xemoticonx
+Jadi ingin mangga xemoticonx
+Enak itu, berserat dan berair xemoticonx
+Mangganya menarik xemoticonx
+Mau makan xemoticonx xemoticonx
+Enak mangganya
+Jadi ingin xemoticonx xemoticonx
+Sinergitas pusat xemoticonx daerah sangat penting dalam rangka suksesnya program kerakyatan, utama program bantuan sosial seperti KIP, KIS, KKS, di sinilah peran kepala daerah sehingga program tersebut sampai kepada masyarakat tingkat bawah, good job Bu xemoticonx xemoticonx
+Keren! Jasuindo bukan hanya penggerak ekonomi Jawa Timur, tapi juga pilar ekonomi nasional. Semoga sukses selalu! xemoticonx xemoticonx
+Mantap, lanjutkan programnya Bu xemoticonx xemoticonx xemoticonx xemoticonx
+Luar biasa, Bu Khofifah! Program KIS, KIP, dan KKS benar-benar membantu masyarakat kurang mampu
+Luar biasa, Jasuindo! Terima kasih telah menjadi penggerak ekonomi Jawa Timur dengan produk berkualitas yang diakui dunia xemoticonx xemoticonx
+Alhamdulillah punya pemimpin yang selalu amanah dalam menjalankan tugas dan kesejahteraan masyarakat, salah satu contohnya KIP, KKS dan KIS sangat dirasakan masyarakat
+Program KIP, KIS, dan KKS benar-benar membantu banyak masyarakat. Terima kasih Ibu Khofifah dan Pak Jokowi atas inisiatif luar biasa ini! xemoticonx xemoticonx xemoticonx
+Hebat sekali ternyata produk lokal Jawa Timur bisa bersaing di kancah internasional
+Terima kasih atas dedikasinya, Bu Khofifah! Semoga program-program seperti ini terus memberikan manfaat bagi masyarakat luas xemoticonx xemoticonx xemoticonx
+Ini tempat aku bekerja bersama teman-teman hebatku Ibu xemoticonx xemoticonx xemoticonx xemoticonx semangat
+Benar-benar memikirkan rakyat kecil
+Dengan ketulusan dan kerja keras, Bu Khofifah terus mengawal kebijakan pemerintah agar merata bagi seluruh rakyat Indonesia xemoticonx xemoticonx xemoticonx
+Bu Khofifah, komitmen Anda dalam meningkatkan ekonomi masyarakat sangat menginspirasi. Teruskan kerja baik ini!
+Terima kasih Jasuindo, dukungan untuk program sosial Jokowi sejalan dengan visi Bu Khofifah untuk kesejahteraan Jawa Timur. Bangga
+Salut dengan program KIS, KIP, dan KKS yang sangat membantu masyarakat! Semoga terus berkembang demi kesejahteraan bangsa xemoticonx xemoticonx xemoticonx
+Luar biasa Jasuindo, mendukung program sosial dan menjadi penggerak ekonomi Jawa Timur sesuai visi Bu Khofifah
+Dukungan Jasuindo terhadap program Jokowi sejalan dengan semangat Bu Khofifah dalam memperkuat ekonomi Jawa Timur. Terus maju
+Berasa sekali punya keponakan yang masih sekolah kebantu dengan program KIP, KIS, KKS
+Jawa Timur patut berbangga memiliki pemimpin seperti Bu Khofifah yang selalu mendukung program pemerintah demi kesejahteraan seluruh rakyat xemoticonx
+Jasuindo berperan besar mendukung program Jokowi, sejalan dengan upaya Bu Khofifah dalam mendorong ekonomi Jawa Timur. Luar biasa
+Terima kasih kepada Bu Khofifah yang terus mendukung sektor industri seperti Jasuindo! Semoga makin banyak produk Indonesia yang mendunia xemoticonx xemoticonx xemoticonx
+Program yang patut dilanjutkan
+Kepercayaan pemerintah terhadap Jasuindo untuk mencetak KIS, KIP, KKS menunjukkan bahwa mereka telah memiliki reputasi yang kuat
+Ternyata Jawa Timur industrinya besar ya
+Semoga buruh Jawa Timur makin sejahtera
+Bangga melihat Jasuindo bisa ekspor ke 25 negara. Semoga jadi inspirasi bagi perusahaan lain di Jawa Timur dan Indonesia xemoticonx xemoticonx
+Contoh bahwa industri lokal Indonesia memiliki potensi besar untuk mendunia
+Ikut Bu Khofifah saja
+Program Bu Khofifah selalu bagus
+Jasuindo adalah bukti bahwa industri lokal bisa bersaing di pasar global! Terus maju dan kembangkan sayap lebih luas lagi xemoticonx xemoticonx xemoticonx
+Bu Khofifah optimis bisa bawa banyak kebaikan
+Bu Khofifah mari kita lanjutkan Jawa Timur makin maju dan berprestasi lagi
+Sumpah aku yakin menang nomor dua, favoritku, saya sekeluarga memilih Bu Khofifah Indar Parawansa dan Emil Dardak semoga menang di pemilihan kepala daerah Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Dengan program digitalisasi kartu sosial ini bantuan kepada masyarakat bisa makin efektif dan tepat sasaran
+Jasuindo memang makin besar dan maju
+Makin sejahtera buruh tulang punggung ekonomi Jawa Timur
+Program pemerintahan yang sangat berasa membantu masyarakat bawah ya KIP, KIS, KKS, program bantuan sosial hasil kolaborasi pemerintahan pusat dan daerah yang kepala daerahnya betul-betul peduli rakyatnya
+Pencapaian yang luar biasa
+Semoga dengan keberhasilan Jasuindo ini menginspirasi industri lainnya di Jawa Timur
+Tidak hanya sukses secara nasional, Jasuindo juga telah berhasil membuktikan kualitas produk di pasar internasional
+Excellent xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Musik horeg di mana-mana, Jawa Timur rasa Vrindavan
+Tetap nomor dua untuk dua periode
+Sepakat melanjutkan sekali lagi
+Buruh ikut Khofifah Emil
+Luar biasa, ternyata Jasuindo telah menjadi bagian penting dari perkembangan ekonomi Jawa Timur dan juga program sosial pemerintah
+Buruh siap dukung penuh Khofifah Emil
+Salut dengan Jasuindo yang telah dipercaya untuk mencetak KIS, KIP, dan KKS, serta mendukung program-program sosial Bapak Presiden Jokowi
+Keren sekali, perusahaan lokal seperti Jasuindo bisa mencapai pasar global dan mengekspor produknya ke 25 negara
+Menarik, program KIP, KIS, dan KKS ini merupakan solusi yang sangat dibutuhkan untuk membantu masyarakat kurang mampu
+Sektor industri seperti Jasuindo memang harus didorong agar makin berkembang
+Program yang luar biasa
+Maju terus industri Jawa Timur
+Pemerintah Provinsi Jawa Timur selalu bersyukur bersinergis dengan Pemerintah Pusat perihal KIP, KKS serta KIS
+Maju industri Jawa Timur, maju buruh
+KIP, KIS dan KKS sangat dirasakan masyarakat manfaatnya. Terima kasih Bunda Khofifah xemoticonx
+Bentuk perhatian pemerintah kepada kesejahteraan masyarakat yang kurang mampu, untuk mengurangi beban hidup mereka. Dengan KIP, pendidikan bukan lagi impian, tapi kenyataan! xemoticonx
+Ini yang aku banggakan dari Bu Khofifah, program KIP, KIS dan KKS, pusat bisa sampai tepat sasaran sampai ke masyarakat, good Bunda
+Terima kasih banyak Bu Khofifah semoga selalu istikamah peduli rakyat
+Sangat tidak diragukan lagi kinerja Khofifah-Emil, KIP, KIS dan KKS saja sangat bisa dirasakan manfaatnya oleh masyarakat
+Mewujudkan impian tanpa batas! KIP, KIS, dan KKS hadir untuk mendukung pendidikan dan kesejahteraan kita xemoticonx
+Kunjungan Bu Khofifah menandakan kepeduliannya terhadap sistem pelayanan sosial
+Terima kasih Ibu Khofifah yang telah setulus hati membantu masyarakat dalam program pusat yaitu KIP, KIS dan KKS
+xemoticonx Pendidikan adalah kunci masa depan. Dengan KIP, setiap anak berhak untuk belajar xemoticonx
+Kediri hadir Bu Khofifah
+KIS xemoticonx kesehatan untuk semua. Karena kesehatan adalah hak setiap individu
+KKS membantu keluarga kurang mampu untuk memenuhi kebutuhan dasar. Bersama kita bisa! xemoticonx
+xemoticonx Investasi terbaik adalah pendidikan. Terima kasih KIP untuk kesempatan yang diberikan xemoticonx
+xemoticonx KIS xemoticonx menciptakan masyarakat sehat dan sejahtera. Ayo jaga kesehatan bersama! xemoticonx
+xemoticonx KKS xemoticonx langkah kecil menuju kesejahteraan yang lebih besar xemoticonx
+Bangga sekali punya pemimpin yang mampu membawa kesejahteraan melalui KIP, KIS dan KKS untuk seluruh masyarakat Jawa Timur. Lanjutkan Bunda xemoticonx
+xemoticonx Membuka peluang bagi semua, KIP menjadi jembatan menuju pendidikan yang lebih baik xemoticonx
+xemoticonx Bersama KKS, mari kita wujudkan hidup yang lebih layak untuk semua keluarga xemoticonx
+Melalui kinerja Khofifah-Emil masyarakat Jawa Timur bisa merasakan KIP, KIS dan KKS terima kasih Bunda
+Sehat selalu Bu Khofifah
+Semangat Ibu Khofifah terus menyala xemoticonx untuk mensejahterakan masyarakat Jawa Timur gas penuh dua periode Bunda xemoticonx xemoticonx
+Lanjutkan Bunda Khofifah, masyarakat ingin merasakan program yang ada seperti KIP, KIS dan KKS
+Menyala Bundaku xemoticonx xemoticonx
+KIP, KIS dan KKS sangat membantu dan dirasakan masyarakat, terima kasih Bunda Khofifah yang selalu amanah dalam bertugas xemoticonx
+Lanjutkan xemoticonx xemoticonx
+Bangga dengan Jasuindo yang sudah ekspor ke 25 negara! Semoga semakin luas jangkauannya dan membawa nama baik Indonesia di kancah internasional xemoticonx xemoticonx
+Salut dengan program KIP, KIS dan KKS sangat membantu rakyat kecil xemoticonx xemoticonx terima kasih Bu Khofifah xemoticonx xemoticonx
+Kinerja Jasuindo di bawah kepemimpinan Anda sangat menginspirasi. Mampu menembus pasar global adalah prestasi yang patut dicontoh!
+Terima kasih atas dedikasi Anda dalam mengawal program sosial ini. Sangat penting untuk kesejahteraan masyarakat!
+Jawa Timur semakin maju di bawah arahan Anda, Bu Khofifah. Semoga terus mendukung sektor industri lokal!
+Bu Khofifah pasti bangga, Jasuindo tidak hanya berkontribusi sosial tetapi juga membawa nama Jawa Timur ke pasar global
+Program ini menunjukkan betapa pentingnya integrasi teknologi dalam membantu masyarakat. Keren sekali!
+Hebat, Jasuindo selaras dengan visi Bu Khofifah untuk meningkatkan kesejahteraan Jawa Timur dan memperluas ekspor
+Keberhasilan Jasuindo mengekspor produk hingga 25 negara menunjukkan kualitas dan potensi luar biasa dari daerah kita
+Bangga, Jasuindo mendukung program sosial Jokowi dan visi Bu Khofifah untuk kesejahteraan masyarakat Jawa Timur
+Sangat mengapresiasi perhatian Anda terhadap sektor industri. Semoga semakin banyak perusahaan lokal yang mengikuti jejak Jasuindo!
+Mendukung program-program seperti ini sangat penting untuk menciptakan lapangan kerja dan meningkatkan kesejahteraan masyarakat
+Saya bangga melihat perkembangan yang terjadi di Jawa Timur di bawah kepemimpinan Anda. Semoga terus berinovasi!
+Jasuindo sukses bantu program Jokowi, langkah besar ini sejalan dengan visi ekonomi Bu Khofifah untuk Jawa Timur
+Dengan dukungan Jasuindo, program sosial dan ekonomi Jawa Timur semakin maju, seperti yang diharapkan Bu Khofifah
+Jasuindo tidak hanya mendukung program sosial, tetapi juga memperkuat ekonomi Jawa Timur sesuai visi Bu Khofifah. Bangga!
+Program KIP, KIS dan KKS ini benar-benar membantu masyarakat sekali xemoticonx
+Sekarang insyaallah produk lokal Jawa Timur bisa bersaing di kancah internasional xemoticonx
+Komitmen Bu Khofifah dalam meningkatkan ekonomi masyarakat Jawa Timur benar-benar bermanfaat sekali xemoticonx xemoticonx xemoticonx
+Alhamdulillah pemimpin yang selalu amanah dan menjalankan tugas dan kesejahteraan masyarakat sangat terasa program ini untuk rakyat kecil yang berada di Jawa Timur xemoticonx
+Pemerintah pusat dan daerah yang bersinergi demi peningkatan kesejahteraan masyarakat, terbukti KIP KIS KKS yang sudah sangat membantu golongan masyarakat bawah terima kasih Pak Jokowi Bu Khofifah, ini wujud pemimpin yang merakyat xemoticonx xemoticonx xemoticonx xemoticonx
+Terbaik memang Ibu Khofifah ini dua periode menjadi kenyataan ya xemoticonx
+Bu Khofifah selalu menjadi inspirasi bagi generasi muda dengan dedikasinya mendukung program presiden untuk kesejahteraan bersama xemoticonx
+Bu Khofifah menjadi contoh nyata bahwa anak bangsa mampu memajukan negara dengan kerja nyata mendukung program pemerintah xemoticonx
+Berkat komitmen Bu Khofifah, masyarakat semakin yakin akan pemerataan hak di seluruh Jawa Timur xemoticonx
+Jawa Timur beruntung memiliki pemimpin seperti Bu Khofifah, yang tidak henti memperjuangkan hak rakyat secara merata xemoticonx
+Keteguhan Bu Khofifah mendukung program presiden membuktikan bahwa Indonesia bisa bergerak maju dengan tangan pemimpin yang peduli
+Anak bangsa seperti Bu Khofifah membuat Jawa Timur lebih kuat dengan dedikasi untuk kesejahteraan masyarakat luas
+Bu Khofifah, sosok pemimpin yang membuat Jawa Timur lebih optimis akan masa depan dengan pemerataan kesejahteraan bagi seluruh rakyat
+Program yang ditunggu sekali, terima kasih Bu Khofifah xemoticonx xemoticonx
+Sangat membantu sekali programnya Bu, maju terus Bu Khofifah xemoticonx xemoticonx
+Paten sekali programnya Bu xemoticonx xemoticonx
+Ketiga kartu KIS, KIP serta KKS memang dibutuhkan, ini peran Kepala Daerah. Bu Khofifah mampu menjalankan apa yang dimau pemerintah pusat
+KIP, KIS juga KKS sudah berjalan dan perlu keberlanjutan, hal ini akan lebih mudah jika Bu Khofifah mengawal Jawa Timur untuk kedua kalinya
+Ketiga kartu KIS, KKS juga KIP benar-benar membantu masyarakat, perlu adanya keberlanjutan agar tidak berhenti di tengah jalan. Bu Khofifah sangat paham akan hal tersebut
+Ketiga kartu KIS, KKS serta KIP sangat diperlukan masyarakat Jawa Timur pada umumnya. Bu Khofifah paham, dan akan tetap melanjutkan jika di pemilihan kepala daerah nanti memenangkannya
+Yakin dengan kepemimpinan Bu Khofifah KIS, KKS serta KIP tetap akan dijalankannya
+Jangan pernah ragukan semangat Bu Khofifah dalam keberlanjutan pembangunan, ketiga kartu KIS, KIP juga KKS tidak akan dilanjutkan ya
+Sinergitas pemerintah pusat dan pemerintah provinsi ditunjukkan Khofifah-Emil dalam menjalankan ketiga kartu KIS, KIP juga KKS. Coblos jangan lupa
+Kinerja nyata Khofifah-Emil dalam menjalankan instruksi pemerintah pusat dalam menjalankan ketiga kartu KIS, KIP juga KKS tidak perlu dipertanyakan lagi. Top sekali
+Program pemerintah yang ditunggu-tunggu xemoticonx terima kasih Bu Khofifah xemoticonx xemoticonx
+Bu Khofifah sangat nomor satu xemoticonx
+Siap memilihmu Ibu di pemilihan kepala daerah mendatang
+Demi terjaminnya kesehatan, kecerdasan dan kesejahteraan warga Jawa Timur Ibu solid mengawal dan merealisasikan program pemerintah Jokowi. Amanah terus ya Bu!
+Sebagai warga Jawa Timur kami turut berbangga Bu. Ibu hebat bisa mengontrol dan menjalankan program ini dengan baik. Semoga program ini terus berkelanjutan di pemerintahan Ibu dan Pak Prabowo. Amin
+Program KIP, KIS, dan KKS itu sebagai jalan mudah warga Jawa Timur untuk mengakses kebutuhan yang bersifat fundamental. Terima kasih Bu, kami bahagia, Ibu juara
+Dengan program ini kami merasa makin mudah memenuhi kebutuhan dasar Bu. Lanjutkan Bu, terima kasih xemoticonx xemoticonx
+Kesejahteraan sosial bagi seluruh rakyat Indonesia. Menuntaskan ketimpangan sosial yang terus berlangsung di negeri ini dengan KIP, KIS. Lanjutkan Bu Khofifah
+Penunjang kesejahteraan sosial. Bagus sekali Bu Khofifah programnya teruskan keberlanjutan dari segi sosial dan ekonomi masyarakat
+Benar sekali programnya sangat-sangat bermanfaat bagi masyarakat bawah. Kalau boleh ditingkatkan lagi Bu kuotanya untuk masyarakat yang memang membutuhkan
+Seorang pemimpin yang menggerakkan. Terus menjadi penggerak Bu. Untuk bawa perubahan Kota Jawa Timur
+Jujur di era Ibu jaminan kesehatan kami sangat terpenuhi. Semoga ke depan makin meningkat lagi bersama Ibu
+Tidak terlihat prestasinya Bu, hanya menggelinding saja. Jalan di tempat dipimpin Khofifah
+Semoga satu putaran menang 67 persen
+Ini Bu yang mangap depan sendiri xmentionx
+Alhamdulillah, sama-sama mantan menteri sosial xemoticonx yang belum pernah jadi menteri tidak ikut xemoticonx
+Sungguh luar biasa dedikasinya dan perhatiannya
+Luar biasa! Terima kasih kepada Kyai Fathur Rozi Zubair dan tim pemenangan atas upaya memberikan layanan air bersih untuk masyarakat
+Terima kasih Kyai Fathur Rozi Zubair dan tim pemenangan, bantuan air bersih ini sangat membantu masyarakat Bangkalan. Ini sejalan dengan visi Bu Khofifah untuk terus meningkatkan kesejahteraan warga. Semoga berkah bagi semua
+Bantuan air bersih dari Kyai Fathur Rozi Zubair menunjukkan sinergi yang baik dengan program Bu Khofifah dalam mewujudkan kesejahteraan masyarakat. Semoga membawa manfaat yang berkelanjutan
+Luar biasa lanjutkan xemoticonx
+Bakti nyata untuk masyarakat! Terima kasih Bu Khofifah atas kepedulian dan layanan air bersih di Bangkalan! xemoticonx xemoticonx
+Bakti sosial dari Kyai Fathur Rozi Zubair ini merupakan langkah nyata dalam mendukung visi Bu Khofifah untuk memastikan kebutuhan pokok masyarakat terpenuhi. Semoga membawa keberkahan
+Ini bukan untuk umum ya dipilih dari golongan apa dulu muslimat apa tidak wkwk
+Semoga layanan air bersih yang diberikan dapat memberikan manfaat besar bagi masyarakat di Bangkalan
+Langkah maju untuk Bangkalan! Terima kasih Bu Khofifah atas layanan air bersih yang sangat dibutuhkan masyarakat! xemoticonx xemoticonx
+Semoga kebaikan Kyai Fathur Rozi dibalas dengan pahala berlipat ganda
+Konsisten apa tidak Bu apa hanya karena dekat pemilihan gubernur saja?
+Bu maaf, dulu kemana ya? Kok baru turun sekarang
+Semoga layanan ini terus berlanjut
+Bu Khofifah selalu hadir untuk kesejahteraan masyarakat! Terima kasih atas layanan air bersih bagi warga Bangkalan! xemoticonx xemoticonx
+Terima kasih Kyai Fathur Rozi Zubair. Bantuan ini selaras dengan komitmen Bu Khofifah dalam memperhatikan kebutuhan dasar masyarakat. Semoga terus memberi kebaikan bagi banyak orang
+Perhatian yang tulus untuk masyarakat Bangkalan. Terima kasih Bu Khofifah dan Kyai Fathur Rozi Zubair atas layanan air bersih ini! xemoticonx xemoticonx
+Terima kasih Kyai Fathur Rozi Zubair, langkah ini selaras dengan semangat Bu Khofifah untuk memperjuangkan hak-hak masyarakat, termasuk kebutuhan air bersih. Semoga jadi inspirasi bagi banyak pihak
+Salut untuk Kyai Fathur Rozi Zubair dan tim pemenangan yang telah mewujudkan akses air bersih, sebuah langkah konkret mendukung program Bu Khofifah untuk kesejahteraan masyarakat. Semoga semakin maju
+Terima kasih atas bantuan yang sangat bermanfaat ini. Inisiatif Kyai Fathur Rozi Zubair selaras dengan visi Bu Khofifah dalam memastikan seluruh warga Jawa Timur mendapatkan akses air bersih. Semoga berkahnya berlimpah
+Dengan hanya kirim air bersih tidak menyelesaikan masalah, sama saja
+Memberi bantuan saat kampanye xemoticonx xemoticonx xemoticonx
+Semoga usaha Kyai Fathur Rozi dan tim dilancarkan oleh Allah
+Setelah jadi tidak bagi-bagi air lagi xemoticonx
+Kemenangan Bu Khofifah tidak bisa lepas dari tim beliau yang baik
+Kampanye elit, kerja nyata sulit
+Bantuannya kurang merata masih pilih satu
+Bantuan air bersih ini sangat dibutuhkan oleh masyarakat. Langkah Kyai Fathur Rozi Zubair menunjukkan dukungan terhadap upaya Bu Khofifah dalam mengedepankan kesejahteraan rakyat. Semoga membawa manfaat luas
+Panjang umur untuk hal-hal yang bermanfaat xemoticonx
+Layanan air bersih hanya membantu, tetapi tidak menyelesaikan masalah
+Tidak menyelesaikan masalah coba dipikir deh, pantas hasil kerjanya seperti tidak ada
+Terima kasih banyak, Kyai Fathur Rozi Zubair, atas kepeduliannya terhadap masyarakat
+Lanjutkan hal-hal positif xemoticonx
+Alhamdulillah, terima kasih Kyai Fathur Rozi Zubair, atas inisiatifnya yang luar biasa dalam menyediakan air bersih untuk warga
+Sudah Bu Jawa Timur butuh perubahan
+Rakyat Bangkalan pasti dukung Khofifah Emil
+Lo ini kekeringan? Di daerah Jawa Timur?
+Semoga Allah selalu melimpahkan berkah kebaikan kepada tim yang sudah membantu masyarakat dengan air bersih
+Layanan air bersih sangat membantu para warga
+Layanan air bersih sangat membantu para warga dan meringankan beban mereka
+Memberikan kontribusi nyata kepada masyarakat
+Air bersih semoga berkah untuk semua warga
+Terima kasih Kyai inisiatif yang luar biasa
+Inisiatif ini sangat berarti bagi warga Bangkalan! Semoga program ini terus berlanjut dan memberikan manfaat lebih
+Terima kasih Kyai Fathur! Air bersih adalah kebutuhan dasar, dan langkah ini sangat membantu masyarakat
+Keren sekali! Semoga semua daerah bisa mengikuti jejak ini untuk memastikan akses air bersih bagi semua
+Dukungan Kyai Fathur dan tim patut diacungi jempol! Semoga semakin banyak program yang bermanfaat bagi masyarakat
+Air bersih adalah hak setiap orang. Terima kasih telah memperjuangkannya, Kyai Fathur!
+Semoga layanan air bersih ini menjadi awal dari banyak perubahan positif di Kabupaten Bangkalan
+Kerja keras tim pemenangan ini sangat menginspirasi! Semoga terus memberikan solusi bagi masyarakat
+Terima kasih kepada Kyai Fathur dan tim! Semoga langkah ini membawa berkah bagi semua
+Masyarakat sangat membutuhkan akses air bersih. Terima kasih atas upayanya, Kyai Fathur, semoga semakin sukses!
+Manfaat dan berkah selalu Kyai xemoticonx
+Gerakan semacam ini yang terus meyakinkan saya untuk memilih kembali Bu Khofifah xemoticonx xemoticonx
+Lanjutkan sekali lagi Bu Khofifah
+Panjang umur hal-hal baik
+Sehat selalu warga Bangkalan xemoticonx xemoticonx
+Hal-hal baik harus terus mengalir
+Dedikasi untuk Jawa Timur memang totalitas
+Lanjut sekali lagi ya Bu xemoticonx
+Kepedulian yang luar biasa dalam menanggapi masalah xemoticonx xemoticonx xemoticonx xemoticonx
+Mengapa baru sekarang? Eh iya lupa kan ada maunya
+Bu Khofifah ya
+Terima kasih Kyai
+Alhamdulillah, terima kasih atas kepedulian Kyai Fathur Rozi Zubair yang sejalan dengan program Bu Khofifah untuk meningkatkan akses air bersih di daerah-daerah. Semoga masyarakat semakin sejahtera
+Air bersih penting bagi rakyat
+Kyai Fathur Rozi Zubair dan tim pemenangan telah menunjukkan aksi nyata yang sejalan dengan program Bu Khofifah. Bantuan air bersih ini sangat membantu masyarakat Bangkalan yang membutuhkan. Semoga terus berkah
+Terima kasih Kyai
+Semoga bisa istikamah
+Kemenangan dan keberkahan untuk tim Khofifah
+Pak Kyai terima kasih ya
+Tim Khofifah Emil bawa keberkahan di Jawa Timur
+Bangkalan insyaallah dukung Khofifah Emil
+Aku Sidoarjo hadir Bu Khofifah
+Air sangat penting Bu Khofifah semoga bisa teratasi
+Terima kasih yang sebesar-besarnya kepada Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan. Usaha dan doa anda adalah kunci keberhasilan kita
+Kami sangat berterima kasih kepada Kyai Fathur Rozi Zubair dan tim yang sudah bekerja keras tanpa henti. Semoga segala perjuangan anda diberkahi
+Terima kasih atas dedikasinya, Bu Khofifah dan tim pemenangan Bangkalan, semoga air bersih ini bermanfaat bagi masyarakat! xemoticonx xemoticonx
+Pengabdian dan ketulusan Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan sungguh luar biasa. Terima kasih atas dedikasinya
+Bukti nyata bukan omong xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Alhamdulillah, berkat bimbingan dan arahan Kyai Fathur Rozi Zubair, kita bisa mencapai kemenangan ini. Terima kasih untuk semuanya
+Terima kasih yang tak terhingga untuk Kyai Fathur Rozi Zubair dan tim pemenangan Bangkalan. Semoga Allah membalas semua usaha baik anda
+Terima kasih Kyai Fathur Rozi Zubair dan seluruh tim pemenangan Kabupaten Bangkalan. Perjuangan dan doa kalian tidak akan terlupakan
+Kami mengucapkan syukur dan terima kasih atas bimbingan Kyai Fathur Rozi Zubair dan kerja keras tim pemenangan Kabupaten Bangkalan. Semoga selalu diberi kesehatan dan kekuatan
+Terima kasih kepada Kyai Fathur Rozi Zubair dan tim yang telah bekerja siang malam demi kemenangan ini. Semoga keberkahan selalu menyertai anda
+Tidak ada kata yang cukup untuk mengungkapkan terima kasih kepada Kyai Fathur Rozi Zubair dan tim. Doa dan dedikasi kalian sangat berharga
+Terima kasih Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan. Berkat bimbingan anda, kita bisa mencapai hasil yang terbaik
+Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan telah memberikan yang terbaik. Terima kasih untuk semua perjuangan tanpa lelah
+Atas usaha dan doa dari Kyai Fathur Rozi Zubair, kami bisa mencapai kemenangan ini. Terima kasih banyak atas pengorbanan anda
+Terima kasih kepada Kyai Fathur Rozi Zubair dan tim pemenangan Bangkalan yang telah menunjukkan kepemimpinan yang tulus dan inspiratif
+Semua ini tidak lepas dari perjuangan Kyai Fathur Rozi Zubair dan tim. Terima kasih atas segala dedikasi dan kerjanya
+Air bersih, untuk hidup yang lebih baik. Terima kasih atas perhatian Bu Khofifah bagi masyarakat Bangkalan! xemoticonx xemoticonx
+Terima kasih kepada Kyai Fathur Rozi Zubair yang telah membimbing dengan penuh kesabaran dan keikhlasan. Semoga anda selalu diberi kemudahan
+Selalu bawa berkah dan manfaat
+Keberhasilan ini adalah hasil dari perjuangan dan doa Kyai Fathur Rozi Zubair serta tim pemenangan Kabupaten Bangkalan. Terima kasih banyak!
+Kami sangat berterima kasih kepada Kyai Fathur Rozi Zubair yang selalu memimpin dengan hati. Anda adalah teladan bagi kami semua
+Terima kasih untuk Kyai Fathur Rozi Zubair dan seluruh tim yang tidak pernah lelah bekerja demi kemenangan kita bersama
+Ya ini gubernurku xemoticonx xemoticonx
+Langkah kecil yang berdampak besar! Terima kasih Bu Khofifah dan tim atas layanan air bersih bagi masyarakat Bangkalan! xemoticonx xemoticonx
+Bukti nyata ini bos
+Terima kasih Gus bantuan airnya
+Warga Bangkalan siap kawal Bu Khofifah sampai menang
+Air bersih untuk masa depan yang lebih cerah! Terima kasih Bu Khofifah atas inisiatif luar biasa ini! xemoticonx xemoticonx
+Nah ini baru pemimpin cepat, tepat, tidak bertele-tele tidak drama langsung turun ke masyarakat xemoticonx xemoticonx
+Perjuangan untuk kesejahteraan masyarakat terus berlanjut. Terima kasih Bu Khofifah dan Kyai Fathur Rozi atas layanan air bersih di Bangkalan! xemoticonx xemoticonx
+Air bersih untuk rakyat mantap
+Janji nyata bukan omong xemoticonx xemoticonx xemoticonx xemoticonx
+Ini dia pemimpin sejati xemoticonx xemoticonx xemoticonx xemoticonx
+Tidak ragu lagi mendukung nomor dua
+Dan lagi-lagi saya katakan, cukup satu periode saya Bu maaf
+Harusnya dari periode kemarin sudah konsisten, tetapi sayang sangat mengecewakan
+Jawa Timur lebih cerah apabila ganti pemimpin
+Selama periode kemarin perasaan tidak pernah ada bantuan seperti ini xemoticonx
+Periode kemarin kemana saja kok sekarang cari muka seperti ini xemoticonx
+Nanti kalau sudah menang tidak pernah seperti ini lagi sepertinya
+Hanya embel-embel xemoticonx begitu saja tidak berpengaruh nanti di warga kota percuma Bu Pak kita sudah kebal omong kosong xemoticonx
+Yang di kota bagaimana Bu periode kemarin tidak terurus terbengkalai begitu saja bagaimana ya kewajibannya
+Kampanye kurang berguna seharusnya bukan hanya di Bangkalan saja yang dibantu masih banyak daerah Jawa Timur yang butuh air bersih
+Terbukti kinerja beliau lima tahun ini belum jalan
+Terbukti banyak program yang tidak jalan
+Lah selama Anda memimpin masih begini Bu?
+Kok baru waktu kampanye Bu? Kemarin-kemarin kemana?
+Cukup satu periode saja Bu, kinerja kelihatan waktu kampanye saja
+Cukup satu periode saja Bu, kinerja Anda itu saja
+Cukup satu periode saja, jangan menambah xemoticonx lagi xemoticonx
+Hanya waktu lagi mencalonkan diri saja. Waktu jadi banyak jalan-jalannya
+Lewati dulu, yang lain saja
+Sudah ya Bu, cukup periode kemarin saja
+Ya seharusnya kemarin xemoticonx pemerintah provinsi peka soal kekeringan dan kesulitan air di wilayah Bangkalan, bukan mendekati pemilihan
+Seharusnya pemerintah provinsi turun tangan dari tahun xemoticonx sebelumnya
+Dekat pemilihan kepala daerah baru peka, waktu menjabat melakukan apa saja
+Omong kosong Bu tidak ada kerja nyata
+Kemarin kemana saja Bu kok baru sekarang turun
+Terima kasih Bunda
+Apakah dengan air bisa menyelesaikan semua masalah?
+Kok tidak ikut turun ke lapangan Bu?
+Bisa ya komentarnya banyak yang sama begini?
+Cukup satu periode saja
+Ke mana saja selama ini baru turun
+Mantap masyarakat Madura tetap Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx
+Madura sejahtera dengan 02
+Air hasil korupsi ini Bu Khofifah suka sekali dengan korupsi jangan dipilih ya
+Madura sudah dibohongi oleh kepemimpinan Bu Khofifah jangan percaya ya bunda-bunda sahabat Madura jangan dipilih Bu Khofifah
+Kalau di awal saja ya sama saja Buk wkwk
+Wkwkw mencari muka saja Buk kalau ini xemoticonx
+Kalau ini ya mencari muka saja jelasnya hahaa hanya di awal saja loh
+Tidak masuk sama sekali sudah cukup 1 periode saja
+Tidak masuk sama sekali cukup 1 periode saja Buk
+Sudah Buk 1 periode saja jangan banyak-banyak
+Selamat ulang tahun, Pak Prabowo! Semoga diberikan kekuatan untuk memimpin Indonesia menuju kemajuan dan kesejahteraan xemoticonx xemoticonx xemoticonx
+Selamat ulang tahun pak, selalu diberi kekuatan dalam menjalankan tugas memimpin negara
+Doa terbaik untuk Bapak Prabowo di hari spesial ini. Semoga sehat selalu dan sukses membawa Indonesia ke puncak kejayaan. Jawa Timur siap berjuang bersama Bapak xemoticonx
+Selamat ulang tahun pak Prabowo semoga selalu disertai kebaikan xemoticonx
+Selamat ulang tahun pak, doa terbaik untuk kesehatan dan kesuksesan bapak
+Selamat ulang tahun calon pak presiden xemoticonx
+Panjang umur dan sehat selalu, Bapak Presiden terpilih! Kami siap mendukung kepemimpinan Bapak demi Indonesia yang lebih maju xemoticonx xemoticonx
+Selamat ulang tahun untuk pemimpin masa depan Indonesia, Pak Prabowo! Semoga Bapak selalu dalam lindungan Allah dan diberi kekuatan dalam memimpin negeri ini. Jawa Timur mendukung penuh xemoticonx xemoticonx
+Selamat ulang tahun, Pak Prabowo! Semoga selalu diberi kekuatan dalam memimpin negeri ini menuju kesejahteraan dan kemajuan. Jawa Timur bersama Bapak xemoticonx xemoticonx
+Selamat ulang tahun, Pak Prabowo! Semoga selalu diberikan kesehatan dan kekuatan dalam memimpin Indonesia menuju masa depan yang lebih gemilang. Jawa Timur siap mendukung penuh xemoticonx
+Di hari ulang tahun Pak Prabowo, kami di Jawa Timur mengucapkan selamat dan doa terbaik untuk kepemimpinan Bapak. Semoga sukses selalu dan membawa Indonesia ke masa depan yang lebih cerah xemoticonx
+Selamat ulang tahun, Prabowo panjang umur dan semoga diberkahi kesehatan dalam memimpin negeri ini. Jawa Timur siap maju bersama Bapak untuk Indonesia yang sejahtera xemoticonx xemoticonx
+Selamat ulang tahun pak Prabowo xemoticonx
+Selamat ulang tahun, Pak Prabowo! Semoga Bapak selalu diberkahi kesehatan, kekuatan, dan kebijaksanaan dalam memimpin bangsa ini
+Makin sehat pak amin
+Selamat hari jadi pak xemoticonx
+Dirgahayu pak Prabowo semoga senantiasa diberi kesehatan
+Doa terbaik untuk Bapak Prabowo di hari ulang tahun ini. Semoga selalu sehat dan sukses dalam memimpin Indonesia ke arah yang lebih baik. Kami di Jawa Timur siap bersama Bapak xemoticonx
+Selamat ulang tahun pak Prabowo semoga panjang umur dan sehat selalu
+Panjang umur pak, sehat selalu untuk membawa Indonesia menuju masa depan yang gemilang
+Selamat ulang tahun pak Prabowo xemoticonx
+Doa terbaik untuk pak Prabowo
+Selamat ulang tahun pak Prabowo, semoga selalu berhubungan baik dengan Bu Khofifah xemoticonx
+Panjang umur dan sukses selalu, Pak Prabowo! Kami di Jawa Timur siap berjuang bersama untuk mewujudkan Indonesia yang lebih maju dan sejahtera. Semangat terus, Pak xemoticonx xemoticonx
+Selamat ulang tahun pemimpin yang kami banggakan
+Selalu menyenangkan melihat pemimpin saling menghormati
+Panjang umur sehat selalu bapak
+Hadiahnya langsung pelantikan ya pak xemoticonx
+Sehat selalu bapak presiden tercinta xemoticonx xemoticonx
+Selamat Ulang Tahun Jenderal xemoticonx xemoticonx
+Semoga pak Prabowo tetap sehat dan membela rakyat setelah menjabat
+Indonesia maju dipimpin oleh bapak Prabowo
+Semoga Pak Prabowo sehat selalu dan mampu membawa Indonesia ke arah yang lebih baik xemoticonx xemoticonx
+Semoga sukses dalam menjalankan amanah sebagai presiden, dan semoga selalu diberikan kesehatan dan kebahagiaan
+Selamat ulang tahun Presiden Baru Kita xemoticonx
+Selamat ulang tahun bapak presiden
+Sehat selalu pak presiden xemoticonx xemoticonx xemoticonx xemoticonx
+Allahumma amin
+Selamat ulang tahun dan sehat selalu pak
+Selamat ulang tahun pak Prabowo, harapan bangsa ada di pundak bapak xemoticonx
+Keren sekali Presiden baru kita xemoticonx
+Maju terus Jawa Timur dan Indonesiaku
+Jawa Timur siap mendukung penuh kepemimpinan Pak Prabowo. Semoga sukses
+Dirgahayu Pak Prabowo Semoga di usia yang baru ini bapak makin kuat dalam memimpin bangsa ini menuju Indonesia yang lebih makmur dan sejahtera
+Barakallah xemoticonx
+Selamat ulang tahun pak Prabowo semoga panjang umur sehat-sehat selalu amin ya rabbal alamin
+Selamat milad pak presiden xmentionx, semoga usianya xemoticonx makin berkah dan sukses selalu xemoticonx
+Selamat ulang tahun Pak Prabowo semoga panjang umur, sehat selalu
+Selamat ulang tahun, Pak Prabowo! Panjang umur dan sehat selalu. Kami di Jawa Timur siap menjadi garda terdepan untuk mendukung kepemimpinan Bapak. Indonesia maju bersama Anda xemoticonx
+Selamat ulang tahun pak presiden sehat selalu xemoticonx
+Semoga diberi kesehatan selalu
+Selamat ulang tahun bapakku semoga Indonesia makin emas
+Selamat ulang tahun, Pak Prabowo! Semoga selalu diberi kesehatan dan kekuatan dalam memimpin Indonesia xemoticonx xemoticonx xemoticonx
+Selamat Bapak Prabowo presiden terpilih 2024-2029 barakallah fii umrik fii rizqi semoga Allah SWT memberikan keberkahan umurnya menjadikan Indonesia lebih makmur sejahtera semoga Ibu Khofifah Indar Parawansa dan Bapak Emil Dardak sebagai Gubernur Jawa Timur periode 2024-2029 dan masyarakat Jawa Timur mendukung Bapak
+Indonesia maju bersama bapak Prabowo xemoticonx xemoticonx
+Sehat selalu Pak Jenderal xemoticonx xemoticonx
+Sehat selalu bapak xemoticonx
+Sehat selalu dan panjang umur pak presiden
+Tambah umur bapak semoga sehat selalu
+Semoga sukses selalu dalam memimpin bangsa ini. Jawa Timur mendukung penuh xemoticonx
+Semoga Indonesia makin cerdas warganya seperti bapak xemoticonx
+Panjang umur ya pak xemoticonx
+Semoga sehat selalu dalam bertugas menjadi presiden RI
+Sudah saja lu menjilatnya
+Panjang umur bapak xemoticonx xemoticonx
+Kepemimpinan Pak Prabowo, harapan baru untuk Indonesia. Selamat ulang tahun, Pak xemoticonx
+Kami bangga mempunyai presiden seperti bapak xemoticonx xemoticonx
+Sehat dan panjang umur pak Prabowo
+Bangga punya presiden secerdas bapak
+Panjang Umur pak Prabowo berjuang terus untuk kemajuan bangsa
+Selamat tambah umur bapak kesayangan warga Indonesia
+Selamat ulang tahun, Bapak Prabowo! Semoga kepemimpinan Anda membawa Indonesia menuju kemajuan yang lebih baik
+Dukungan dari Jawa Timur sangat berarti! Bersama, kita wujudkan Indonesia yang sejahtera
+Di hari istimewa ini, semoga bapak selalu diberi kesehatan, kebahagiaan, kesuksesan, dalam setiap usaha yang dijalani
+Selamat ulang tahun pak
+Semangat kolaborasi yang luar biasa! Selamat untuk Bapak Prabowo dan tim di Jawa Timur
+Selamat ulang tahun bapakku xemoticonx xemoticonx
+Oke gas akan selalu mengingatmu pak, selamat ulang tahun
+Selamat milad bapak xemoticonx xemoticonx
+Dengan kepemimpinan yang kuat, kita pasti bisa mencapai tujuan bersama. Selamat ulang tahun
+Sehat selalu bapak xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat ulang tahun untuk Bapak Prabowo Subianto! Semoga sukses dalam membawa Indonesia ke arah yang lebih baik xemoticonx xemoticonx xemoticonx
+Senang sekali melihat pak presiden
+Semoga Bapak Prabowo selalu diberi kesehatan dan kekuatan dalam menjalankan amanahnya
+Selamat ulang tahun pak Prabowo xemoticonx
+Presidenku ulang tahun rek
+Panjang umur dan sehat selalu, Pak Prabowo! Kami di Jawa Timur siap mendukung sepenuhnya xemoticonx xemoticonx
+Pesan yang penuh harapan! Mari kita dukung langkah-langkah menuju Indonesia yang lebih maju
+Selamat ulang tahun, Bapak Presiden terpilih! Semoga sukses selalu dalam membawa perubahan positif bagi negeri ini xemoticonx xemoticonx
+Selamat ulang tahun, Pak Prabowo! Semoga selalu diberi kekuatan dalam memimpin Indonesia. Kami di Jawa Timur mendukung penuh xemoticonx xemoticonx
+bapak xemoticonx xemoticonx
+Kepemimpinan Bapak Prabowo sangat dinanti! Selamat ulang tahun dan sukses selalu
+Kami di Jawa Timur siap mendukung! Semoga segala rencana dapat berjalan lancar
+Panjang umur dan sehat selalu, Pak Prabowo! Semoga sukses dalam mengemban amanah sebagai Presiden terpilih xemoticonx xemoticonx xemoticonx
+Selamat untuk Bapak Prabowo! Semoga tahun-tahun mendatang dipenuhi dengan prestasi
+Bersama-sama kita bisa, semoga semangat ini terus membara di seluruh Indonesia
+Selamat ulang tahun, Pak Prabowo! Semoga sukses dalam kepemimpinan dan membawa Indonesia lebih maju xemoticonx xemoticonx
+Selamat ulang tahun pak Prabowo xemoticonx
+Selamat ulang tahun pak presiden, sehat selalu semangat memimpin Indonesia di masa depan xemoticonx
+Anda dekat dengan penguasa anda selamat, di pilihan gubernur Jawa Timur besok anda sudah dipastikan menang
+Selamat ulang tahun Bapak RI Indonesia Prabowo Subianto semoga sehat selalu sukses untuk menjalankan tugas negara salam sehat selalu semuanya amin
+Mabruk mabruk mabruk untuk Bapak Jenderal xemoticonx TNI xemoticonx xemoticonx Purnawirawan xemoticonx H. Prabowo Subianto Djojohadikusumo. Semoga senantiasa diberikan sehat walafiat dan berkah semuanya xemoticonx Majelis Ratib Habib Ahmad Alaydrus - Poltangan Jakarta Selatan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat ulang tahun pak Prabowo xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat Ulang Tahun Bapak Presiden Terpilih 2024-2029
+Kado terindah untuk pak xmentionx nanti di tanggal 20 Oktober 2024. Selamat ulang tahun, semoga senantiasa diberikan sehat walafiat, xemoticonx diberi sisa umur yang berkah untuk membangun Indonesia tercinta amin ya rabbal alamin xemoticonx xemoticonx
+Jangan lupa perjuangkan nasib guru madrasah swasta
+Sungguh mereka guru swasta juga berjuang, mengapa harus didiskriminasi
+Panjang umur Presiden xemoticonx
+Yaumul milad Barakallah fii Umrik Mabruk Alfa Mabruk bapak Prabowo Subianto Djojohadikusumo presiden kebanggaan kita
+Barakallah fii umrik Jenderal. Presiden ke-8 RI Semoga diberkahi kesehatan, kebahagiaan yang melimpah dan selalu menginspirasi dalam semangat pengabdian untuk bangsa dan negara amin
+xemoticonx xemoticonx xemoticonx xemoticonx selamat milad pak Jenderal semoga seiring berjalannya waktu Indonesia membutuhkan tangan-tangannya yang terampil menuju Indonesia emas
+Selamat ulang tahun Pak Prabowo Presiden Tercinta
+Presiden Prabowo semoga panjang umur
+Selamat ulang tahun pak Prabowo sehat dan sukses
+Selamat Bertambah usia Pak Prabowo Subianto
+Maju dan sehat selalu pak Prabowo 08
+Yaumul milad fii umrik pak Prabowo, semoga sehat selalu dan dilancarkan urusannya, pelantikan tanggal 20 Oktober 2024 adalah kado terindah untuk bapak, sekaligus tugas berat mengemban tugas negara xemoticonx xemoticonx xemoticonx
+Oke gas
+Sehat panjang umur dan berkah
+Barakallah xemoticonx xemoticonx
+Hadiah ulang tahunnya tidak tanggung-tanggung pak. 20 Oktober Dilantik jadi presiden RI ke-8, Sesuai dengan sapaan beliau Prabowo08 xemoticonx
+Panjang umur pak Prabowo xemoticonx
+Selamat ulang tahun! Semoga sukses selalu menyertai xemoticonx xemoticonx
+Ucapan selamat penuh inspirasi! Semoga terus berkarya xemoticonx
+Semangat terus bapak presiden terpilih
+Selamat ulang tahun, Pak Prabowo! xemoticonx Semoga di tahun baru ini, Bapak makin diberkati dengan kesehatan dan kesuksesan dalam setiap langkah. Teruslah menjadi inspirasi bagi kita semua
+Selamat ulang tahun bapak pejuang
+Ucapan selamat untuk Pak Prabowo! xemoticonx Semoga di hari istimewa ini, Bapak mendapatkan kebahagiaan dan pencapaian yang lebih besar. Kami selalu mendukung setiap visi dan misi Bapak
+Selamat ulang tahun idolaku
+Selamat ulang tahun pak
+Masyaallah tabarakallah
+Bangga sekali ulang tahun saya sama dengan pak xmentionx
+Semoga Pak De Prabowo Sehat Selalu. Amin Allahumma Amin
+Prabowo menuju Jawa Timur maju
+Selamat Ulang Tahun Bapak Jenderal TNI xemoticonx dalam keadaan xemoticonx xemoticonx Purnawirawan xemoticonx H. Prabowo Subianto, Semoga Panjang umur, Sehat Selalu xemoticonx
+Selamat Ulang Tahun Bapak semoga selalu diberi kekuatan, kesabaran, kesehatan serta sukses memimpin dan membawa Indonesia menuju masa depan yang sejahtera
+Sehat selalu pak. Semoga Indonesia tambah maju. Jawa Timur tetap Bu Khofifah
+Selamat ulang tahun bapak xmentionx semoga panjang umur dan sehat selalu semoga selalu diberi lindungan oleh Allah xemoticonx SWT xemoticonx xemoticonx dalam melaksanakan tugas xemoticonx untuk Indonesia xemoticonx xemoticonx
+Presidenku xemoticonx xemoticonx
+Selamat ulang tahun presidenku xemoticonx xemoticonx
+Selamat ulang tahun pak presiden
+Ulang tahun pak presiden xemoticonx xemoticonx xemoticonx
+Mau tanya bu nyai alamat rumah pak Prabowo di mana ya bu
+Jayalah bangsaku. Jayalah negeriku
+Asal bukan petahana xemoticonx
+Selamat ulang tahun pak presiden Prabowo panjang umur panjang jodoh sehat selalu dalam lindungan Tuhan yang maha kuasa amin xemoticonx xemoticonx
+Selamat ulang tahun presidenku xemoticonx xemoticonx
+Sehat xemoticonx presiden xemoticonx
+Selamat ulang tahun pak
+Luar biasa sekali! Kreativitas dan keahlian yang diterapkan di PT Inti Maju Cemerlang benar-benar mengagumkan. Memproduksi mobil klasik dengan metode buatan tangan menunjukkan dedikasi tinggi terhadap kualitas
+Mobil klasik buatan tangan di era modern? Salut sekali untuk PT Inti Maju Cemerlang
+Keren sekali! Mobil klasik buatan tangan pasti penuh dengan detail dan dedikasi. Bangga dengan karya anak bangsa xemoticonx xemoticonx
+Jeep klasik yang dipakai di pawai lima tahun lalu? Luar biasa sekali, semoga kejayaan itu terulang
+Memodifikasi kendaraan baru menjadi mobil klasik adalah karya seni yang membutuhkan ketelitian dan semangat. PT Inti Maju Cemerlang benar-benar menginspirasi dengan produksi mereka xemoticonx
+Hasil modifikasi PT Inti Maju Cemerlang terlihat begitu halus dan elegan. Mereka mampu menghadirkan nostalgia dengan kualitas terbaik
+PT Inti Maju Cemerlang telah menciptakan karya-karya yang tidak hanya estetis tetapi juga berkelas. Buatan tangan mobil klasik seperti ini adalah sesuatu yang istimewa
+Senang melihatnya Bu Khofifah mengunjungi bengkel custom, bentuk kepedulian seorang pemimpin yang selalu mendukung produk lokal
+Keren sekali nih, Bu Khofifah support bengkel modifikasi xemoticonx
+Ini baru jeep klasik yang asli! Siap mengantar Khofifah-Emil untuk menang lagi, amin
+Jeep klasik yang dibuat dengan tangan ini sih impian sekali! Semoga bisa mengantar Khofifah-Emil menang lagi
+600 unit mobil klasik? Luar biasa sekali pencapaian PT Inti Maju Cemerlang! Terus maju dan berkarya xemoticonx xemoticonx
+Ini baru mobil klasik sejati! Semoga jeep ini mengantar kemenangan lagi untuk Khofifah-Emil
+Salut untuk PT Inti Maju Cemerlang, yang telah berhasil membawa sentuhan elegan masa lalu melalui mobil klasik custom ini. Karya-karya mereka adalah bukti keahlian otentik yang jarang ditemui
+Melihat jeep klasik ini langsung nostalgia ke pawai lima tahun lalu
+Mobil klasik dengan modifikasi buatan tangan? Pastinya punya nilai seni yang luar biasa! Terus berkarya xemoticonx xemoticonx
+Sudah tidak tahu konsepnya mengapa baru xemoticonx ini dari dulu kan itu sudah lama berdirinya
+Semoga bengkel modifikasi mendapat perhatian lebih oleh pemerintah dan mendapat wadah untuk mengembangkan potensi otomotif
+Inspirasi sekali sih ini bu, kreativitas anak bangsa harus dikembangkan
+Sehat selalu ibu xemoticonx xemoticonx xemoticonx
+Ini sosok pemimpin yang paham akan pentingnya industri kreatif otomotif, mobil klasik modifikasi dari Sidoarjo bisa menjadi daya tarik nasional
+Hanya mengunggah ulang saja ini tidak ada faedahnya
+Tidak banyak bengkel yang mampu menghasilkan mobil klasik buatan tangan sebanyak ini. Keberhasilan PT Inti Maju Cemerlang patut diacungi jempol
+Bu Khofifah, inisiatif luar biasa untuk mendukung industri otomotif lokal! Semoga makin banyak pelaku usaha yang terinspirasi
+Semoga dengan kunjungan ini, akan banyak bengkel otomotif yang mendapat dukungan oleh pemerintah xemoticonx
+Bukti keahlian lokal yang tidak kalah
+Tombol Bu Khofifah dua periode xemoticonx
+Khofifah-Emil menang 1 putaran
+Hasil kerja dong bu yang ditunjukkan bukan riwi-riwi sana sini, tidak ada ya?
+Pemimpin berpengalaman untuk Jawa Timur
+Dua periode Bu, untuk Jawa Timur maju
+Berikan kesehatan dan kemudahan kepada Bu Khofifah dalam menyelesaikan segala urusan
+Apa yang dia tunjukkan ke masyarakat? Begini xemoticonx saja
+Ya begini ini pemimpin yang baik xemoticonx xemoticonx
+Luar biasa! Apresiasi yang sangat luar biasa bu
+Woy urusin tuh SDM Jawa Timur soal sound horeg! Meresahkan dan merugikan, pemda kerjanya apa sih? Atau itu saudaranya orang pemda?
+Gas penuh menuju kemenangan
+Bu Khofifah cocok jadi gubernur karena peduli pelaku usaha lokal
+Terima kasih ibu atas kunjungannya xemoticonx xemoticonx
+Melihat jeep ini, nostalgia sekali
+Keren sekali bu Khofifah mengapresiasi industri kreatif otomotif lokal xemoticonx
+Salut ibu, optimis menang xemoticonx xemoticonx
+My God, how many millions of dollars do I have in my bank account, who do I send it to?
+Classic jeep vibes yang masih handmade, ini bukti kualitas
+Mobil klasik handmade seperti ini sih masterpiece sekali
+Alhamdulillah, terima kasih sudah mampir di Pasar Desa Betro Sedati Sidoarjo. Sukses lancar barakallah xemoticonx xemoticonx xemoticonx xemoticonx
+Produksi 600 unit mobil klasik handmade adalah prestasi luar biasa! PT Inti Maju Cemerlang benar-benar memahami apa yang diinginkan penggemar mobil klasik
+Lanjutkan bu untuk pembangunan Jawa Timur maju
+Kapal besar berlayar menuju kemenangan
+Salut untuk bu Khofifah yang selalu mendukung sektor usaha kecil menengah xemoticonx
+Dukung terus untuk Jawa Timur berprestasi
+Kombinasi sempurna untuk masa depan Jawa Timur gemilang
+Dukung bersama xemoticonx Khofifah-Emil
+Selalu memperhatikan keselamatan masyarakat dengan mengapresiasi inovasi rumah tahan gempa
+Bangga sekali ada pemimpin yang peduli akan industri lokal xemoticonx
+Mobil klasik setiap tahunnya tidak ada habisnya, selalu ada daya tarik tersendiri
+Mobil lama itu banyak sekali kenangannya bu xemoticonx
+Bismillah bu dua periode ya xemoticonx
+Bu Khofifah dukung pengusaha lokal Jawa Timur lebih berkembang
+Pemimpin bu Khofifah model pemimpin yang suka menyertai berkembang dengan rakyat
+Kapan ke Nganjuk bu
+Gas penuh bersama bu Khofifah
+Kapal besar siap berlayar untuk Jawa Timur maju
+Kemenangan di depan mata
+Bekerja untuk rakyat
+Bu Khofifah semangat terus bu
+Dua periode, siap menangkan Khofifah Emil
+Visi misi tidak diragukan lagi
+Inilah pemimpin yang konsisten membawa perubahan
+Mobil modifikasi akan tetap masih prospek ke depannya
+Gas dua periode xemoticonx
+Bu Khofifah pasti bisa bawa Jawa Timur lebih baik dan maju
+Saya juga suka mobil klasik
+Aku juga penasaran ingin main ke sana bu Khofifah
+Mobilnya dijual atau disewakan atau bagaimana
+Bu Khofifah selalu dukung pelaku usaha lokal
+Mantap bunda
+Tolong lebih diperhatikan lagi rakyat kecil bu
+Produk asli Jawa Timur memang paling terbaik
+Info harganya dong bu xemoticonx
+Jeep klasik asli Jawa Timur xemoticonx xemoticonx
+Otewe produksi masal sih kalau begini xemoticonx xemoticonx
+Maju terus industri otomotif Jawa Timur
+Lanjutkan sekali lagi ya Bu xemoticonx
+Gas penuh terus xemoticonx xemoticonx
+Lanjutkan sekali lagi Bu Khofifah
+Konsisten bu Risma jaya jaya jaya xemoticonx xemoticonx
+Sehat dan sukses ibu Khofifah
+Ibu Khofifah yang terhormat akhir xemoticonx ini saya banyak melihat seliweran di media sosial tentang musik horeg yang dalam aktivitasnya merusak fasilitas umum sampai fasilitas warga apakah tidak ada penindaklanjutan masalah ini, saya bukan warga Jawa Timur tapi saya miris melihatnya
+Mesti yang diprioritaskan menengah ke atas xemoticonx
+Begini mau dijadikan pemimpin Jawa Timur, mana peduli sama kaum muda, cukup satu periode saja bu anda jangan lanjut lagi
+Malas pilih anda bu program dan kampanye tidak ada yang berguna bagi rakyat
+Tidak ada kemajuan sama sekali selama ini isinya hanya omong kosong di mana-mana tidak ada progres
+Bu, musik horeg bu
+Luar biasa, produksi 600 unit mobil klasik dengan metode handmade! Salut untuk PT Inti Maju Cemerlang! xemoticonx xemoticonx
+Modifikasi kendaraan jadi klasik? Pasti hasilnya luar biasa! Sukses terus untuk PT Inti Maju Cemerlang! xemoticonx xemoticonx
+Produk lokal yang bisa dibanggakan! Semoga makin banyak karya seperti ini di Indonesia! xemoticonx xemoticonx
+Tunjukkan hasil kerja dong bu apa tidak ada?
+Salut untuk Iwan Setiawan dan tim! Mobil klasik buatan tangan pasti memberikan sentuhan unik yang sulit ditandingi! xemoticonx xemoticonx
+Produksi mobil klasik handmade ini pasti detail sekali! Bangga ada usaha lokal yang berkualitas internasional! xemoticonx xemoticonx
+Ke sana ke mari, kasih tunjuk hasil kerja dong, tidak ada ya bu?
+Handmade mobil klasik? Pasti hasilnya memukau! Terus sukses untuk tim PT Inti Maju Cemerlang! xemoticonx xemoticonx
+Industri otomotif makin maju
+Kampanye yang bermanfaat bu lain kali
+Tidak dulu sudah bu saya lain saja
+Info ganti pemimpin xemoticonx
+Sudah waktunya ganti pemimpin
+Barakallah, bunda harus cetar dan gas penuh
+Terus di mana letak faedahnya dan kontribusinya?
+Peduli waktu masa kampanye, selebihnya tidak ada kontribusi
+Mengurusnya sangat tidak berguna dan tidak bermanfaat
+Bu Khofifah, luar biasa! Inisiatif seperti ini bisa memajukan industri otomotif lokal dan mengangkat kreativitas masyarakat
+Bu Khofifah selalu mendukung produk lokal
+Bu Khofifah, sosok yang mendukung inovasi lokal! Semoga dapat terus mengapresiasi karya lokal
+Keren sekali sih ini
+Terima kasih Bu Khofifah atas dukungannya! xemoticonx Apresiasi seperti ini sangat penting untuk mendorong para pengrajin dan inisiator di bidang otomotif. Semoga industri modifikasi mobil klasik di Sidoarjo makin maju dan dikenal luas!
+Keren sekali mobilnya
+Satu periode cukup, tidak perlu dilanjut
+Tidak masuk kalau diulang, cukup sekali dan jangan lagi
+Setuju satu periode saja tidak perlu dua
+Dari kemarin ke mana saja bu, kok baru sekarang turun
+Sudah waktunya yang memegang Jawa Timur yang benar itu bu Risma xemoticonx
+Semoga yang terpilih tidak nomor dua lagi
+Jalan di Jawa Timur masih banyak yang rusak bu
+Cukup satu periode saja bu, kinerjanya anda itu-itu saja
+Cukup satu periode saja bu, soalnya kinerja anda itu-itu saja
+Sudah cukup satu periode saja, cari yang benar-benar jelas kerja nyata bukan itu-itu saja
+Pada saat kampanye baru diperhatikan bu
+Seharusnya dari kemarin xemoticonx diperhatikan, bukan mendekati pemilihan kepala daerah baru diperhatikan bu
+Kalau ada butuhnya baru diperhatikan
+Yang terpenting apa pun yang terjadi pemilihan kepala daerah tahun ini kalau jadi jangan lupa dengan janji-janjinya
+Banyak jalan-jalan yang rusak xemoticonx tidak mementingkan suara rakyat
+Sangat bangga melihat produksi mobil klasik yang kreatif di Sidoarjo! Terima kasih atas dukungan Anda, Bu Khofifah
+Bu Khofifah, inovasi seperti ini adalah bukti nyata bahwa kita bisa mengembangkan potensi lokal. Semoga terus berlanjut!
+Sangat mengagumkan melihat karya handmade yang berkualitas! Bu Khofifah, terus dorong pelaku usaha lokal seperti ini
+Dukungan Bu Khofifah untuk industri otomotif patut diacungi jempol! Semoga makin banyak yang memperhatikan karya anak bangsa
+Inisiatif seperti ini membawa harapan baru bagi pengusaha muda. Terima kasih, Bu Khofifah, untuk dukungan yang luar biasa!
+Mobil klasik dengan sentuhan custom! Bu Khofifah, Anda selalu mendukung inovasi yang membawa dampak positif
+Keberanian untuk berkreasi di bidang otomotif seperti ini sangat inspiratif! Bu Khofifah, terima kasih atas komitmennya
+Sidoarjo patut berbangga dengan karya ini! Dukungan Bu Khofifah menjadikan peluang lebih terbuka bagi banyak orang
+Jadi rindu naik mobil lah xemoticonx xemoticonx
+Jadi teringat masa lalu xemoticonx
+Mobil klasik memang menarik xemoticonx xemoticonx
+Lanjutkan xemoticonx xemoticonx
+Keren xemoticonx xemoticonx xemoticonx xemoticonx
+Sudah tidak waktunya yang memegang Jawa Timur
+Awas-awas waktunya pencitraan
+Sudah bu cukup satu periode saja
+Madura butuh lapangan pekerjaan bu xemoticonx
+Diambil terus jabatannya tidak becus satu periode ini tidak usah lanjut ya bu
+Bu Khofifah tidak tahu otomotif urus saja suamimu bu jangan urusi otomotif dan Jawa Timur, suamimu butuh kebutuhan jasmani
+Tidak jago mengurusi otomotif jangan bu Khofifah urus saja itu keluarga tidak usah urus pemerintah Jawa Timur, banyak janji palsu bunda salah satu korbannya
+Apa lah manis nak awal tok nomor tiga tetap di hati xemoticonx xemoticonx
+Jawa Timur maju bersama bu Rismaku xemoticonx
+Tidak ada hasilnya sama sekali janji xemoticonx saja
+Tidak masuk banyak-banyak itu-itu anda bu
+404eala404 sudah cukup satu periode saja anda jangan banyak-banyak
+Tidak masuk begini teman-teman
+Wah, keren sekali! Mobil klasik handmade bikin nostalgia dengan jeep yang dipakai di pawai dulu! Semoga menang lagi di periode kedua
+Keren nih handmade
+Keren sekali melihat produksi mobil klasik handmade! Semoga jadi bagian dari kemenangan Khofifah-Emil di periode kedua
+Jeepnya lucu nih xemoticonx
+Otomotif itu penting bu, salut deh xemoticonx xemoticonx
+PT Inti Maju Cemerlang benar-benar kreatif dan inovatif dalam memproduksi mobil klasik. Semoga jeep mereka, yang pernah menjadi saksi kemenangan Khofifah-Emil, kembali menjadi bagian dari kemenangan berikutnya. Amin
+Mobilnya keren ibu seperti ibu xemoticonx
+Mobil klasik dengan sentuhan handmade dari PT Inti Maju Cemerlang memang luar biasa! Semoga sukses di periode kedua
+Bu Khofifah selain cerdas cantik juga
+Cinta bu Khofifah xemoticonx xemoticonx
+Keren nih di Sidoarjo ada bengkel seperti begini
+Penyuka mobil klasik juga ya bu xemoticonx
+Keren mobilnya
+Saya juga suka dengan jeep bu Khofifah
+Salut dengan bengkel ini, kualitas handmade-nya bikin mobil klasiknya makin istimewa! Semoga Khofifah-Emil menang lagi
+Yakin menang xemoticonx xemoticonx
+Dua periode lanjutkan
+Waktunya dua periode
+Menemukan saja bu sisi uniknya Sidoarjo
+Katanya Sidoarjo otomotifnya bagus
+Perhatian yang luar biasa terhadap pelestarian mobil klasik
+Warga Jawa Timur pilih bu Khofifah
+Jelas menang satu putaran
+Semoga otomotif Sidoarjo mendapatkan perhatian lebih agar pemerintah Jawa Timur dapat memajukan kesejahteraan Jawa Timur
+Semoga industri-industri kreatif semacam modifikasi-modifikasi motor, mobil, mesin-mesin pertanian dan lain-lain. Semoga makin berkembang di Jawa Timur
+Amin ya mujibassailin
+Bu Khofifah tulus untuk warga Jawa Timur
+Yakin bu Khofifah satu putaran
+Kawal sampai menang
+Musik horeg di Jawa Timur ditertibkan lah
+Siap mengawal kemenangan periode kedua bu xemoticonx
+Memang Jawa Timur nih tidak kaleng-kaleng ya industrinya xemoticonx xemoticonx xemoticonx
+Mobilnya keren, yang naik jauh lebih keren xemoticonx xemoticonx
+Mobil dengan sejuta kenangannya xemoticonx
+Kita ulangi kembali tahun ini bu xemoticonx xemoticonx
+Mentari pagi cerahkan suasana, membangun negeri dengan penuh kasih. Bu Khofifah, sosok yang berkuasa, mewujudkan harapan untuk semua yang bersih
+Jawa Timur memang selalu mengagumkan xemoticonx xemoticonx
+I'm sick of being a millionaire, what should I do with my money?
+Mobil klasik yang penuh sejarah
+Lewati, bosan
+Harus menang
+Lanjutkan terus bu Khofifah
+Bangga dengan produksi mobil klasik lokal, hasilnya luar biasa! Semoga jeep ini ikut jadi saksi kemenangan lagi
+Keahlian luar biasa dari PT Inti Maju Cemerlang! Mobil klasik mereka, terutama jeep terbuka, menjadi bagian dari sejarah kemenangan Khofifah-Emil. Semoga terus membawa keberuntungan
+Mobil klasik handmade? Luar biasa! Semoga mobil ini mengantar Khofifah-Emil ke kemenangan berikutnya
+Kunjungan yang inspiratif! Selamat untuk para pelaku industri. Semoga dapat terus berkarya xemoticonx xemoticonx
+Bangga dengan produk otomotif lokal! Semoga jeep klasik ini kembali jadi saksi kemenangan Bu Khofifah-Emil! xemoticonx xemoticonx
+Benar-benar bengkel yang otentik
+Mantap memang xemoticonx
+Mau ke sana bu
+Produksi mobil klasik handmade ini adalah bukti dedikasi PT Inti Maju Cemerlang. Semoga karya-karya mereka kembali menghantarkan kemenangan Khofifah-Emil di periode kedua
+Keren sekali! PT Inti Maju Cemerlang benar-benar menunjukkan keahlian dengan produksi mobil klasik handmade. Semoga jeep mereka kembali menjadi bagian dari kemenangan Khofifah-Emil di periode kedua. Amin
+Dedikasi luar biasa hasil pasti memukau
+Keren, mobil klasik tetap eksis
+Kita siap kawal sampai menang xemoticonx xemoticonx
+Mantap! Mobil klasik handmade begini pasti punya kualitas luar biasa. Semoga mengantarkan kemenangan Khofifah-Emil lagi! xemoticonx xemoticonx xemoticonx
+Luar biasa! Menggunakan alat tradisional seperti kenteng dan palu, tapi hasilnya tetap istimewa. Semoga mobil-mobil karya PT Inti Maju Cemerlang terus membawa keberuntungan, termasuk untuk Khofifah-Emil
+Terus berjaya di dunia otomotif
+Semoga rakyat Jawa Timur pilih nomor dua. Insyaallah
+Bu tolong perhatikan juga yang suka mengadakan musik reog, mengganggu dan merusak sekitar juga
+Wah, mobil klasik handmade! Bangga sekali produk lokal bisa sekeren ini! Semoga membawa kemenangan lagi untuk Khofifah-Emil! xemoticonx xemoticonx
+Keren sekali bengkelnya! Mobil klasik yang dibuat dengan tangan pasti punya nilai seni tinggi! Sukses terus! xemoticonx xemoticonx
+Mantap menuju dua
+Lanjutkan dua periode xemoticonx
+Kemenangan akan terulang lagi, dua periode
+Lanjutkan Bu, kita siap ikut pawai kemenangan lagi xemoticonx
+Tetap eksis di dunia otomotif
+Mobil klasik dengan cerita besarnya
+Mobil klasik yang bikin nostalgia, lanjutkan dua periode
+Bengkel seperti ini tetap menjaga keaslian dan sentuhan seni dari setiap mobil yang dibuat
+PT Inti Maju Cemerlang memang luar biasa! Mobil klasik handmade ini siap mengantar kemenangan di periode kedua
+Waktunya dua periode ibuku
+Kawal bu Khofifah sampai menang xemoticonx xemoticonx
+Mantap kerja nyatanya
+Warisan otomotif klasik bersejarah
+Senang melihat pemimpin seperti Bu Khofifah yang peduli pada aspek seni dan budaya otomotif klasik
+Mobil klasik handmade ini jadi saksi sejarah! Semoga jeep ini kembali bawa kemenangan di periode kedua
+Mobil klasik handmade yang ikonik! Semoga membawa keberuntungan lagi untuk kemenangan Khofifah-Emil
+Handmade mobil klasik yang penuh sejarah! Semoga Khofifah-Emil kembali menang di periode kedua, amin
+Keren sekali melihat inovasi lokal di bidang otomotif! Semoga sukses terus untuk Bu Khofifah dan tim!
+Senang sekali melihat dukungan untuk industri kreatif seperti ini. Bu Khofifah memang selalu mendukung karya anak bangsa!
+Produksi mobil klasik yang buatan tangan ini luar biasa! Semoga Bu Khofifah terus mendorong perkembangan industri lokal!
+Kualitas dan dedikasi tim di PT Inti Maju Cemerlang patut diapresiasi. Bu Khofifah, Anda selalu memprioritaskan yang terbaik untuk daerah!
+Bangga dengan inovasi di Sidoarjo! Semoga kepemimpinan Bu Khofifah membawa lebih banyak keberhasilan seperti ini.
+Bu Khofifah, semangat Anda dalam mendukung industri lokal sangat inspiratif! Teruskan langkah positif ini!
+Pawai kemenangan yang menggunakan jeep klasik ini adalah simbol kekuatan! Semoga sukses untuk periode kedua, Bu Khofifah!
+Inisiatif untuk mendukung industri otomotif lokal sangat mengesankan. Bu Khofifah adalah sosok pemimpin yang visioner!
+Pembuatan mobil klasik buatan tangan ini adalah contoh nyata kreativitas yang harus kita banggakan. Terima kasih, Bu Khofifah!
+Dengan dukungan Bu Khofifah, saya yakin industri otomotif di Sidoarjo akan semakin maju dan dikenal luas. Ayo, bersama kita sukses!
+Mantap, lanjutkan xemoticonx xemoticonx xemoticonx
+Keren Bu, mobil klasik buatan tangan begini punya nilai seni yang tinggi xemoticonx
+Bangga ada bengkel di Sidoarjo yang bisa produksi mobil klasik
+Mantap bu Khofifah xemoticonx xemoticonx
+Bengkel PT Inti Maju Cemerlang memang luar biasa, inovasi lokal yang patut dibanggakan xemoticonx
+Luar biasa Jawa Timur sudah punya industri sekelas ini
+Bu Khofifah cantik pakai mobil klasik
+Karya tangan yang luar biasa dari PT Inti Maju Cemerlang! Mobil jeep mereka yang ikut pawai kemenangan sebelumnya benar-benar ikonik. Semoga terus menjadi simbol kemenangan di periode kedua
+Mengagumkan sekali! PT Inti Maju Cemerlang telah menunjukkan bahwa inovasi dan tradisi bisa bersatu dalam keindahan mobil klasik buatan tangan. Semoga sukses selalu, termasuk untuk kemenangan Khofifah-Emil.
+Mobil klasik itu lokasinya di mana hehe
+Luar biasa kan! Dengan alat tradisional, hasilnya tetap berkualitas. Semoga keberuntungan senantiasa menyertai PT Inti Maju Cemerlang dan kemenangan Khofifah-Emil. Amin.
+Inspiratif! PT Inti Maju Cemerlang berhasil menciptakan mobil klasik yang begitu berkelas, bahkan ikut dalam pawai kemenangan Khofifah-Emil. Semoga mereka terus sukses dan ikut merayakan kemenangan periode kedua
+Menggunakan metode buatan tangan namun tetap menghasilkan mobil klasik berkualitas tinggi. PT Inti Maju Cemerlang adalah contoh sempurna bagaimana kerja keras bisa membawa hasil luar biasa. Semoga jeep mereka kembali hadir di pawai kemenangan Khofifah-Emil
+Maju terus industri kreatif Jawa Timur
+Industri lokal Jawa Timur optimis bisa lebih maju
+Bu Khofifah semoga diberikan kesehatan dan rezeki lancar ya amin
+Mobil klasik buatan tangan? Luar biasa! Semoga pawai kemenangan kedua semakin megah dengan mobil buatan PT Inti Maju Cemerlang! xemoticonx xemoticonx
+Salut untuk PT Inti Maju Cemerlang yang terus berinovasi! Mobil klasiknya keren sekali! Semoga terus sukses! xemoticonx xemoticonx
+Modifikasi mobil klasik buatan tangan? Pasti detailnya luar biasa! Semoga mobil ini ikut merayakan kemenangan periode kedua! xemoticonx xemoticonx
+Jeep klasik buatan tangan pasti punya karakter dan kualitas tersendiri. Semoga bisa membawa Khofifah-Emil menuju kemenangan lagi! xemoticonx xemoticonx xemoticonx
+Bangga sekali ada bengkel lokal yang bisa memproduksi mobil klasik buatan tangan! Semoga terus berkarya dan sukses! xemoticonx xemoticonx
+Siap bergabung! Khofifah-Emil sudah terbukti, mari bersama menangkan mereka lagi untuk masa depan yang lebih cerah. Ayo, lanjutkan! xemoticonx
+Terus sound horeg bagaimana
+Buzzer semua yang komentar xemoticonx xemoticonx xemoticonx
+Sukses terus untuk industri Jawa Timur
+Aku juga suka yang klasik
+Semoga Bu Khofifah sehat selalu
+Perusahaan lokal membuktikan bahwa Jawa Timur itu punya segala potensi
+Kunjungan ini pasti membawa semangat baru!
+Produksi mobil otomotif klasik wah kerennya
+Kunjungan Bu Khofifah ke industri kustom mobil klasik sangat menginspirasi! xemoticonx xemoticonx Dukungan dari beliau pastinya memberikan semangat lebih kepada para pengrajin. Semoga kunjungan ini membawa keberkahan bagi semua yang terlibat!
+Kunjungan yang penuh makna! xemoticonx Bu Khofifah menunjukkan perhatian terhadap pengembangan industri kreatif di daerah. Semoga semakin banyak inisiatif dan dukungan untuk para pelaku industri otomotif, khususnya modifikasi mobil klasik!
+Keren sekali Ibu menaiki mobil ini
+Kontribusi Ibu ke kepulauan apa Bu selama jadi gubernur?
+Mantap lanjutkan
+Yang lama masih eksis xemoticonx
+Yang klasik tidak kalah eksis xemoticonx xemoticonx
+Asyik sekali sepertinya
+Semangat Ibu xemoticonx xemoticonx xemoticonx xemoticonx
+Bu Khofifah mengabdi tulus untuk rakyat
+Keren sekali xemoticonx
+Mengutamakan buah lokal sambil membawa simbol persaudaraan dengan Papua, ini luar biasa! Pemimpin yang tidak hanya memikirkan ekonomi, tetapi juga persatuan. xemoticonx xemoticonx xemoticonx
+Bangga dengan buah lokal Jawa Timur, kualitasnya sudah setara buah impor! Semangat terus, Bu
+Salut atas upaya ini! Produk lokal kita memang tidak kalah dengan produk impor. Lanjutkan perjuangan, Bu
+Memang beda Bunda satu ini, cinta kamu xemoticonx
+Apresiasi terhadap petani lokal Jawa Timur perlu terus didukung, mantap Bu Khofifah xemoticonx
+Jeruknya kelihatan segar sekali
+Sangat bangga produk lokal
+Kualitas buah lokal Jawa Timur makin hebat, Bu! Semoga terus dukung inovasi petani kita
+Memberikan contoh yang baik bagi pejabat negara lainnya
+Jawa Timur makin maju dengan buah lokal premium. Dukungan dari pemerintah bikin petani makin semangat
+Inisiatif luar biasa untuk memberdayakan petani muda! Masa depan pertanian kita cerah berkat dorongan seperti ini
+Bu Khofifah mantap dukung sektor buah Jawa Timur
+Lima tahun, buah impor juga masih masuk Jawa Timur xemoticonx xemoticonx kok ya tidak dibatasi xemoticonx xemoticonx katanya buah xemoticonx lokal xemoticonx sudah bagus kualitas dan kuantitas serta harganya xemoticonx
+Buah lokal harus jadi primadona
+Buah lokal tidak kalah dengan buah impor
+Bangga dengan kualitas buah lokal kita
+Langkah konkret untuk mengutamakan produk lokal
+Khofifah mantap
+Saya asli orang Sidoarjo siap mendukung dan memenangkan Bu xmentionx untuk jadi gubernur Jawa Timur, lanjutkan terus Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Segar xemoticonx buahnya kawan
+Sikap yang memotivasi pedagang kecil
+Hasil bumi Majapahit memang luar biasa Bu Khofifah
+Saya juga suka buah lokal yang diproduksi di Jawa Timur Bu xemoticonx xemoticonx xemoticonx
+Bangga sekali dengan kualitas buah lokal Jawa Timur! Terima kasih Ibu Khofifah sudah memperjuangkan produk anak bangsa
+Sound horeg itu benarkan xemoticonx
+Nomor dua memang beda
+Sound horeg Bu tolong lah stop, mempermalukan itu sound horeg seperti orang preman saja
+Buah-buahnya segar nih
+Bu Khofifah memang panutan sih
+Bu Khofifah segar deh melihat buahnya
+Terima kasih Bu Khofifah, sudah dorong inovasi petani milenial. Buah lokal Jawa Timur makin keren
+Mantap, Bu! Buah lokal Jawa Timur sekarang kualitasnya sudah premium. Semoga makin maju dan kurangi impor
+Buah Jawa Timur memang terbaik! Bangga dengan produk lokal yang makin berkualitas xemoticonx xemoticonx
+Upaya untuk mendukung produk lokal dan minimalkan impor adalah langkah cerdas dan visioner. Jawa Timur menuju kemandirian pangan! xemoticonx xemoticonx
+Sangat mendukung penuh untuk petani berinovasi
+Bangga sekali dengan upaya ini! Apresiasi besar untuk selalu mengutamakan buah lokal berkualitas. Jawa Timur pasti bisa mandiri pangan! xemoticonx xemoticonx
+Terus dukung petani lokal Bu xemoticonx
+Salut atas upayanya dalam mendukung petani lokal xemoticonx
+Dukungan untuk petani lokal terus jalan, Bu! Buah Jawa Timur makin berkualitas
+Salut dengan dukungan penuh terhadap petani lokal Jawa Timur xemoticonx
+Luar biasa, semoga buah lokal Jawa Timur semakin dikenal seluruh Indonesia
+Inilah contoh pemimpin yang dicintai warga Jawa Timur, insyaallah lanjutkan xemoticonx
+Petani lokal untuk kemandirian pangan xemoticonx xemoticonx xemoticonx xemoticonx
+Andalan xemoticonx xemoticonx xemoticonx
+Jawa Timur makmur bersama xemoticonx xemoticonx xemoticonx xemoticonx
+Buah lokal Jawa Timur makin mantap! Semoga terus maju dan petani kita makin inovatif
+Hebat sekali! Langkah ini menunjukkan komitmen untuk kesejahteraan petani lokal dan menciptakan ketahanan pangan. Sidoarjo beruntung memiliki pemimpin seperti ini! xemoticonx xemoticonx
+Terharu melihat dukungan Ibu untuk para petani lokal! Ini bukti cinta pada negeri xemoticonx
+Luar biasa, Bu! Bangga dengan kualitas buah lokal Jawa Timur yang semakin mendunia! Terus dorong inovasi untuk petani milenial! xemoticonx xemoticonx xemoticonx
+Salut dengan konsistensi dalam mengutamakan buah lokal. Terus dukung petani kita dan tunjukkan kualitas Jawa Timur di kancah nasional! xemoticonx xemoticonx
+Langkah hebat! Mengangkat buah lokal Jawa Timur jadi premium dan simbol persaudaraan dengan Papua adalah bukti kepemimpinan yang peduli dan visioner. xemoticonx xemoticonx
+Luar biasa, Bu Khofifah! Dukungan Anda untuk petani lokal sangat menginspirasi.
+Luar biasa! Kebijakan yang benar-benar mendukung petani lokal dan mendorong inovasi pertanian. Semoga buah-buah Jawa Timur semakin mendunia! xemoticonx xemoticonx
+Keren! Terus dorong petani milenial untuk inovasi. Semakin banyak buah lokal berkualitas, makin minim kebutuhan buah impor. Lanjutkan perjuangannya! xemoticonx xemoticonx
+Buah Jawa Timur memang manis-manis Bu xemoticonx xemoticonx
+Buah lokal Jawa Timur sekarang terbaik sekali! Dukungan Bu Khofifah bikin petani makin semangat
+Mari dukung produk lokal
+Jawa Timur maju berprestasi xemoticonx xemoticonx
+Inovasi petani milenial Jawa Timur sangat penting! Terima kasih Bu Khofifah sudah terus mendukung mereka! xemoticonx xemoticonx
+Terima kasih sudah selalu mendukung produk lokal, Bu Khofifah! Semoga buah Jawa Timur semakin mendominasi pasar nasional! xemoticonx xemoticonx xemoticonx
+Keren sekali, Bu! Terima kasih sudah terus berupaya meminimalkan impor dan memajukan buah lokal! xemoticonx xemoticonx
+Bangga jadi warga Jawa Timur! Semoga buah lokal kita terus berjaya, dan petani semakin sejahtera. Terima kasih Bu Khofifah! xemoticonx xemoticonx
+Buah lokal Jawa Timur makin unggul! Semoga petani milenial terus berinovasi dan membuat produk Jawa Timur semakin diminati. Teruskan usaha hebat ini! xemoticonx xemoticonx
+Matoa dari Papua sebagai simbol persaudaraan, sungguh indah! Buah lokal Jawa Timur akan terus maju dengan dukungan yang luar biasa ini! xemoticonx xemoticonx
+Luar biasa, petani Jawa Timur sekarang makin hebat! Buah lokal sudah premium, tidak perlu impor lagi
+Semangat ya Bunda saya xemoticonx xemoticonx
+Semangat Ibu semoga lancar xemoticonx xemoticonx xemoticonx
+Optimis xemoticonx xemoticonx xemoticonx xemoticonx
+Inovasi petani milenial yang didorong oleh Anda sangat menjanjikan. Semoga terus berlanjut!
+Insyaallah makin optimis menang
+Kualitas premium pasti akan membawa perubahan besar
+Kualitas buah lokal yang meningkat adalah hasil kerja keras yang patut diapresiasi. Teruskan perjuangan ini!
+Saya sangat setuju, Bu! Dukungan untuk petani milenial adalah langkah cerdas untuk mengurangi ketergantungan pada buah impor
+Inisiatif luar biasa, Bu! Memperkenalkan buah lokal menunjukkan cinta kita terhadap produk dalam negeri.
+Terima kasih, Bu Khofifah, atas komitmen Anda dalam memajukan pertanian Jawa Timur. Sangat membanggakan!
+Bu Khofifah, Anda adalah pemimpin yang peduli! Kualitas buah lokal kita semakin diakui berkat upaya Anda.
+Kami sangat menghargai usaha Anda untuk mempromosikan buah lokal. Ini langkah penting bagi ekonomi kita!
+Mendukung buah lokal adalah cara terbaik untuk memperkuat perekonomian daerah. Terima kasih, Bu!
+Sangat menginspirasi melihat visi Anda untuk Jawa Timur! Buah lokal kita memang pantas diunggulkan
+Keren sekali programnya, Bu! Semoga petani milenial Jawa Timur semakin sukses dan bisa bersaing dengan buah impor! xemoticonx xemoticonx
+Buah lokal Jawa Timur memang terbaik! Terima kasih atas dukungan penuh kepada petani milenial, Bu Khofifah! xemoticonx xemoticonx
+Tidak perlu diragukan dukung penuh xemoticonx xemoticonx xemoticonx
+Blusukan ke mana lagi besok?
+Buah-buah Jawa Timur memang lezat dan berkualitas! Semangat untuk terus dukung petani lokal, Bu Khofifah! xemoticonx xemoticonx
+Kampanye damai xemoticonx xemoticonx xemoticonx xemoticonx
+Sudah seharusnya seorang pemimpin melihat realitas kondisi yang dirasakan masyarakat, luar biasa Ibu. Sehat selalu xemoticonx xemoticonx
+Kualitas buah Jawa Timur semakin premium! Semoga makin banyak yang sadar akan keunggulan produk lokal! xemoticonx xemoticonx
+Dukung penuh dua-dua
+Masyaallah Bu
+Terbaik Ibu
+Semoga makin banyak inovasi yang dibawa untuk masyarakat khususnya UMKM Ibu. Saya yakin ekonomi Jawa Timur makin terbaik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Jawa Timur mungkin malnya banyak dan keren-keren, tetapi Bu Khofifah juga bakal mencoba menaikkan kelasnya pasar
+Jiwa keibuannya Bu Khofifah benar-benar kerasa cocok menjadi ibunya masyarakat Jawa Timur
+Keren Bu
+Semoga maju terus perkebunan Jawa Timur
+Optimis pasti Jawa Timur bisa suplai buah se-Indonesia
+Bu Khofifah dukung petani Jawa Timur xemoticonx
+Sering-sering main ke pasar ya Bu
+Terima kasih Bu Khofifah. Sering-sering ke pasar ya Bu
+Terima kasih Bu Khofifah lanjutkan dua periode
+Khofifah pasti didukung penuh
+Sepakat
+Pasar buah selalu optimis diisi buah-buah lokal Jawa Timur
+Petani milenial Jawa Timur semakin baik
+Yang lainnya suka
+Mentari pagi sinari langkah, membangun negeri dengan penuh kasih. Bu Khofifah, sosok yang teguh, mewujudkan cita, untuk rakyat bersih
+Inspirasi yang luar biasa, Bu Khofifah! Kolaborasi ini menunjukkan betapa pentingnya semangat perjuangan untuk Jawa Timur
+Keren sekali kolaborasinya! Lagu Hidup Adalah Perjuangan benar-benar menggugah semangat untuk terus berjuang demi Jawa Timur yang lebih maju! xemoticonx xemoticonx
+Kolaborasi yang luar biasa! Lagu ini benar-benar membawa semangat perjuangan untuk kemajuan Jawa Timur. Terima kasih, Dewa 19!
+Wah, keren sekali syutingnya! xemoticonx Hidup Adalah Perjuangan xemoticonx jadi lebih bermakna dengan kolaborasi ini. Semoga membawa energi positif untuk Jawa Timur! xemoticonx xemoticonx
+Kolaborasi yang tidak main-main! Hidup Adalah Perjuangan memang pas sekali untuk spirit Jawa Timur maju
+Dewa 19 dan Khofifah-Emil, perpaduan yang sempurna! Lagu ini sangat menginspirasi untuk terus maju demi Jawa Timur yang lebih baik! xemoticonx xemoticonx
+Kalau saya jadi personel Dewa 19 saya tidak akan mau diajak Pakde Dhani untuk dijadikan alat politik, sangat disayangkan, band sebesar Dewa
+Baladewa xemoticonx xemoticonx xemoticonx
+Kolaborasi yang bikin semangat makin membara! Dewa 19 xemoticonx Bu Khofifah, inspirasi perjuangan untuk Jawa Timur maju
+Bismillah dua periode xemoticonx xemoticonx
+Menang nih xemoticonx xemoticonx xemoticonx xemoticonx
+Sudah pasti menang Bu xemoticonx
+Gus Durian? Organisasi netral xemoticonx xemoticonx
+Mau dibawa ke mana negara ini jika yang mengurus orang-orang model begini xemoticonx
+Enak Gusdurian ini saja kalau aku xmentionx xemoticonx xemoticonx
+Gusdurian tidak terlibat politik praktis Mas
+Dewa 19 xemoticonx Bu Khofifah? Kombinasi yang sempurna untuk bawa Jawa Timur ke level selanjutnya
+Keren, memang kita butuh juga pemimpin yang suka musik. Terbaik Ibu xemoticonx
+Tetap Bu Risma tegas, bersih, aksi nyata
+Ibu selalu di hati xemoticonx xemoticonx xemoticonx xemoticonx
+Bagi saya sudah cukup dikasih kesempatan satu periode bahkan lebih. Tetapi tidak ada hasilnya.
+Memberikan motivasi untuk bergerak terus
+Dewa 19 the one and only, Baladewa sampai mati! Khofifah - Emil lanjutkan kembali! Peace xemoticonx xemoticonx xemoticonx xemoticonx
+Lagu ini membawa semangat baru untuk Jawa Timur. Terima kasih Dewa 19 dan Bu Khofifah atas inspirasi dan energi positifnya! xemoticonx xemoticonx
+Mengapa tidak dimajukan dari periode sebelumnya Bu apa cuman omong kosong ya?
+Seru tetapi tidak ada manfaatnya xemoticonx
+Mesti tidak bermutu yang dikampanyekan apa manfaatnya kalau ini, hadeh xemoticonx
+Aku penggemar Dewa aku Gerindra aku dukung Khofifah Emil
+Perempuan yang selalu menemani Gus Dur dan tidak pernah menghianati Gus Dur adalah Bu xmentionx sehat selalu panjang umur dan tentu tetap memperjuangkan nilai-nilai Gus Dur di pemerintah ya Bu?
+03 menyala xemoticonx xemoticonx
+Mohon maaf Gusdurian tidak pernah mendeklarasikan mendukung pasangan calon mana pun xmentionx
+Anda pimpinan Gusdurian ya suruh-suruh?
+Gusdurian tidak berpolitik praktis xemoticonx
+Banyak cara menuju jabatan ternyata!
+Haha, tambah aneh-aneh saja
+Gusdurian milih Anda. Hmm
+Jelasnya besok tambah ada xemoticonx saja kalau begini kampanyenya
+Dani masuk kolam cebong sekarang xemoticonx xemoticonx
+Sudah cukup periode dua, satu saja sudah kapok
+Cukup Bu waktunya perubahan
+Apalagi ini, sudahlah Bu
+Kolaborasi yang memotivasi! Semangatnya terasa sampai ke hati. Hidup Adalah Perjuangan benar-benar lagu yang menggugah untuk kita semua. xemoticonx xemoticonx xemoticonx
+Semangat baru untuk Jawa Timur
+Energi dari kolaborasi ini sungguh luar biasa! Musik dan perjuangan menjadi satu, membakar semangat kita semua untuk terus berjuang demi kemajuan Jawa Timur. xemoticonx xemoticonx
+Pasti jadi gubernur Jawa Timur lagi ya
+Lebih baik melakukan yang lain Bu yang berpengaruh ke masyarakat
+Situbondo Kecamatan Jangkar xemoticonx xemoticonx ya xmentionx xmentionx xemoticonx
+Sepakat lanjutkan xemoticonx
+Kolaborasi yang tidak terduga tapi luar biasa! Perjuangan bersama untuk Jawa Timur pasti akan membuahkan hasil terbaik! xemoticonx xemoticonx
+Mencari pemimpin yang berintegritas saat ini adalah sesuatu yang mahal, hampir tidak ada xemoticonx
+Bikin sirkuit Bu Gubernur, banyak pembalap liar butuh tempat
+Bismillah insyaallah akan sangat dinantikan lagunya, apalagi Dewa banyak penggemarnya di Jawa Timur xemoticonx xemoticonx xemoticonx
+Membawa energi baru untuk kita semua
+xmentionx tanggapannya Mas, Gusdurian
+Industri kreatif di Jawa Timur harus lebih maju dan mampu bersaing dengan skala nasional maupun internasional bersama Khofifah Emil xemoticonx xemoticonx xemoticonx
+Mantap nih bertemu band kesukaan saya waktu muda
+Super keren Bunda, lanjutkan xemoticonx
+xemoticonx Harus pilih xemoticonx xemoticonx
+Benar-benar ya Bu Khofifah multitalenta sekali
+Perpaduan musik dan semangat yang sempurna! Ini bukan hanya lagu, tapi juga inspirasi untuk kita semua berjuang bersama-sama demi Jawa Timur yang lebih baik xemoticonx xemoticonx
+Lagu ini bukan hanya musik, tapi semangat yang menggerakkan! Terima kasih telah menjadi pemimpin yang inspiratif
+Lagu yang penuh semangat perjuangan, cocok sekali dengan misi kita untuk Jawa Timur yang lebih baik
+Yakin xemoticonx xemoticonx
+Semangat perjuangan terasa sekali! Kolaborasi Bu Khofifah xemoticonx Dewa 19 bikin Jawa Timur makin berapi-api
+Di jalanan ramai langkah berani, membangun negeri penuh harapan. Bu Khofifah, pemimpin sejati, mendengar rakyat, wujudkan impian
+Andalan xemoticonx xemoticonx xemoticonx xemoticonx
+Bismillah menang xemoticonx xemoticonx
+Kolaborasi yang luar biasa
+Terima kasih atas energi dan semangat yang diberikan
+Selalu mendukung industri kreatif xemoticonx xemoticonx xemoticonx
+Bismillah menang Bu Ketua Umum PP Muslimat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Kolaborasi tidak hanya karya tapi juga inspirasi untuk semua orang
+Salam dua jari, Khofifah Emil sekali lagi
+Bismillah gas gas menang
+Menyala dua periode saya xemoticonx xemoticonx
+Sudah benar Khofifah Emil
+Jilbabnya oranye PKS xemoticonx xemoticonx xemoticonx xemoticonx
+Oke, saya selalu siap untuk mendukung Ibu xmentionx dan Mas xmentionx Cak xmentionx xemoticonx xemoticonx xemoticonx xhashtagx xhashtagx xhashtagx xhashtagx xmentionx
+Mengapa Gusdurian dibawa-bawa dah
+Gusdurian jalur mana ini? xemoticonx
+Sepaket xemoticonx
+Kompak sekali nih xmentionx xmentionx xemoticonx xemoticonx
+Lanjut dua periode Bu
+Gas kemenangan xemoticonx
+Menang ini sudah pasti xemoticonx
+Mantap saya juga suka lagu-lagu Dewa Bu xemoticonx
+Wih makin kelihatan tambah muda saja Bu xemoticonx xmentionx
+Kok bawa xemoticonx Gus Dur? Panik ya?
+Bala Dewa dukung penuh Khofifah Emil xemoticonx xemoticonx
+Kompak untuk kemenangan nomor dua xemoticonx xemoticonx
+Menang telak ya Bu
+Dewa satu suara untuk nomor dua xemoticonx xemoticonx xemoticonx xemoticonx
+Ngeri begini xemoticonx xemoticonx
+Keseruan yang luar biasa, gas penuh terus Bu Khofifah
+Aku Baladewa, siap satu suara untuk nomor dua xemoticonx xemoticonx
+Siap kawal nomor dua xemoticonx xemoticonx
+Kapan Bu konsernya?
+Wah mantap xemoticonx xemoticonx
+Gusdurian netral mengapa harus dibawa xemoticonx oleh pasangan calon
+Lanjutkan jilid dua
+Malas berkelanjutan
+Bismillah Bu xemoticonx xemoticonx
+Baladewa hadir Bu Khofifah xemoticonx xemoticonx
+Koalisi paling asyik ini
+Jawa Timur maju
+Dengan kolaborasi membuktikan bahwa kita bisa berjuang bersama
+Mantap, menyala Pak Dhe xemoticonx
+Semangat membangun Jawa Timur lebih maju xemoticonx
+Semangat Bu Khofifah xemoticonx xemoticonx
+Penyemangat untuk mencapai mimpi Jawa Timur berprestasi
+Momen yang sangat inspiratif
+Inspirasi yang tak ternilai, teruskan perjuangan ini
+Siap maju bersama untuk wujudkan Jawa Timur yang lebih berprestasi
+Wah, kolaborasi epik! Dewa 19 xemoticonx Bu Khofifah, perpaduan energi yang luar biasa untuk Jawa Timur makin maju
+Hidup adalah perjuangan xemoticonx Bu Khofifah xemoticonx semangat baru untuk kita semua di Jawa Timur! Maju terus
+Dewa 19 xemoticonx Bu Khofifah, perpaduan yang inspiratif
+Kolaborasi yang tidak hanya musik, tapi juga cerminan semangat Jawa Timur maju
+Lo lo Gusdurian dibawa xemoticonx xmentionx xmentionx xmentionx
+Aduh kok duet dengan Dhani Ahmad alamat ini
+Saja saja lo tong kampanyenya
+Siap mengawal dua periode Ibu
+Lagu ini pasti akan menggerakkan banyak hati! Terima kasih telah menghadirkan semangat positif untuk kita semua
+Bu Khofifah, Anda selalu berhasil memotivasi kita! Semoga perjuangan ini membawa banyak perubahan untuk Jawa Timur
+Kolaborasi dengan Dewa 19 adalah langkah yang tepat! Energi positif ini sangat dibutuhkan untuk kemajuan Jawa Timur
+Klaim saja nih bawa-bawa Gusdurian xmentionx xemoticonx Mbak xmentionx
+Perjuangan kita memang belum usai, tapi dengan kepemimpinan Ibu Khofifah, saya yakin kita akan berhasil! Semangat!
+Kolaborasi ini menunjukkan bahwa musik bisa menjadi alat untuk perubahan. Terima kasih, Bu Khofifah, untuk semua yang Anda lakukan!
+Bu Khofifah, semangat dan dedikasi Anda benar-benar menginspirasi kami semua untuk terus berjuang demi Jawa Timur
+Setiap langkah Ibu dalam memajukan Jawa Timur patut diapresiasi! Kolaborasi ini pasti akan menjadi momen bersejarah
+Terima kasih, Bu Khofifah! Semangat perjuangan ini pasti akan menggugah banyak orang untuk ikut berkontribusi bagi Jawa Timur
+Tambah mantap begini kawan, gas Bu 02 harus menang ini xemoticonx
+Kombinasi yang luar biasa, pasti makin mantap ini xemoticonx xemoticonx
+Lanjutkan dua periode untuk Khofifah xemoticonx
+Keren Ibu saya
+Bismillah 02 menang xemoticonx xemoticonx
+Siapa yang meng xemoticonx harus xemoticonx kan Mas Dewa xemoticonx xemoticonx memang sangat perlu xemoticonx perjuangan xemoticonx xemoticonx
+Malas sekali memilih Khofifah xemoticonx
+Dewa 19 xemoticonx semangat Jawa Timur xemoticonx kombinasi yang dahsyat! Terima kasih untuk kontribusinya dalam menggemakan perjuangan kita semua! xemoticonx xemoticonx xemoticonx
+Luar biasa! Lagu ini jadi pengingat kalau perjuangan kita untuk Jawa Timur yang lebih maju masih terus berjalan. Terima kasih, Dewa 19! xemoticonx xemoticonx
+Semangat yang tertuang dalam lagu ini benar-benar menginspirasi! Bersama Dewa 19, perjuangan untuk Jawa Timur terasa lebih kuat xemoticonx xemoticonx
+Kerja sama hebat yang penuh energi! Kolaborasi ini menambah semangat kami untuk terus bergerak maju demi Jawa Timur. Terima kasih semuanya! xemoticonx xemoticonx
+Bu Khofifah dan Pak Emil tipe pemimpin yang kekinian sekali
+Besok dengan Kotak Bu, lagunya beraksi hehe
+Keren sekali apalagi Pak Emil kan suaranya enak
+Ini tampilan yang epik
+Terima kasih Dewa 19 atas kontribusi besar dalam menyebarkan semangat perjuangan untuk Jawa Timur! Bersama, kita pasti bisa mencapai lebih! xemoticonx xemoticonx
+Khofifah terlalu korup jangan dipilih
+Mohon komentarnya kepala suku xmentionx xmentionx xemoticonx
+2024 sampai 2029 lanjutkan Khofifah - Emil xemoticonx xemoticonx xemoticonx
+Harus? Tidak mau Bu
+Kolaborasi dengan penghina Banser xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx Pasti xemoticonx
+Sudah tidak ada waktu Bu, waktunya kerja nyata bukan omong kosong doang
+Mau dibawa ke mana Jawa Timur kalau orangnya mementingkan pengajian dan band saja terus begini
+Bagi saya sudah cukup periode satu saja, percuma kalau dikasih lagi bakal tidak ada hasilnya
+Cukup satu periode karena tidak ada perubahan sama sekali, jangan kasih jalan untuk lanjut ke dua periode
+Menyala Bu Khofifah saya
+Bu Khofifah selalu menjadi panutan
+Menyala xemoticonx
+Asyik sekali Bu jogetnya
+Bu Khofifah menyala xemoticonx
+Keren sekali nih
+Bisa nih kolaborasi hehe
+Sudah cukup satu periode saja ya xemoticonx
+Gubernur musik horeg xemoticonx
+Apakah nanti ada kampanye berkedok konser musik xemoticonx
+xmentionx mohon untuk ditegur admin
+Aku tidak lain saja sudah
+Maaf ya
+Harus sekali pilih ini? Yang dekat dan memperhatikan golongan sendiri, aku sih ogah
+Lewati untuk 02, cari yang bisa bikin maju Jawa Timur
+02? Tidak dulu deh, mau cari pemimpin yang terlihat hasil kerjanya bukan hanya omong-omong
+Waktunya ganti pemimpin, tidak ada kemajuan sama sekali
+02? Tidak dulu maaf, mau cari pemimpin yang bisa kerja bukan riwa-riwi cari muka
+Semangat yang luar biasa dari Dewa 19 dan Khofifah-Emil! Lagu ini pasti akan menginspirasi banyak orang untuk berjuang bersama xemoticonx xemoticonx
+Lagu Hidup Adalah Perjuangan cocok sekali untuk menggambarkan semangat Jawa Timur! Terima kasih Bu Khofifah, Emil, dan Dewa 19! xemoticonx xemoticonx
+Rakyat Jawa Timur yang miskin masih banyak, bagaimana program pengentasan kemiskinan Bu
+Kolaborasi ini penuh energi dan semangat! Jawa Timur pasti makin maju dengan perjuangan seperti ini. Terima kasih semuanya! xemoticonx xemoticonx
+Kolaborasi yang penuh makna! Semoga lagu ini menjadi penyemangat untuk semua masyarakat Jawa Timur! xemoticonx xemoticonx
+Dewa 19 dan Khofifah-Emil, perpaduan yang pas sekali untuk menggugah semangat perjuangan! Maju terus Jawa Timur! xemoticonx xemoticonx
+Ngeri xemoticonx xemoticonx
+Kita beruntung sekali memiliki gubernur yang senang dengan musik, sepertinya Jawa Timur bakal banyak konser deh nanti xemoticonx
+Wow ada Mas Dewa xemoticonx
+Kolaborasi yang sangat keren yang satunya panutan yang satunya idola
+Kolaborasi keren habis
+Duet maut ini mah xemoticonx xemoticonx
+Kolaborasi yang luar biasa untuk memenangkan 02
+Wah tinggal tunggu konser Dewa 19 tersebar di Jawa Timur nih. Karya musik harus dilestarikan selalu di Jawa Timur!
+Kolaborasi yang pas xemoticonx xemoticonx
+Keren sekali ini xemoticonx
+Wow menyala xemoticonx
+Semua pendukung Dewa dukung Khofifah Emil
+Wow keren sekali ini
+Karya-karya musik makin memungkinkan untuk disebarluaskan kalau begini ya Bu. Lanjut terus Bu, top xemoticonx
+Bagi saya sudah cukup satu periode saja Anda Bu
+Sudah Bu aku cukup melihat Anda satu periode saja
+Mengapa harus bawa xemoticonx suatu golongan
+Dewa 19 sudah benar dukung Bu Khofifah
+Dewa 19 pasti dukung Khofifah Emil
+Bismillah optimis Khofifah Emil menang
+Bu Khofifah saya semakin banyak dukungannya
+Dewa 19 semakin baik
+Khofifah Emil optimis lanjut dua periode
+Dewa 19 dan Khofifah sama-sama top
+Kombo maut
+Keren
+Seram bila yang berjenggot ini muncul xemoticonx mulai banyak bacot deh xemoticonx xemoticonx xemoticonx
+Malas aku kalau disuruh pilih Khofifah, malas, tidak ada hasilnya
+Harus pilih Bu Khofifah xemoticonx xemoticonx, lucu sekali, tidak dulu deh kalau saya
+Kolaborasi apa, hanya cari suara tidak ada manfaatnya
+Ampun deh kalau disuruh pilih 02, cukup kemarin saja
+Lanjutkan dua periode Pak, Bu
+Saya sih pasti Khofifah. Katakan tidak suara saya untuk kader banteng xemoticonx partai yang xemoticonx menjual xemoticonx nama NU pokoknya
+Bismillah dua periode Bu
+xemoticonx xemoticonx xemoticonx xemoticonx Salam gas penuh
+Kalau untuk pernyataan agak logis komunitas tidak dibawa ke ranah politik praktis
+Silakan mengopi di festival kopi
+Ogah
+Pasti menang ini
+Dewa 19 mengudara bersama Khofifah Emil
+Sudah cukup kemarin saja Bu, waktunya bersih-bersih Jawa Timur
+Link lagunya Bu
+Semua harus dukung Bu Khofifah dan Mas Emil, Ahmad Dhani SMADA SMA 2, selalu dua
+Cukup satu periode saja, yang kemarin saja kinerjanya begitu
+Dana hibah banyak yang dikorupsi, tolong dipecat saja pihak-pihak yang terlibat
+Tidak dulu, kinerja begitu. Cukup satu periode saja
+Cukup satu periode saja, pilih yang bukti nyata
+Dengan adanya begini rakyat makin tahu yang baik untuk Jawa Timur yang mana
+Cocok jadi vokalis saja Bu, biar yang lain yang urus Jawa Timur
+Lebih baik buat sesuatu untuk masyarakat
+Gebrakan apa lagi ini, lebih baik perbaiki kebijakannya
+Apakah ini menjadi solusi keresahan masyarakat?
+Jika diberi kesempatan memilih maka saya akan memilih Ibu xemoticonx dan dua Ibu yang lain xemoticonx
+Maaf Bu kami lebih pilih yang jelas-jelas saja yang kerjanya terang dan tidak ditutup-tutupi meski galak dan tegas tapi bisa urus provinsi ini
+Apa sih sok-sokan mewajibkan pilih Khofifah. Emangnya lo siapa hah? Sok-sokan nyuruh Gusdurian
+Maaf. Pilih lainnya
+Bismillah semoga dua periode memimpin Jawa Timur, Ibu Khofifah Indar Parawansa dan Mas Emil
+Seru sekali Bu xemoticonx xemoticonx
+Sudah cukup sekali saja Bu gantian jangan serakah
+Mantap xemoticonx Baladewa
+Bunda lihat ini lagi mencari suara lewat musik, tidak usah cari suara lewat musik Bu Khofifah musik sudah menghasilkan suara lucu sekali deh lebih baik dengarkan lagu adat New Zealand
+Mengapa sangkut-pautkan Bala Dewa dengan Khofifah tidak ada hubungannya Dhani
+Gusdurian hanya memilih pengajian bukan Bu Khofifah ya
+Andalan Jawa Timur ya jelas Bu Risma xemoticonx
+Aduh ini tambah bagaimana kok tidak masuk
+Acara tidak untuk begini malahan Kang
+Haha, setuju sekali! Es teh di kedai kopi itu memang terasa agak aneh, tapi yang penting kita tetap berkumpul dan saling mendukung Jawa Timur tercinta! xemoticonx xemoticonx
+Es teh di kedai kopi? Wah, tidak bisa meninggalkan kopi Jawa Timur yang nikmat, Bu! xemoticonx xemoticonx xemoticonx
+Kopi Jawa Timur memang tidak bisa ditandingi! Tapi es teh juga tidak kalah segar, apalagi kalau diminum sambil bicara tentang kemajuan Jawa Timur! xemoticonx xemoticonx
+Es teh mungkin menyegarkan, tapi kopi tetap di hati! xemoticonx
+Setuju sekali Bu Khofifah! Kopi hangat memang bikin suasana lebih nyaman! xemoticonx xemoticonx
+Kopi Jawa Timur memang juara! Selalu jadi pilihan utama!
+Setuju Bu Khofifah! Tidak ada yang bisa mengalahkan nikmatnya kopi hangat. Terus dukung Jawa Timur maju! xemoticonx xemoticonx xemoticonx xemoticonx
+enak sekali
+Haha, kopi atau es teh, yang penting kita tetap satu meja mendukung Jawa Timur dan masa depannya! xhashtagx xemoticonx
+Haha, pesan es teh di kedai kopi tuh tidak biasa sekali! Tapi kita semua tetap satu tujuan, dukung Jawa Timur
+Tidak ada yang lebih nikmat dari kebersamaan sambil menyeruput kopi Jawa Timur. Es teh? Oke juga, selama kita terus kompak mendukung Jawa Timur! xemoticonx xemoticonx
+Es teh di kedai kopi? Hmm, mungkin dia lagi mau beda sendiri xemoticonx Tapi kopi Jawa Timur tetap nomor satu!
+Setuju Bu! Kopi Jawa Timur memang juaranya, bikin semangat untuk terus dukung Jawa Timur maju! xemoticonx xemoticonx xemoticonx
+Kopi hangat memang jadi favorit, tapi es teh juga boleh lah. Yang penting, Jawa Timur tetap di hati kita semua! xemoticonx xemoticonx xemoticonx
+Kopi itu wajib sih, apalagi kopi Jawa Timur! Tapi ya sudah, yang penting suasana berkumpulnya dapat
+Es teh di kedai kopi tuh seperti pesan pizza tanpa keju! Tapi yang penting, kita tetap satu visi untuk Jawa Timur! xemoticonx xemoticonx xemoticonx xemoticonx
+enak sekali mengopi
+Tidak kangen nasi goreng dan mengopi sambil deadline di sini ya xmentionx xmentionx
+Kopi Jawa Timur memang yang paling mantap! Tetap semangat Bu Khofifah untuk Jawa Timur yang lebih maju! xemoticonx xemoticonx xemoticonx
+Es teh boleh, tapi kopi hangat tetap yang terbaik! xemoticonx xemoticonx
+Kopi Jawa Timur memang tiada duanya! Semoga kebersamaan ini terus menghangatkan hati, seperti kopi hangat yang selalu menemani pagi! xemoticonx xemoticonx xemoticonx
+Kopi hangat, semangat dukung Jawa Timur makin maju! Terima kasih Bu Khofifah untuk inspirasinya. xemoticonx xemoticonx xemoticonx
+Kopi Jawa Timur memang juara sih, tidak ada lawan! Tapi tidak apa-apa, selera orang beda-beda
+enak sekali nih mengopi
+Minum kopi sambil berpikir masa depan Jawa Timur, tidak ada yang lebih nikmat, Bu! xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah Bu, memang kopi Jawa Timur ini paling bagus
+Penikmat kopi juga Bunda Khofifah xemoticonx
+Apa pun menunya kita tetap nomor dua kok Bu xemoticonx
+kopi enak sekali xemoticonx
+Terima kasih sudah datang di xmentionx, Ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Es teh sih tidak apa-apa apalagi yang punya penyakit lambung walaupun menahan-nahan untuk pesan kopi
+Kopi adalah kenikmatan paling hakiki xemoticonx
+Dengan program inovatif dan nyata, memberdayakan rakyat, mendorong maju, Bu Khofifah, inspirasi kita, bersama membangun, untuk masa depan baru.
+Apa pun kopinya tetap Khofifah pilihannya
+Ayo, dukung kemajuan Jawa Timur dengan menikmati kopi lokal! xemoticonx
+Kok bisa ya ada orang tidak suka kopi xemoticonx?
+Kalau kopi sudah di cangkir, tidak ada satu pun yang bisa menghalangi kenikmatannya xemoticonx xemoticonx xemoticonx xemoticonx
+Kopi Jawa Timur tuh otomatis bikin melek, tidak ada yang mengalahkan. Tapi yang pesan es teh, mungkin lagi tidak ingin mengopi
+Kopi hangat tuh esensinya kedai kopi, apalagi kopi Jawa Timur! Tapi es teh? Ya tidak apa-apa lah ya
+Es teh di kedai kopi? Bagaimana rasanya ya? Tapi yang penting, kopi Jawa Timur tidak ada tandingannya
+kopi asli Jawa Timur memang nikmat xemoticonx
+Ternyata sama-sama penikmat kopi xemoticonx xemoticonx
+Haha, es teh di kedai kopi tuh ibarat pesan nasi Padang tapi tanpa sambal! Tapi yang penting, semangat dukung Jawa Timur tetap menyala! xemoticonx xemoticonx xemoticonx
+Mantap xmentionx
+Kopi Jawa Timur memang beda, Bu! Penuh cita rasa tradisional
+Es teh untuk menyegarkan, kopi untuk menambah semangat! Semuanya mantap untuk dukung Jawa Timur
+Saya lebih suka es teh sih, Bu, tapi kopi Jawa Timur tetap tidak bisa dilupakan. xemoticonx
+Mengopi atau es teh, tidak masalah, yang penting semangat untuk kemajuan Jawa Timur tetap berkobar! Bangga jadi bagian dari Jawa Timur! xemoticonx xemoticonx
+Haha, es teh di kedai kopi memang bikin berpikir dua kali. Tapi tidak apa-apa, yang penting kita satu visi untuk Jawa Timur! xemoticonx xemoticonx
+Info warung kopi terdekat, segera berangkat Bu Khofifah
+Es teh di kedai kopi? Lucu sih, tapi selama kita terus bekerja sama untuk Jawa Timur yang lebih maju, semuanya tetap manis! xemoticonx xemoticonx xemoticonx
+ini inovatif xemoticonx
+jangan lupa mengopi di toko saya juga Bu
+Tidak masalah pesan es teh atau kopi, yang penting kita terus mendukung kemajuan Jawa Timur! Ayo semangat! xemoticonx xemoticonx xemoticonx xemoticonx
+Semuanya enak kok Bu
+Mengopi sebentar bro
+saya suka pesan americano enak sekali Bu
+kopi tuh enak apalagi sore di depan rumah
+enak sekali mengopi di pagi hari apalagi
+Es teh memang menyegarkan, tapi kopi memang yang terbaik untuk begadang saat ada pekerjaan.
+Dalam setiap tetes minuman ada cerita manis tentang harapan dan perjuangan xemoticonx xemoticonx
+Kopi asli Jawa Timur memang terbaik, Bu! Tetap semangat jajan kopi sambil dukung kemajuan Jawa Timur! xemoticonx xemoticonx xemoticonx
+terus maju Bu Khofifah xemoticonx
+mantap xemoticonx
+Tidak bisa meninggalkan kopi Jawa Timur, Bu. Nikmatnya luar biasa, seperti semangat kita mendukung Jawa Timur maju! xemoticonx xemoticonx xemoticonx
+bagus Bu Khofifah xemoticonx
+Benar sekali Bu, kopi Jawa Timur itu spesial! Nikmati kopi sambil terus dukung Jawa Timur maju! xemoticonx xemoticonx xemoticonx
+Bu Khofifah senang mengopi juga ternyata
+Bu Khofifah suka mengopi juga ternyata
+Pemimpinnya suka mengopi warganya sama
+Santai sebentar Bu Khofifah
+Perbedaan selera itu wajar Bu, penting coblos nomor dua
+Kalau mengopi beritahu saja Bu
+Orang Tuban juga suka mengopi Bu
+Lanjutkan Khofifah Emil
+kalau aku suka kopi Kintamani Bu
+Lokasinya di mana itu Bu
+Sidosermo dekat bekas tempat saya dulu kerja
+sepakat Lanjutkan
+Wah gambaran anak muda sekali ini pantas jadi panutan xemoticonx
+Maju terus
+404orangopiora404 hepi
+mengopi bikin pikiran tenang
+404orangopiyo404 ngelu bro
+Minum kopi pagi-pagi, Khofifah Emil pasti menang lagi xemoticonx
+Minum kopinya bukan minum kopi biasa, minum kopi sambil berpikir masa depan Jawa Timur itu luar biasa
+Ini teh, mengopi xemoticonx
+Ibu saya memang bisa masuk ke semua generasi muda dan tua, menyala lah ibuku xemoticonx
+Kopi Jawa Timur memang beda rasa dengan sejuta kenangan xemoticonx seruput. Ahhh
+Setiap tegukan kopi mengingatkan kita akan keindahan Jawa Timur! xemoticonx
+Sama sekali tidak salah! Kapan lagi bisa nikmati kopi enak seperti itu?
+Mendukung penuh! Kopi asli Jawa Timur selalu bikin kangen! xemoticonx xemoticonx
+Rasa kopi Jawa Timur memang bikin ketagihan, tidak ada yang bisa menandingi!
+Kopi hangat sambil menikmati suasana kedai, memang tidak ada duanya!
+Musik horeg itu benahi regulasinya
+Saya ibu xemoticonx xemoticonx
+Mantap Bu
+Angkat tangan yang suka kopi xemoticonx
+Santai sambil minum coffee latte paling pas xemoticonx xemoticonx xemoticonx xemoticonx
+Sehari tidak minum kopi pasti pusing xemoticonx
+Luar biasa Bu Khofifah, selalu membawa kebahagiaan di setiap langkahnya. Semoga sukses terus! xemoticonx xemoticonx
+Cinta Khofifah xemoticonx xemoticonx dua periode xemoticonx
+Setiap kebahagiaan yang kita bagi akan kembali dalam bentuk berkah. Semangat terus Bu Khofifah
+Melihat ibu ini kok hati ini tersentuh dan perasaan campur aduk, senang dan juga ingin menangis
+sangat dicintai oleh rakyatnya
+Bahagia melihat suasana pasar yang penuh kehangatan! Kebaikan kecil ini pasti berbalas besar dari yang di atas. xemoticonx xemoticonx
+Kebahagiaan masyarakat adalah kebahagiaan kita semua. Terima kasih atas perhatian dan dedikasinya, Bu! xemoticonx xemoticonx
+Hidup itu memang tabur tuai. Warga akan cinta pada pemimpinnya jika pemimpinnya baik dan tulus dalam melayaninya. Pasti, ini Bu Khofifah sekali xemoticonx
+Senyum dan kebahagiaan adalah berkah yang bisa kita bagikan kapan saja. Semoga selalu ada keberkahan di setiap langkah! xemoticonx xemoticonx
+senyum haru pedagang bikin terharu
+Luar biasa, semangat berbagi kebahagiaan di tengah keramaian pasar, semoga kebaikan ini terus berlimpah. xemoticonx xemoticonx
+Melihat yang lain bahagia, kita pun ikut bahagia. Terus sebarkan kebaikan dan senyum! xemoticonx xemoticonx
+Sungguh, kebahagiaan itu menular! Salut atas kebaikan yang selalu diberikan di tengah-tengah masyarakat. xemoticonx xemoticonx
+Luar biasa, Bu! Kebahagiaan yang dibagi di bumi pasti akan kembali dalam bentuk yang lebih besar
+Indahnya kebersamaan di pasar, senyum tulus yang menular! Semoga berkah selalu menyertai kita semua. xemoticonx xemoticonx
+mantap ini pemimpin masa depan xemoticonx xemoticonx
+Alhamdulillah Bu Khofifah masih peduli dengan rakyat kecil
+Tombol Khofifah Gubernur Jawa Timur 2024-2029 xemoticonx
+Benar sekali, Bu! Bahagiakan yang lain, kebahagiaan akan selalu menyertai kita
+Dari sini kita bisa tahu bahwa Ibu Khofifah sangat dicintai oleh semua lapisan masyarakat. Lanjutkan Bunda, masyarakat sudah terlanjur sayang xemoticonx
+Barakallah xemoticonx xemoticonx xemoticonx
+Semoga kebaikan yang dibawa oleh Bu Khofifah di Pasar Soponyono menjadi berkah untuk semua! Maju terus Ibu! xemoticonx xemoticonx
+Tidak perlu banyak kata untuk menggambarkan bagaimana seorang pemimpin, dari senyuman dan rasa syukur yang disampaikan kita sudah memahami betapa besar kecintaan dan dukungan dari rakyat untuk pemimpinnya, alhamdulillah
+optimis menang satu putaran Bu
+Surabaya masih banyak perjuangan bersama Bu Risma Surabaya coblos 03 xemoticonx
+tangis haru untuk Bu Khofifah
+jangan banyak kampanye Bu, lihat kaum muda yang ibu lupakan, mereka itu penting juga bagi bangsa
+kalau soal Surabaya saya tidak bisa lupakan perjuangan Bu Risma bangun kota besar ini sangat tegas xemoticonx
+sinetron TV kalah dengan yang beginian, lain kali jangan dilanjutkan ya
+konten seperti acara TV begini, hasil kerjanya mana tidak kelihatan
+Kampanyenya ke pasar tidak tahu waktu jadi kemarin ke mana saja hehe
+Jawa Timur pasti lebih maju dua kali
+rakyat akan bahagia jika gubernurnya bahagia
+konten begini sudah seperti pertunjukan televisi, hasil kerja dong yang ditunjukkan
+Wujudkan kebahagiaan lagi bagi rakyat Jawa Timur Bu
+Doa dan harapan kita semoga terkabul, untuk Ibu Khofifah memimpin kembali Jawa Timur agar kita semua bisa merasakan kejujuran dan kemajuan yang akan Ibu Khofifah bawa.
+Kampanye ke pasar ya, waktu sudah jadi ke mana Bu?
+Sudah cukup Bu
+Pemimpin yang bisa menebarkan kebahagiaan
+Bu Khofifah terbaik untuk Jawa Timur maju
+Setuju sekali! Bahagiakan sesama, maka kebahagiaan akan datang dari segala arah. Terima kasih Bu Khofifah atas inspirasinya
+masyaallah Bu Khofifah
+Tersenyumlah, tunjukkan pada dunia kita harus lebih banyak bersyukur, momen ini menunjukkan kepedulian pemimpin kepada rakyatnya, ada doa yang tulus, ada rasa syukur akan kehidupannya, terima kasih Bu xemoticonx xemoticonx
+Terharu melihat dedikasi Bunda Khofifah ini xemoticonx
+Menyebar kebahagiaan di bumi, kebaikan dari langit akan selalu datang. Semoga Bu Khofifah selalu dilimpahi berkah
+Bu Khofifah selalu membagi kebahagiaan kepada rakyatnya
+Alhamdulillah setiap langkah Ibu Khofifah selalu bertebaran doa dan penuh cinta dari semua masyarakat.
+Ibu Khofifah terbaik
+Saya juga berdoa agar Ibu Khofifah bisa melanjutkan memimpin Jawa Timur, agar masyarakat tidak kehilangan pemimpin jujur seperti Bunda xemoticonx xemoticonx
+Orang baik selalu dicintai oleh semua orang. Ibu Khofifah sosok pemimpin yang sangat dicintai oleh masyarakat, sehat selalu Bunda.
+Semoga Bu Khofifah bisa melanjutkan masa jabatannya menjadi dua periode agar masyarakat tidak kehilangan sosok pemimpin yang tulus seperti Bu Khofifah xemoticonx xemoticonx xemoticonx
+Pemimpin yang tulus xemoticonx
+Bukti Bu Khofifah dicintai segala lapisan masyarakat
+Iya Bu, sah ini. Barang siapa yang gemar menolong manusia maka kita ditolong Allah SWT.
+Kapan Bunda ke Bangkalan xemoticonx xemoticonx xemoticonx
+Orang yang tulus insyaallah bakal lulus xemoticonx xemoticonx
+Bahagia itu sederhana, cukup dengan membahagiakan orang lain. Terima kasih Bu Khofifah atas inspirasinya
+Kebahagiaan itu berputar, makin banyak memberi, makin banyak menerima. Terima kasih Bu Khofifah atas inspirasinya
+Senyum yang kita berikan akan kembali pada kita. Terima kasih Bu Khofifah sudah selalu membahagiakan orang banyak
+Setiap kebahagiaan yang kita bagi pasti akan membawa kebaikan. Semangat terus untuk membahagiakan banyak orang
+Bertemunya pemimpin yang didambakan dengan warganya. Luar biasa aura Bu Khofifah
+Kegembiraan yang tidak dibuat-buat. Pertemuan warga dengan pemimpin yang dicintainya. Semoga lancar Bu Khofifah perjalanan menuju Jawa Timur satu
+Momen yang sangat langka, warga dengan pemimpin yang didambakannya bertemu di satu tempat. Bravo Bu Khofifah
+Senyum kebahagiaan terpancar seperti halnya senyum kemenangan xemoticonx
+Pemimpin yang dicintai rakyatnya xemoticonx xemoticonx
+Semakin yakin Bu Khofifah melenggang untuk memimpin Jawa Timur yang kedua kalinya
+Masyarakat terlihat selalu bahagia saat Bu Khofifah hadir
+Contoh pemimpin yang dekat tanpa sekat dengan warganya
+Kita satukan suara untuk nomor dua xemoticonx xemoticonx xemoticonx xemoticonx
+Pemimpin terbaik di Jawa Timur xemoticonx xemoticonx
+Memang Bu Khofifah terus menjadi inspirator anak muda
+Pemimpin ideal xemoticonx Khofifah Emil
+Sayang kamu Ibu xemoticonx xemoticonx
+Pemimpin yang rendah hati dari aura Bu Khofifah terpancar ketulusan seorang ibu yang sayang kepada warganya.
+Reaksi kebahagiaan masyarakat, saat diberi kesempatan untuk memeluk haru sekali sih xemoticonx
+Sesayang itu masyarakat kepada Ibu Khofifah
+Aura Bu Khofifah memang selalu memancarkan kebahagiaan xemoticonx xemoticonx
+Pelukan yang tulus dari seorang pemimpin yang dicintai warganya. tidak ada basa-basi. Lanjut Bu Khofifah
+Nyata bukan pencitraan, masyarakat juga bisa merasakan mana yang nyata dan bohongan
+Terharu sekali melihatnya, sehat-sehat Bu Khofifah xemoticonx
+Jadi terharu melihat momen langka ini. Semoga lancar sampai pelabuhan kemenangan Bu Khofifah
+Hangat sekali momen ini xemoticonx
+Ikut senang meskipun yang memeluk Ibu Khofifah adalah emaknya
+Bahagianya Bu, ikut senang melihatnya
+Yang pada mengidolakan Bu Khofifah kumpul di sini xemoticonx
+Pertemuan tidak terduga, menghasilkan momen langka antara pemimpin dengan warganya. Semoga sukses Bu Khofifah
+Bu Khofifah memang dari dulu selalu tulus kepada masyarakatnya, ini adalah salah satu bukti kedekatan Bu Khofifah bersama masyarakat xemoticonx xemoticonx
+Terbukti kinerja Ibu Khofifah sangat dinikmati masyarakat, hingga Bunda sangat dicintai oleh semua lapisan masyarakat.
+Alhamdulillah begitu besar rasa syukur yang disampaikan dari rakyat untuk pemimpinnya, begitu besar kecintaan mereka kepada ibu kita xemoticonx xemoticonx
+Senyuman yang ikhlas dari masyarakat menunjukkan kepemimpinan Ibu Khofifah sangat memuaskan.
+Bisa kita lihat dari masyarakat bahwa Ibu Khofifah dalam memimpin begitu tulus ingin sekali membawa Jawa Timur semakin maju. Pokoknya lanjutkan Bunda xemoticonx
+Alhamdulillah puji syukur dan doa terpanjat dari rakyat untuk pemimpinnya, rakyat yang begitu mencintainya, semangat terus Bu untuk memimpin kembali Jawa Timur, amin
+Di mana ada Ibu Khofifah di situlah kebahagiaan selalu bertebaran, sehat selalu Bunda.
+Lapisan masyarakat sudah tahu kinerja Ibu Khofifah hingga beliau begitu dicintai. Kita selalu mendoakan Ibu Khofifah kembali memimpin Jawa Timur agar kami tidak kehilangan orang jujur seperti Bunda.
+Matraman tetap Khofifah jelas menang xemoticonx xemoticonx xemoticonx xemoticonx
+Sudah seperti ibu sendiri sekali melihatnya xemoticonx
+Orang baik akan selalu dikelilingi lagi oleh orang baik xemoticonx xemoticonx
+Adem ayem sekali melihatnya masyaallah bisa bertemu pemimpin Jawa Timur setulus ibu Khofifah xemoticonx xemoticonx
+Terlihat dari senyumannya dan kebahagiaannya ini tulus sekali setelah bertemu dengan bu Khofifah xemoticonx xemoticonx
+Ingin sekali bertemu bersama bu Khofifah secara langsung ya Allah xemoticonx xemoticonx xemoticonx
+Memang bu Khofifah idaman warga Jawa Timur xemoticonx
+Pilihan tepat untuk warga Jawa Timur
+Khofifah Emil terbaik untuk Jawa Timur Maju Berprestasi
+Bu Khofifah bisa turun langsung ke rakyat pemimpin idaman
+Bu Khofifah memiliki integritas yang kuat dalam memimpin
+Bahagianya bu Khofifah adalah melihat rakyatnya bahagia
+Keren ibu
+ya begini nih pemimpin
+bu Khofifah sangar sekali xemoticonx
+Orang baik pasti akan banyak yang menyayangi
+Pemimpin yang tidak kenal lelah
+ya Allah bu adem melihat ibu peduli dengan rakyatnya
+semangat bu xemoticonx
+Khofifah saja sudah jelas konkret untuk Jawa Timur
+Saya rasa bu Khofifah cocok untuk melanjutkan Jawa Timur
+kawal kemenangan satu putaran
+Semangat untuk memberikan kebahagiaan bu
+Bu Khofifah pilihan umat
+Terharu melihat ibu Khofifah terus menyebarkan kebahagiaan
+Sehat selalu ya ibu
+bismillah Khofifah-Emil satu putaran
+masyaallah senang melihatnya
+Aduh, terenyuh sekali melihat si Ibu sampai sumringah bisa merangkul Bu Khofifah. Dari senyumnya menandakan rangkulan yang penuh kehangatan dan ketulusan.
+Pelukan rakyat tidak pernah bohong pada pemimpin yang tulus seperti Bu Khofifah.
+Iri dengan si Ibu yang bisa memeluk bebas bu Khofifah di tempat umum. Jadi yakin Bu Khofifah tidak ada batasan jarak dengan warganya.
+Di mana ada pemimpin yang tulus, di situ ada warga yang serius xemoticonx xemoticonx
+Meski terlihat lucu ini ibu-ibu satu, tapi dia tulus benar-benar sayang sekali sama Ibu Khofifah. Keren, pemimpin sedekat ini dengan warganya.
+Bu minta kaos ya. Di mana
+Setiap senyuman yang dibagikan, pasti akan membawa kebahagiaan kembali. Lanjutkan kebaikannya! xemoticonx xemoticonx
+Pasar yang ramai, hati yang damai. Semoga kebaikan ini terus membawa berkah untuk kita semua xemoticonx xemoticonx
+Bahagiakan orang-orang sekitar kita, niscaya kebahagiaan juga datang dari segala arah. Pasar penuh cerita indah! xemoticonx xemoticonx
+Sebagai salah satu ibu-ibu Jawa Timur, saya merasa terwakili sama si Ibu yang lucu ini. Memeluk dan bilang xemoticonx baik dan jujur xemoticonx kepada bu Khofifah.
+maaf lewati dulu untuk 02
+Seharusnya hasil kerja yang ditunjukkan, konten begini sudah seperti pertunjukan televisi
+maaf bu cukup satu periode saja, tidak puas dengan masa kerja ibu
+omong kosong bu tidak ada kerja nyata
+dari kemarin ke mana saja bu kok baru sekarang turun
+janji manis saja yang diberikan
+Di pasar yang sederhana, tersimpan kebahagiaan luar biasa. Semoga selalu dibalas dengan kebaikan dari Yang Maha Kuasa. xemoticonx xemoticonx
+warga Soponyono penuh senyum xemoticonx
+senyum bahagia dari warga pasar Soponyono
+bu Khofifah selalu ada untuk rakyat
+bu Khofifah untuk Jawa Timur yang lebih maju
+luar biasa Dedikasi bu Khofifah
+semangat terus bu Khofifah
+barakallah bu
+Sungguh pemimpin yang peduli pada rakyat! Terima kasih Bu Khofifah, selalu menyebarkan kebahagiaan di mana pun berada. xemoticonx
+Luar biasa Bu Khofifah! Menginspirasi kita semua untuk selalu berbagi kebahagiaan dengan sesama. xemoticonx xemoticonx
+Bahagia itu sederhana, seperti melihat Bu Khofifah membahagiakan orang-orang di Pasar Soponyono. xemoticonx xemoticonx
+Pemimpin yang selalu peduli pada rakyat kecil! Terima kasih Bu Khofifah sudah membagikan kebahagiaan untuk semua. xemoticonx xemoticonx
+Bu Khofifah selalu menunjukkan bahwa kebahagiaan itu bisa ditemukan dalam kebersamaan. Terima kasih Ibu! xemoticonx xemoticonx
+Luar biasa Bu Khofifah, bahagia melihat Ibu yang selalu hadir di tengah masyarakat dengan senyuman dan perhatian. xemoticonx xemoticonx
+waktu begini melihat rakyat besok kalau sudah jadi lupa rakyat sudah biasa xemoticonx
+kaum muda banyak yang tidak memilih bu Khofifah karena tidak pernah dilihat sedikit pun kaum muda
+optimis menang satu putaran
+Assalamualaikum, di Pasuruan kapan Bu. Silakan diundang di Pasuruan
+haduh kalau begini saja caper turun ke pasar kemarin ke mana saja
+bahagikan rakyat-rakyat yang lain juga dong buk xemoticonx
+kalau masyarakat Jawa Timur yang tidak dapat kesejahteraan yang sangat banyak itu bagaimana tuh xemoticonx
+konten yang sudah direncanakan agar dapat hati di kalangan masyarakat
+kalau dekat pemilihan umum baru butuh rakyat kecil bu
+memang dari kemarin xemoticonx ke mana ya bu
+dekat dengan rakyat kalau dekat sama pemilihan umum saja ya bu
+alhamdulillah bunda semakin tahu bahwa konten tersebut membohongi masyarakat pasar, bu Khofifah dosa besar merugikan pasar dan pedagang
+luar biasa bu Khofifah ini kalau menyebarkan berita yang bersifat merugikan dan buruk bagi masyarakat, pemimpin kok minta suara terus
+jangan dipilih bu Khofifah
+kata jujur dibuat bahan kampanye selalu diutarakan para pejabat xemoticonx
+Pemimpin yang baik menanam benih kasih, dan hasilnya adalah cinta dari masyarakat. Ini adalah filosofi Bu Khofifah! xemoticonx xemoticonx
+Ketulusan bu Khofifah dalam melayani masyarakat menciptakan ikatan yang kuat. Warga akan selalu mencintai pemimpin yang tulus. xemoticonx
+Bu Khofifah mengajarkan kita bahwa kebaikan akan selalu berbuah manis. Cinta warga adalah hasil dari kepemimpinan yang baik
+Setiap tindakan baik adalah investasi dalam cinta dan kepercayaan. Bu Khofifah, contoh nyata pemimpin yang tulus!
+Kepemimpinan yang tulus adalah kunci menciptakan masyarakat yang harmonis. Bu Khofifah paham betul akan hal ini.
+Bu Khofifah menunjukkan bahwa cinta warga kepada pemimpin dibangun dari ketulusan dan dedikasi. xhashtagx xemoticonx
+Masyarakat akan selalu menghargai pemimpin yang tulus seperti Bu Khofifah xemoticonx
+Hidup adalah siklus tabur tuai. Pemimpin yang baik akan selalu dikenang dengan cinta. Terima kasih, Bu Khofifah xemoticonx
+Unik Bu, cara ibu membuat warga bahagia hanya dengan sapa dan bersua. Cukup sederhana tapi bermakna.
+Kemarin xemoticonx Ke mana bu, kok baru turun ke rakyat kecil
+Programnya kemarin banyak yang belum selesai, masa mau lanjut xemoticonx
+5 tahun memimpin perubahan apa yang nampak
+Menyala xemoticonx
+mengapa baru saat kampanye turun ke masyarakat
+Turun ke masyarakat hanya untuk berkampanye
+Miris sekali memanfaatkan rakyat kecil untuk berkampanye
+apa mungkin karena jarang sekali mengunjungi rakyatnya
+waktu kampanye saja begini, bertemu rakyatnya. coba kalau sudah jadi, apa akan sama
+cukup satu periode saja bu
+Ya sudah ganti saja pemimpinnya
+Tidak buk, aku yang lain saja tidak pilih kamu lagi
+bingung mau apa dilanjut banyak proyek mangkrak
+Khofifah mantap 404ingo404 jawa timur
+Salam awas xemoticonx
+mulai sistem cari suara nih di 404tokno404
+mulai sistem cari suara nih di 404tokno404
+404ndang404 404diakeh404 program cari suara nih kan butuh sekali xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx salam Bu Khofifah Indar Parawansa Sehat selalu dan sukses di segala bidangnya agar bahagia dan sejahtera berkeadilan sosial bagi seluruh rakyat Indonesia xemoticonx xemoticonx xemoticonx
+sudah cukup satu periode saja lur
+sudah cukup satu periode saja buk
+sudah tidak usah dua periode sudah cukup satu saja
+bismillah satu putaran xemoticonx
+Luar biasa semangat NasDem untuk mendukung Bu Khofifah dan Mas Emil! Semoga sukses terus menuju kemenangan. xemoticonx xemoticonx
+Semangat seluruh kader untuk memenangkan Khofifah-Emil sangat kecewa. Jawa Timur akan lebih baik di bawah kepemimpinan mereka!
+404Wayahe404 untuk perubahan yang nyata! dua periode bersama Bu Khofifah untuk Jawa Timur
+Semangat kader NasDem luar biasa! Mari bersama-sama memenangkan Khofifah-Emil di Pemilihan Kepala Daerah Jawa Timur 2024! xemoticonx
+Bu Khofifah, kami ingin dua periode kepemimpinan yang penuh cinta untuk rakyat
+Kepemimpinan ibu Khofifah memang inspiratif, semoga terpilih lagi!
+Dukung pak Emil xemoticonx Bu Khofifah saja pasti
+Kolaborasi yang solid untuk Jawa Timur lebih baik
+Kader NasDem sudah siap untuk membawa Khofifah-Emil menang besar di Pemilihan Kepala Daerah Jawa Timur! Maju terus! xemoticonx
+Luar biasa! Partai NasDem Jawa Timur semakin solid dan siap memenangkan pasangan Khofifah-Emil
+Semakin dekat dengan kemenangan! Terima kasih NasDem atas kerja keras dan dukungan penuh untuk Khofifah-Emil! xemoticonx xemoticonx
+Semangat terus bu Khofifah dan pak Emil! Siap mendukung di Pemilihan Kepala Daerah Jawa Timur 2024! xemoticonx
+Terima kasih Partai NasDem atas dedikasi dan kerja kerasnya dalam mendukung Khofifah-Emil untuk Jawa Timur lebih baik
+Gas 02
+404Wayahe404 untuk melanjutkan semua program hebat! Bu Khofifah, kami siap mendukung dua periode
+Sukses untuk Khofifah-Emil di Pemilihan Kepala Daerah Jawa Timur 2024, semoga semakin maju. xemoticonx
+2.500 kader siap bergerak untuk Khofifah-Emil! Ini bukti nyata dukungan kuat dari Partai NasDem. xemoticonx xemoticonx
+Ayo NasDem! Jawa Timur butuh pemimpin seperti Khofifah dan Emil
+Dukungan penuh untuk bu Khofifah dan pak Emil, Jawa Timur pasti lebih hebat
+404Wayahe404 untuk kepemimpinan yang lebih baik! Kami siap mendukung Bu Khofifah dua periode
+Lanjutkan xemoticonx xemoticonx
+NasDem Jawa Timur siap bekerja keras! Ayo bersama menangkan Khofifah-Emil
+Nasdem good job xemoticonx xemoticonx orang cerdas pilih 02
+Dukungan 2.500 kader NasDem di Rakorwil ini adalah bukti nyata komitmen untuk mewujudkan kemenangan Khofifah-Emil
+Tombol Dukung Khofifah-Emil xemoticonx xemoticonx xemoticonx
+Nasdem menyatukan suara untuk solid Khofifah Emil
+Panaskan mesin kita gas penuh untuk Khofifah Emil
+Jawa Timur tetap Khofifah Emil
+Suarakan 02 untuk Jawa Timur Maju Berprestasi
+Rakornya keren! Semoga sukses memenangkan Khofifah-Emil. xemoticonx
+Acara Rakorwil ini benar-benar menunjukkan kekompakan tim NasDem
+Keren sekali acaranya, semoga NasDem semakin solid dan menang di 2024
+Solid terus untuk menangkan 02
+Khofifah Emil menang lagi
+Siap melaju untuk Jawa Timur Maju
+Semangat terus bu Khofifah dan mas Emil
+Kita pastikan Khofifah Emil lanjutkan sekali lagi
+Gas kawan
+Jawa Timur butuh orang seperti Bu Khofifah dan Mas Emil
+maju terus pantang mundur xemoticonx
+Khofifah Emil sudah pasti xemoticonx xemoticonx
+Terima kasih kepada Partai NasDem yang terus berjuang dengan soliditas luar biasa untuk memenangkan Khofifah-Emil di Pemilihan Kepala Daerah Jawa Timur 2024!
+Salut untuk DPW Partai NasDem yang siap bergerak memenangkan Khofifah-Emil dengan penuh semangat
+Dengan pengalaman dan dedikasi, kami dukung Bu Khofifah untuk dua periode penuh prestasi
+Kemenangan besar untuk Khofifah-Emil tidak lepas dari ikhtiar besar yang dilakukan Partai NasDem. Terima kasih
+Mesin politik NasDem makin panas! Siap menata kemenangan Khofifah-Emil dengan angka tebal
+xmentionx yang memimpin selanjutnya bu xemoticonx xemoticonx gantian kita merasakan kepemimpinan beliau ya bu
+404Wayahe404 untuk melanjutkan semua yang sudah dibangun! Kami dukung dua periode, Bu
+Saatnya Ibu Khofifah memimpin kembali! 404Wayahe404 dua periode untuk Jawa Timur yang lebih sejahtera
+Dua periode, satu hati untuk Jawa Timur! Bu Khofifah, mari kita lanjutkan perjuangan ini
+404Wayahe404 dua periode! Kami semua bersatu mendukung Bu Khofifah untuk kemajuan Jawa Timur
+Bu Khofifah, kami butuh kepemimpinanmu untuk dua periode lagi! Jawa Timur pasti lebih baik
+404Wayahe404 untuk keberlanjutan! Mari kita dukung Bu Khofifah dua periode demi Jawa Timur
+Kami percaya Bu Khofifah bisa membawa Jawa Timur ke puncak sukses! 404Wayahe404 dua periode
+Dua periode, satu harapan! Bu Khofifah, mari kita ciptakan masa depan yang lebih cerah
+404Wayahe404 dua periode! Komitmen Ibu membuat kami yakin akan perubahan untuk Jawa Timur
+Kami bersatu untuk dukung Bu Khofifah, saatnya dua periode demi kemajuan Jawa Timur
+Bu Khofifah, kami rindu kepemimpinanmu! 404Wayahe404 dua periode untuk Jawa Timur yang lebih baik
+Saatnya Ibu Khofifah kembali! 404Wayahe404 dua periode penuh prestasi dan dedikasi
+Sangat menginspirasi! Dukungan 2.500 kader NasDem menunjukkan bahwa Bu Khofifah memiliki tim yang solid untuk maju di Pemilihan Kepala Daerah Jawa Timur.
+Dukungan kami untuk dua periode, Bu Khofifah! Mari kita wujudkan Jawa Timur yang sejahtera
+404Wayahe404 untuk membangun masa depan! Bersama Bu Khofifah, dua periode penuh harapan
+Kami percaya dengan Ibu Khofifah, dua periode adalah langkah pasti untuk Jawa Timur yang lebih hebat
+404Wayahe404 dua periode! Kami siap mendukung Bu Khofifah untuk terus membawa Jawa Timur ke arah yang lebih baik
+Bu Khofifah adalah sosok pemimpin yang tepat untuk membawa Jawa Timur ke arah yang lebih baik. Semangat semua kader NasDem
+Kegiatan Rakorwil ini menunjukkan kekompakan dan semangat luar biasa dari seluruh kader NasDem untuk mendukung Bu Khofifah!
+Siap bekerja di periode kedua xemoticonx
+Langkah strategi Partai NasDem ini sangat penting untuk memastikan kemenangan bu Khofifah dan mas Emil
+Kepemimpinan Bu Khofifah yang inspiratif patut didukung sepenuhnya. Mari kita wujudkan Jawa Timur yang lebih baik
+Ayo bu Khofifah mas Emil. semangat. semoga yang dukung ibu Khofifah dan mas Emil lebih banyak lagi untuk Jawa Timur Maju dan Berprestasi
+Nomor dua untuk periode kedua
+Jawa Timur penuh 02
+insyaallah menang xemoticonx xemoticonx
+Kekompakan kader NasDem dalam Rakorwil ini adalah sinyal kuat untuk mendukung Bu Khofifah dan Emil. Semangat terus!
+Dukungan 2.500 kader menunjukkan keyakinan besar terhadap kepemimpinan Bu Khofifah. Mari kita menangkan
+Ayo berjuang bersama menangkan Khofifah
+Komitmen Partai NasDem yang luar biasa adalah bukti bahwa Bu Khofifah memiliki tim yang solid
+Semoga menang lagi ya bu
+Menyala
+Bu Khofifah gubernurnya anak-anak Jawa Timur
+Semakin kuat untuk menang
+Nomor dua kita gas
+Semangat ibu
+Salam 02
+Bu Khofifah dekat dengan semua kalangan dan golongan
+Optimis Khofifah Emil akan menang satu putaran
+Nasdem sudah merapat pertanda kemenangan
+Nasional Demokrat untuk jawa timur lebih baik
+Semuanya solid siap memenangkan Khofifah Emil
+Nasdem sudah benar mendukung Khofifah Emil untuk melanjutkan
+Dukungan yang kuat dari kader NasDem adalah modal penting untuk kemenangan Bu Khofifah. Teruskan perjuangan!
+404Emoh404. bosan
+Terima kasih Partai NasDem atas komitmen penuh untuk memenangkan Khofifah-Emil. insyaallah, kemenangan di depan mata! xemoticonx xemoticonx
+Semakin dekat dengan kemenangan! Terima kasih NasDem atas dukungan totalnya untuk Khofifah-Emil! xemoticonx
+Luar biasa NasDem! 2.500 kader siap memenangkan Khofifah-Emil. Semoga sukses selalu! xemoticonx xemoticonx
+Luar biasa solidnya Partai NasDem! Bersama-sama kita menata kemenangan besar untuk Khofifah-Emil di Pemilihan Kepala Daerah 2024! xemoticonx
+Oke gas xemoticonx xemoticonx
+Penampilan terbaik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx nomor dua pasti menang.
+Ayo bu nyai Khofifah rida Allah Subhanahu wa Ta'ala
+Khofifah makin banyak dukungan dari masyarakat
+Optimis menang satu putaran
+Muslimat hadir bu Khofifah siap memenangkan
+Rapatkan barisan pasti menang satu putaran
+Insyaallah bunda satu putaran, lanjutkan
+Menang satu putaran
+Senang bersama dan sehat bersama! Keren sekali Khofifah-Emil bisa buka layanan kesehatan di pasar
+Luar biasa, kampanye yang tidak hanya bicara tapi juga langsung membantu rakyat! Terima kasih Bu Khofifah-Emil! xemoticonx xemoticonx
+Kampanye yang benar-benar bikin masyarakat senang, sehat, dan bahagia. Khofifah-Emil memang luar biasa
+Mantap, kampanye yang sangat dibutuhkan masyarakat xemoticonx xemoticonx
+Memang terbaik! Masyarakat pasti sangat menghargai layanan kesehatan seperti ini. Semangat terus!
+Salut! Selain kampanye, Khofifah-Emil juga bantu masyarakat cek kesehatan. Terima kasih atas perhatiannya xemoticonx
+Cara-cara yang inovatif terus digalakkan oleh Bu Khofifah dan Mas Emil, harapannya semoga ini menjadi program keberlanjutan saat beliau memimpin Jawa Timur lagi
+Inspirasi sekali bu Khofifah
+Senang sekali jika melihat para pedagang dan warga pasar senang
+Masyarakat sehat Jawa Timur kuat xemoticonx xemoticonx Lanjutkan Bu Khofifah xemoticonx
+Mantap bu Khofifah sangat peduli akan kesehatan masyarakat
+Kesehatan itu penting! Senang sekali ada kampanye yang juga peduli soal kesehatan rakyat
+Mengapa kak dari dulu bu kalau mau pemilihan saja seperti ini
+Terima kasih kepada tim Khofifah-Emil yang benar-benar peduli pada kesehatan masyarakat, khususnya pedagang dan pengunjung pasar. Kampanye yang sangat bermanfaat
+Bu Khofifah adalah sosok yang merakyat, selalu hadir di tengah-tengah masyarakat
+Pemeriksaan kesehatan gratis di Pasar Soponyono luar biasa ramai! Bukti bahwa kampanye Khofifah-Emil sangat bermanfaat dan dibutuhkan oleh masyarakat. Sukses selalu
+Terima kasih tim Khofifah-Emil atas layanan kesehatan gratisnya. Senang bisa cek gula darah dan kolesterol tanpa biaya. Ini kampanye yang benar-benar merakyat dan penuh manfaat
+Ini bukti pemimpin yang benar-benar peduli kesehatan masyarakat! Sukses terus Bu Khofifah dan Mas Emil! xemoticonx
+Sayang kamu penuh Bu Khofifah xemoticonx xemoticonx
+Layanan kesehatan gratis ini sangat bermanfaat! Terima kasih Bu Khofifah dan Mas Emil atas perhatiannya kepada masyarakat xemoticonx xemoticonx
+Kampanye yang sehat! Terima kasih sudah peduli dengan kesehatan pedagang dan pengunjung pasar
+Kampanye yang bukan sekadar janji, tapi aksi nyata! Layanan kesehatan gratis dari tim Khofifah-Emil menunjukkan perhatian besar mereka terhadap kesejahteraan masyarakat
+Terima kasih Khofifah-Emil atas layanan kesehatannya! Pedagang pasar jadi bisa cek kondisi tubuh tanpa biaya
+Inspiratif! Kombinasi kampanye dan layanan kesehatan adalah langkah yang sangat cerdas
+Pro kampanyenya tidak pro kerjanya memang boleh?
+Bu Khofifah menjadi sosok calon pemimpin idaman
+xemoticonx xemoticonx begini ini seharusnya yang banyak
+Bu Khofifah memang mantap
+Kampanye Khofifah-Emil tidak hanya politik, tapi juga peduli kesehatan rakyat
+Kampanye Khofifah-Emil benar-benar berbeda! Membuka layanan kesehatan di setiap blusukan pasar adalah ide yang cemerlang. Masyarakat merasa diperhatikan dan dipedulikan kesehatannya
+Dukung Khofifah jadi gubernur Jawa Timur 2024 xemoticonx xemoticonx xemoticonx
+Respek dengan cara kampanye pasangan calon dua
+Kalau sudah jadi dong kasih program ini
+Nah begini baru gubernur, kampanyenya sangat berguna bagi masyarakat
+Terus berikan layanan terbaik bu
+Bisa cek kesehatan gratis saat di pasar, terima kasih tim Khofifah-Emil. Ini bukti bahwa kampanye mereka tidak hanya janji tapi nyata, menyentuh kebutuhan dasar masyarakat
+Cukup satu periode menurutku kurang tegas menyelesaikan masalah
+Masa waktu kampanye saja bu
+Terima kasih Bu Khofifah untuk cek kesehatan gratisnya
+Alhamdulillah insyaallah bukti nyata bunda peduli kesehatan warga Jawa Timur, insyaallah Jawa Timur makin sehat di bawah kepemimpinan xmentionx xmentionx xemoticonx xemoticonx
+Layanan kesehatan gratis dari tim Khofifah-Emil adalah bentuk perhatian yang luar biasa. Pedagang dan pengunjung pasar sangat terbantu, apalagi dengan rekomendasi sehat setelah cek
+Terima kasih tim Khofifah-Emil, pemeriksaan kesehatan gratis ini sangat membantu, apalagi untuk pedagang yang jarang sempat cek kesehatan. Semoga terus berlanjut
+Salut dengan Khofifah-Emil! Kampanye sambil peduli kesehatan rakyat kecil. Terima kasih
+Khofifah Emil memang beda dari yang lain
+Terima kasih banyak Bu, semoga ke depan makin banyak cek kesehatan gratis di Jawa Timur
+Pemeriksaan kesehatan gratis untuk rakyat kecil, ini yang bikin kampanye Khofifah-Emil terasa nyata dan bermanfaat
+Selain kampanye, Khofifah-Emil juga bawa pesan penting soal kesehatan. Semoga makin banyak yang sadar pentingnya kesehatan
+Semangat Bu Khofifah xemoticonx xemoticonx
+Terima kasih Bunda xemoticonx xemoticonx
+Cek kesehatan gratis lebih memudahkan untuk masyarakat
+Kampanyenya benar-benar langsung menyentuh rakyat, keren! xemoticonx
+Semoga selalu ada layanan kesehatan seperti ini di setiap tempat!
+Salut untuk tim Khofifah-Emil! Layanan pemeriksaan kesehatan ini sangat tepat sasaran, pedagang dan pengunjung pasar benar-benar merasakan manfaatnya
+Bagus sekali, terima kasih Khofifah-Emil! Pasar jadi tempat yang lebih sehat xemoticonx
+Alhamdulillah, bisa cek kesehatan gratis saat kampanye tim Khofifah-Emil. Tidak hanya ajakan politik, tapi juga ajakan untuk hidup sehat dan bahagia bersama. Luar biasa
+Terima kasih Bu atas perhatiannya
+Kampanye yang bermanfaat, tidak hanya janji tapi ada tindakan nyata
+Rakyat makin sehat, bu Khofifah pun senang xemoticonx xemoticonx
+Masyarakat butuh bukti nyata dan hasil kerja, bukan sekadar kampanye dengan janji
+Sekadar kampanye, kalau sudah jadi pasti lupa janjinya waktu kampanye
+Waktu kampanye saja semangat terus kalau sudah jadi pasti lupa janjinya waktu kampanye
+Mantap bu Khofifah terus menerapkan program ini, karena kesehatan harganya mahal
+Ada di hati warga terus nih bu Khofifah
+Bu Khofifah sangat mensejahterakan masyarakat
+Mantap sekali bu Khofifah dengan segala kampanye bermanfaatnya
+Luar biasa, Bu Khofifah! Inisiatif pemeriksaan kesehatan gratis ini sangat bermanfaat bagi masyarakat!
+Terima kasih, Bu Khofifah! Pemeriksaan kesehatan gratis ini bisa membantu banyak orang menjaga kesehatannya
+Keren sekali! Dengan pemeriksaan ini, masyarakat jadi lebih sadar pentingnya kesehatan
+Ayo kita jaga kesehatan bersama! Inisiatif ini jelas menunjukkan perhatian Bu Khofifah terhadap masyarakat
+Layanan yang luar biasa! Semoga makin banyak masyarakat yang teredukasi tentang kesehatan
+Bu Khofifah, Anda memang peduli! Teruskan inovasi yang bermanfaat seperti ini
+Bangga dengan kampanye yang memperhatikan kesehatan rakyat. Semoga sukses selalu!
+Maaf saya ingin menyewakan bangunan untuk tim kampanye kabupaten Malang, adakah nomor yang bisa dihubungi xemoticonx
+Khofifah Emil lanjutkan Jawa Timur ayo
+Soponyono pernah ke sana
+Lebih sering kegiatan positif seperti ini bu
+404infi404 pekerja 404man404 insyaallah 404reash404
+Maju berprestasi
+Tetap Khofifah Emil Jawa Timur
+404pun404 biasa bu Khofifah
+Surabaya bisa bersama
+Sekarang masyarakat diperlakukan baik-baik ya bu, nanti kalau sudah enak dilupakan
+Bu Khofifah di tengah jam padatnya tapi masih bisa memberikan isi
+Bu Khofifah konkret
+Pengobatan ini masih diperlukan di mana
+Program inovatif luar biasa
+Bu Khofifah gas terus
+Bu Khofifah selalu mendengar aspirasi masyarakat, terima kasih atas perhatian dan dedikasinya
+Kepemimpinan Bu Khofifah sangat inspiratif, semoga terus membawa perubahan positif untuk Jawa Timur
+Program-program yang diusung Bu Khofifah nyata-nyata membantu meningkatkan kesejahteraan warga
+Saya menghargai usaha Bu Khofifah dalam memperjuangkan pendidikan yang lebih baik untuk anak-anak kita
+Terima kasih Bu Khofifah, kepemimpinan Anda membawa harapan baru bagi masyarakat Jawa Timur
+Bu Khofifah selalu memperhatikan kebutuhan masyarakat, semoga terus konsisten dalam programnya
+Dedikasi Bu Khofifah untuk meningkatkan kesehatan di Jawa Timur sangat patut dicontoh
+Saya sangat mengapresiasi langkah-langkah Bu Khofifah dalam memperkuat ekonomi lokal
+Keberanian Bu Khofifah dalam mengambil keputusan yang tepat menunjukkan kepemimpinan yang kuat
+Program bantuan sosial yang digagas Bu Khofifah sangat membantu keluarga kurang mampu
+Bu Khofifah selalu mengutamakan dialog dengan masyarakat, itu yang kami butuhkan
+Sikap terbuka Bu Khofifah terhadap kritik membuatnya menjadi pemimpin yang lebih baik
+Kami merasa didengar dan diperhatikan oleh Bu Khofifah, terima kasih untuk semua upaya Anda!
+Komitmen Bu Khofifah dalam menjaga keberagaman dan toleransi sangat menginspirasi
+Bu Khofifah telah memberikan banyak kemajuan dalam bidang infrastruktur di Jawa Timur
+Kepemimpinan Bu Khofifah membawa rasa aman dan nyaman bagi seluruh warga
+Saya bangga memiliki pemimpin seperti Bu Khofifah yang selalu berpihak pada rakyat
+Bu Khofifah, terima kasih telah menjadikan Jawa Timur tempat yang lebih baik untuk kita semua
+Dukungan Bu Khofifah terhadap seni dan budaya lokal sangat membantu pelestarian warisan kita
+Bu Khofifah saya dari hadir dukung nomor dua
+Kesehatan rakyat juga vital
+Ya ini kampanye yang berguna
+LANJUTKAN xemoticonx xemoticonx
+Terima kasih banyak bu Khofifah
+Kegiatan yang berguna xemoticonx xemoticonx
+Insyaallah dua periode
+Mantap kegiatan yang bermanfaat bagi masyarakat kecil xemoticonx
+Tidak bohong xemoticonx 02 ini kalau kampanye
+Menyala 02 xemoticonx
+Jangan takut Bu Khofifah Indar Parawansa dan Emil Dardak pasti menang. Saya yakin. Saya dari desa Cangking kecamatan Plumpang kabupaten Tuban Jawa Timur sekeluarga memilih Bu Khofifah Indar Parawansa dan Emil Dardak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Lewati deh bosan kampanyenya begini melulu jadi malas milih xemoticonx
+Kampanye dengan cara ini yakin bisa berhasil sampai di waktu depan wkwk
+Kampanye yang sedikit membikin bingung untuk kaum muda seharusnya kaum muda juga dikasih kampanye tapi tidak ada yang dilakukan xemoticonx
+Seharusnya lebih pro ke rakyat kecil lagi dong, nanti kalau sudah enak rakyat dilupakan
+Bantuan sosial tidak merata mau minta dua periode
+404bu404 404lengo404 404karo404 404berase404 404gak404 404ono404 404a404 404koyo404 404tahun404 404wingi404
+Tidak sudah, aku milih lainnya kok
+Waktunya kampanye bikin kegiatan seperti ini, waktu menjabat tidak ada tuh kegiatan seperti itu
+404alaaa404 omong doang, capai dengan kampanye janji doang
+Apa hanya waktu kampanye doang turun ke rakyat bu
+Bukti nyatanya hanya waktu masa kampanye doang, hanya cari sensasi
+Kalau ada butuhnya baru turun ke rakyat bu
+Nanti juga tidak konsisten dengan programnya, hanya pemanis belaka
+Habis ini selain pedagang siapa lagi targetnya yang mudah untuk dikasih janji manis
+Dari dulu ke mana saja bu kok baru sekarang turun
+Aneh tidak pengajian xemoticonx
+Aneh tidak pengajian bu xemoticonx
+Lewati dulu lah, tidak bawa kemajuan sama sekali
+Masyaallah mulia sekali programnya ibu
+Sangat peduli terhadap masyarakatnya
+Kampanye yang bagus tahu mana kebutuhan rakyat
+Kampanye yang sangat bagus tahu kondisi rakyat
+Siapa pun calonnya Khofifah pilihannya
+Lewati dulu, cukup satu periode
+Sudah waktunya dua periode
+Aku juga mau ada pemeriksaan di desaku bu
+Program seperti itu diperbanyak lagi bu Khofifah
+Senang lihat kampanye yang memperhatikan kesehatan pedagang dan masyarakat. Sehat bersama Bu Khofifah-Emil! xemoticonx
+Layanan kesehatan gratis ini pasti sangat membantu! Salut untuk Bu Khofifah dan Mas Emil. Terus maju! xemoticonx xemoticonx
+Keren sekali! Cek kesehatan gratis langsung di pasar, ini sangat membantu rakyat kecil. Semoga terus berlanjut! xemoticonx xemoticonx
+Terima kasih Bu Khofifah dan Mas Emil! Cek kesehatan gratis ini sangat berarti untuk masyarakat pasar xemoticonx
+Layanan kesehatan gratis di pasar tradisional ini sangat bermanfaat! Terus maju Bu Khofifah-Emil! xemoticonx
+Terima kasih Bu Khofifah, Mas Emil! Cek kesehatan gratis ini sangat membantu kami di pasar. Sehat terus ya! xemoticonx
+Apa kabar janji kemarin bu xemoticonx
+Selalu blusukan hanya untuk kampanye
+Selalu kampanye berkedok blusukan
+Blusukan hanya untuk kampanye
+Hanya kampanye, aktualisasi sih beda lagi
+Hanya kampanye, nanti juga tidak tahu ke mana lagi
+Hanya kampanye kok kalau sudah jadi pasti beda
+Berharap tidak nomor dua lagi
+Anda di periode kemarin kerjanya kurang tepat xemoticonx efektif bu
+Jangan pilih bu Khofifah xemoticonx
+Kampanye yang bikin sakit masyarakat membodohi masyarakat dan tidak senang karena dirugikan oleh bu Khofifah
+Bunda sakit hati dengan bu Khofifah, jangan dipilih ya bu Khofifah merugikan masyarakat Jawa Timur
+Sukses ibu. Lanjut Jawa Timur satu
+404nekk404 404ngenee404 404ae404 404baru404 404mudun404 404lapangan404 404golek404 404suaraa404 404nek404 404iki404
+404gak404 404masok404 404nek404 404ngenee404 404gae404 404progam404 404wingi404 404wingi404 404nndi404 404ae404
+404mulaiii404 404progam404 404golek404 404acara404 404e404 404dimulai404
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx bismillahirrahmanirrahim alhamdulillah calon gubernurnya Bunda Ustazah Dr Khofifah Indar Parawansa semoga sehat selalu dan sukses di segala bidangnya agar warganya berbahagia dengan baik dan benar tercapai insyaallah bermanfaat dan berkah bagi semuanya amin terima kasih salam dari Jakarta Indonesia xemoticonx xemoticonx xemoticonx
+404taek404 404golek404 404rai404
+404waye404 404nyalon404 404langsung404 404golek404 404rai404 404mbe404 404golek404 404suoro404
+404nak404 404kunu404 404golek404 404rai404 404trs404 404ngekei404 404amplopan404 404ewu404 404ben404 404oleh404 404suoro404
+Inspiratif sekali emak-emak Latansa PKS! Peran besar mereka selalu menjadi motor penggerak perubahan positif. Sukses untuk langkah kita selanjutnya
+Emak-emak Latansa memang hebat! Bersama Bu Khofifah, Jawa Timur pasti makin maju dan sejahtera! xemoticonx
+Setuju! Emak-emak memang kekuatan luar biasa dalam setiap langkah perubahan. Terus semangat!
+Di balik setiap pemimpin hebat, ada emak-emak yang luar biasa. Semangat Bu Khofifah dan emak-emak Latansa! xemoticonx
+Bu Khofifah sosok yang baik hati xemoticonx xemoticonx xemoticonx
+Keren! Dengan dukungan emak-emak, Jawa Timur pasti bisa lebih maju. Ayo semangat!
+Luar biasa kekuatan emak-emak Latansa PKS. Dengan mereka di barisan depan, masa depan Jawa Timur yang lebih baik ada dalam genggaman kita
+Emak-emak Latansa PKS memang juara, selalu menjadi kekuatan di balik gerakan yang penuh semangat. Jawa Timur pasti akan lebih baik dengan dukungan mereka
+Mantap, emak-emak Muslimat siap memenangkan Khofifah, Muslimat no hoax, Muslimat no fitnah, Muslimat no gibah. Maju terus bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
+Bu Khofifah peduli rakyat memang terbukti
+Emak-emak Latansa PKS memang selalu di garda depan. Dukungan dan energinya membuat kita makin yakin, bersama-sama kita bisa membangun Jawa Timur yang lebih hebat
+Memang Bu Khofifah sangat dekat dengan rakyat
+Benar sekali, Bu! Di balik pemimpin hebat, selalu ada emak-emak yang lebih hebat. Ayo kita wujudkan Jawa Timur yang lebih baik
+Alhamdulillah. Terima kasih sudah membersamai emak-emak pelopor PKS. Emak-emak PKS siap menjadi garda terdepan berjuang untuk Khofifah Emil, untuk rakyat Jawa Timur xmentionx
+Bu Khofifah citranya sudah baik di masyarakat
+Semangat terus emak-emak! Bersama Bu Khofifah dan Mas Emil, kita bisa mewujudkan Jawa Timur berprestasi! xemoticonx xemoticonx
+Tetap bu Risma - Gus Hans yang layak memimpin Jawa Timur berani, tegas, jujur, 404ab404
+Mantap lanjutkan emak-emak keren
+Sudah waktunya Jawa Timur bersama bu Khofifah lagi
+Didukung dari berbagai kalangan xemoticonx
+Menyala ibu xemoticonx xemoticonx xemoticonx
+Emak-emak turun tangan, semua pasti beres. Semangat dan kerja keras emak-emak Latansa benar-benar jadi inspirasi untuk kita semua. Teruskan perjuangan
+Terima kasih emak-emak Latansa! Dengan dukungan kalian, insyaallah, Bu Khofifah dan Mas Emil akan menang dan membawa perubahan! xemoticonx
+Bu Khofifah Indar Parawansa dan Emil Dardak sangat baik dan terbaik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Ibu xemoticonx cerdas tidak salah pilih, orang baik pilihannya ya 02
+Bu Khofifah, semangat dan tekad Anda inspirasi bagi banyak orang
+Kalau emak-emak sudah bergerak, Jawa Timur pasti bisa makin maju. Terima kasih Bu Khofifah atas apresiasinya
+Sudah pasti pilih 02
+Menang dua periode
+Sabar pokoknya Ibu Khofifah xemoticonx
+Emak-emak Latansa PKS adalah pahlawan tanpa tanda jasa! Terima kasih atas semangatnya
+Ya ini ditunggu-tunggu pendapat emak-emak Jawa Timur, ternyata sama-sama dukung Bu Khofifah
+Habis generasi Z terbitlah emak xemoticonx, sudah jelas kemenangannya lo
+Ibu Khofifah memang terbukti nyata peduli para bunda, bundanya para bunda Jawa Timur xemoticonx xemoticonx
+Warga desa Cangking Kecamatan Plumpang Kabupaten Tuban Jawa Timur wajib memilih nomor dua
+Bersama Bu Khofifah Jawa Timur sejahtera
+Bahaya kalau emak xemoticonx sudah bersatu. Sudah pasti menang pastinya xemoticonx xemoticonx
+Bu Khofifah memang sosok yang tidak suka marah-marah, menyala xemoticonx
+Memang kecintaannya emak-emak xemoticonx
+Emak-emak solid pilih yang nomor dua xemoticonx xemoticonx xemoticonx
+Suara emak xemoticonx tidak bisa dikalahkan bro, sudah pasti menang ini
+Pemimpin yang penuh dedikasi
+Mantap, insyaallah makin sejahtera jika memilih nomor dua
+Kami percaya beliau bisa membawa perubahan yang lebih baik
+Sudah waktunya dua periode xemoticonx xemoticonx
+Menyala gubernurku xemoticonx xemoticonx
+Setuju dengan emak-emak, emak seperti saya yang mending pilih Bu Khofifah jelas sekali kinerjanya, yang bilang Bu Khofifah tidak nyata sebagai gubernur, aduh makanya jangan kebanyakan bengong
+Jelas ayo dukung Bu Khofifah
+Intinya jangan lupa pilih Bu Khofifah
+Bu Khofifah jelas menang
+Perempuan Jawa Timur selangkah lebih maju xemoticonx xemoticonx xemoticonx xemoticonx
+Sudah dilanjutkan bersama anak periode kedua xemoticonx xemoticonx
+Salam dua jari xemoticonx xemoticonx xemoticonx xemoticonx
+Sabar dan tidak suka marah-marah xemoticonx
+Selalu menjadi inspirasi kita semua, terima kasih Bu Khofifah xemoticonx xemoticonx
+Pemimpin yang amanah
+Gas penuh dua periode xemoticonx xemoticonx
+Laksanakan Bu xemoticonx
+Tidak suka marah-marah xemoticonx seperti menyindir pasangan calon sebelah xemoticonx intinya Khofifah-Emil dua periode xemoticonx
+Ibu saya ya senang Khofifah
+Sudah benar Khofifah tidak yang lain
+Tetap Bu Khofifah xemoticonx xemoticonx
+Bunda Fifah xemoticonx xemoticonx periode xemoticonx
+Sound horeg cok, tertibkan
+Setuju sekali! Kalau emak-emak sudah turun tangan, apa pun bisa selesai! Semangat terus Bu Khofifah
+Pepatah yang tepat sekali, Bu! Emak-emak memang fondasi kuat untuk keberhasilan
+Emak-emak PKS, terima kasih sudah menjadi motor semangat pemenangan. Kita bersama-sama bangun Jawa Timur
+Benar sekali! Di balik setiap langkah besar, ada emak-emak yang selalu mendukung
+Setuju sekali, Bu! Emak-emak yang turun tangan, pasti semua urusan jadi lancar
+Kekuatan emak-emak memang tidak main-main! Terima kasih atas dukungannya Bu Khofifah dan emak-emak Latansa PKS
+Emak-emak memang penggerak perubahan. Dengan dukungan Latansa PKS, insyaallah langkah menuju Jawa Timur lebih maju akan lebih kuat dan terarah
+Dukung penuh Khofifah Emil pokoknya 27 November
+Terima kasih emak-emak Latansa PKS, semangat dan dedikasinya luar biasa, selalu jadi sumber inspirasi untuk mewujudkan impian kita bersama
+Salut untuk emak-emak Latansa PKS yang penuh semangat! Dengan sinergi ini, Jawa Timur pasti makin maju dan sejahtera. Ayo lanjutkan perjuangan kita
+Di balik setiap pemimpin hebat, ada emak-emak yang lebih hebat! Sangat benar, dukungan emak-emak Latansa PKS sangat berharga. Terima kasih untuk semangat yang tak pernah padam
+Terima kasih emak-emak Latansa PKS se-Jawa Timur! Kehadiran kalian benar-benar jadi penyemangat luar biasa. Bersama, kita pasti bisa membuat perubahan besar untuk Jawa Timur
+Kekuatan emak-emak PKS di Apel Siaga ini luar biasa! Semoga Khofifah-Emil terus memimpin Jawa Timur
+Dukungan sebesar ini pasti membawa kemenangan untuk kita semua!
+Dukungan emak-emak PKS makin solid, Khofifah-Emil makin dekat dengan kemenangan! xemoticonx xemoticonx
+Salut untuk emak-emak PKS yang selalu terdepan, Khofifah-Emil pasti menang! xemoticonx
+Luar biasa! Kalau emak-emak sudah turun tangan, pasti semua urusan beres. Semangat terus Bu Khofifah dan Mas Emil! xemoticonx xemoticonx
+Salut untuk emak-emak Latansa PKS! Kalian adalah kekuatan besar di balik kemajuan Jawa Timur. Lanjutkan perjuangannya! xemoticonx xemoticonx
+Emak-emak Latansa memang pahlawan sejati! Siap mendukung Bu Khofifah dan Emil untuk membawa Jawa Timur lebih baik! xemoticonx xemoticonx
+Hebat emak-emak Latansa PKS! Kita semua siap dukung Bu Khofifah dan Emil untuk periode kedua xemoticonx xemoticonx
+Emak-emak yang hebat, pemimpin yang hebat! Bersama Bu Khofifah dan Mas Emil, Jawa Timur makin maju xemoticonx
+Tolong perhatikan soal sound horeg yang ada di Jawa Timur, Bu. Tolong jadikan Jawa Timur menjadi provinsi dengan SDM yang bijaksana dan bermartabat, apalagi dengan adanya image kota santri, saya berikan referensi yang mengatur soal polusi suara xemoticonx Keputusan Menteri Negara Lingkungan Hidup Nomor 48 Tahun 1996. Baku Tingkat Kebisingan xemoticonx
+Bu Khofifah, kami percaya pada visi dan misi Anda untuk Jawa Timur. Semoga sukses
+Dukungan penuh untuk Bu Khofifah! Saatnya Jawa Timur maju bersama Anda
+Kami butuh pemimpin yang peduli rakyat. Bu Khofifah, pilihan yang tepat
+Bu Khofifah, pengalaman Anda sangat dibutuhkan untuk membangun Jawa Timur
+Semoga Bu Khofifah bisa mewujudkan perubahan positif untuk semua
+Jawa Timur butuh inovasi! Bu Khofifah, kami mendukung penuh program-program Anda
+Kami yakin Bu Khofifah bisa membawa Jawa Timur ke arah yang lebih baik
+Dari kami, suara untuk Bu Khofifah! Mari kita buat Jawa Timur lebih maju
+Bu Khofifah, terima kasih atas dedikasi Anda untuk masyarakat. Kami semua mendukung
+Jawa Timur butuh kepemimpinan yang kuat dan berpengalaman. Bu Khofifah adalah pilihan yang tepat!
+Dengan Bu Khofifah, kami yakin ekonomi Jawa Timur akan makin berkembang
+Ayo, kita satukan suara untuk mendukung Bu Khofifah sebagai Gubernur Jawa Timur
+Dukungan kami untuk Bu Khofifah! Mari bersama-sama membangun Jawa Timur
+Bu Khofifah, komitmen Anda untuk pendidikan patut diacungi jempol
+Kami percaya Bu Khofifah akan memperhatikan kesejahteraan masyarakat Jawa Timur
+Jawa Timur butuh pemimpin yang berani dan inovatif. Bu Khofifah, kami mendukung Anda
+Kami mendukung penuh program-program kesehatan yang diusung Bu Khofifah
+Bu Khofifah, kepemimpinan Anda sangat kami harapkan untuk masa depan Jawa Timur
+Saatnya Jawa Timur bangkit! Dukungan kami untuk Bu Khofifah sebagai Gubernur
+Inspiratif! Peran emak-emak sangat krusial dalam pembangunan daerah. Mari kita dukung bersama!
+Penuh semangat! Emak-emak Latansa PKS adalah pahlawan sejati dalam setiap perjuangan
+Mendukung penuh! Bersama emak-emak, kita bisa mewujudkan Jawa Timur yang lebih baik
+Sangat menginspirasi! Mari kita buktikan bahwa emak-emak adalah pilar penting dalam setiap perubahan
+Bravo! Emak-emak adalah sumber inspirasi dan semangat bagi kita semua. Ayo bergerak!
+Setiap langkah kecil dari emak-emak sangat berarti. Bersama, kita pasti bisa mencapai lebih!
+Emak-emak memang tak tergantikan! Dengan kebersamaan, kita bisa mencapai tujuan besar
+Luar biasa! Kolaborasi kita dengan emak-emak akan membawa Jawa Timur ke arah yang lebih baik
+Bu Khofifah terbukti nyata rakyat Jawa Timur menjadi saksi keberhasilan Jawa Timur. Selalu berbuat nyata untuk rakyat tanpa sandiwara dan drama. Memimpin dengan hati dan kasih sayang, bukan dengan marah-marah dan kepalsuan. Allah bersama pemimpin yang ikhlas untuk rakyat. Bu Khofifah dua periode Jawa Timur maju berprestasi
+Nomor dua didukung semua partai pemenang
+Orang tani tetap Khofifah Emil
+Rakyat tahu siapa yang terbaik
+PKS sudah pasti dukung Bu Khofifah
+Dari dulu tetap Khofifah tidak ganti
+Bu Khofifah terbaik untuk Jawa Timur
+PKS sudah benar dukung Ibu
+Lanjutkan
+Yang penting itu Bu sabar tidak suka marah-marah
+Ibu-ibu sekarang mengerti yang baik yang mana
+Menang
+Emak-emak keren solid dukung Khofifah Emil
+Emak-emak sudah maju pikirannya
+Warga Jawa Timur tahu yang terbaik
+Ras terkuat Jawa Timur solid 02
+Emak-emak Jawa Timur mengerti harus pilih siapa
+Bismillah hajar dua periode
+Bu tolong pembangunan TIJ bikin susah warga di sekitarnya terutama di Bumiarjo, air untuk mandi dan cuci baju, air sumurnya kering Bu tolong Bu sidak di TKP
+TIJ adalah pembangunan Terminal Intermoda Joyoboyo yang terowongan menuju kebun binatang
+Luar biasa Ibu tercinta
+Ibu Khofifah menang
+Dipenuhi akun-akun post 0 dan post 1 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Emakmu bagaimana Gus kan Jawa Timur tapi kok tidak ke video xmentionx
+Ikhtiar emak-emak untuk menjaga persatuan dan kemenangan sangat menginspirasi. Semangat terus
+Lanjutkan Bu Khofifah xemoticonx, saya percaya pasti menang satu putaran xemoticonx
+Luar biasa, dukungan emak-emak PKS untuk Khofifah-Emil makin menguatkan langkah menuju kemenangan! Semoga makin sukses dan berkah untuk Jawa Timur!
+Terima kasih kepada PKS dan emak-emak hebat yang terus mendukung Khofifah-Emil! Jawa Timur pasti makin maju!
+Bagus PKS tidak salah pilihan xemoticonx xemoticonx
+Sudah pasti menang ini xemoticonx
+Semangat emak-emak PKS luar biasa! Insyaallah, dengan kebersamaan ini, kemenangan Khofifah-Emil makin nyata!
+Insyaallah saya sekeluarga dukung 02 xemoticonx xemoticonx
+Hebat sekali! Emak-emak PKS menunjukkan kekuatannya untuk pemenangan Khofifah-Emil xemoticonx xemoticonx
+Bu Khofifah selalu mampu menghadirkan energi positif. Dukungan dari emak-emak adalah sinyal bahwa beliau sangat dicintai masyarakat
+Semangat emak-emak luar biasa! Insyaallah, Khofifah-Emil akan membawa perubahan yang lebih baik untuk Jawa Timur
+Terima kasih PKS sudah mendukung Bu Khofifah semoga lelah kita semua menjadi lillah xemoticonx
+Alhamdulillah terima kasih Ibu menemani emak-emak PKS berkesan penuh cinta, sehat selalu salam takzim. Khofifah Emil lanjutkan, Khofifah Emil menang, bismillah xemoticonx xemoticonx
+Deklarasi emak-emak PKS ini bikin merinding! Semoga kemenangan untuk Khofifah-Emil segera terwujud!
+Keberadaan 2.500 peserta menunjukkan besarnya dukungan untuk Bu Khofifah. Semangat ini akan membawa Jawa Timur ke arah yang lebih baik!
+Semangat emak-emak Latansa luar biasa! Jawa Timur pasti akan lebih maju dengan Khofifah-Emil
+Apel Siaga Latansa menunjukkan kekompakan dan semangat juang emak-emak yang siap memenangkan Khofifah-Emil. Semoga ikhtiar ini membuahkan hasil yang gemilang
+Apel Siaga Latansa ini bukti nyata bahwa Khofifah-Emil adalah pilihan rakyat! Emak-emak sudah siap memenangkan!
+Ikrar yang luar biasa dari emak-emak PKS! Semoga Khofifah-Emil bisa membawa kemenangan besar untuk Jawa Timur
+Semangat emak-emak dalam deklarasi adalah langkah strategis untuk memastikan keberhasilan. Bu Khofifah, teruslah berjuang untuk kami!
+Gas Bu, siap menangkan xemoticonx
+Salut untuk emak-emak PKS yang selalu siap menjaga kesatuan dan pemenangan Khofifah-Emil. Luar biasa!
+Mantap semoga Khofifah Emil bisa menang satu putaran
+BISMILLAH MENANG xemoticonx xemoticonx xemoticonx
+Apel Siaga ini menunjukkan bahwa dukungan terhadap Khofifah-Emil makin solid dan kuat, khususnya dari para perempuan tangguh PKS
+Sinergi yang kuat antara perempuan PKS dan seluruh elemen masyarakat akan menjadi kekuatan besar untuk pemenangan Khofifah-Emil
+Nomor dua Ibu Khofifah Indar Parawansa dan Emil Dardak pasti menang saya yakin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Deklarasi emak-emak PKS adalah kekuatan besar untuk pemenangan Khofifah-Emil. Semoga Jawa Timur makin maju di bawah kepemimpinan mereka
+Bismillah jadi gubernur Jawa Timur dua periode
+PKS sudah tepat mendukung yang menang
+MANTAP SEKALI
+Gas
+Maju terus Ibu Khofifah dan PKS
+Mantap PKS xemoticonx xemoticonx
+Gas penuh Ibu, lanjutkan dua periode xemoticonx xemoticonx xemoticonx
+Insyaallah menang satu putaran
+Kolaborasi yang mantap
+Mantap
+Insyaallah kemenangan Khofifah-Emil sudah di depan mata xemoticonx xemoticonx
+Apel Siaga Latansa, semangatnya terasa sampai sini! Maju terus Khofifah-Emil! xemoticonx
+Hebatnya emak-emak PKS! Dukungan seperti ini akan membawa Khofifah-Emil menuju kemenangan yang luar biasa
+Sound horeg di Jawa Timur tertibkan lah cok
+Siap memenangkan Bu Khofifah
+Lanjutkan Bu Khofifah dua periode
+Insyaallah Bu Khofifah Indar Parawansa kembali menjadi Gubernur Jawa Timur
+Deklarasi emak-emak PKS untuk Khofifah-Emil, benar-benar luar biasa! Pasti menang!
+Tambah sangar rek Bu Khofifah, sukses selalu Bu! Kami mendukungmu!
+Mantap
+Mantap Bu Khofifah, lanjutkan
+PKS terima kasih sudah mendukung Ibu Khofifah
+Emak-emak memang pilar kekuatan bangsa, semoga sukses selalu!
+Emak-emak PKS selalu ada di garda terdepan, pemenangan Khofifah-Emil pasti lancar! xemoticonx xemoticonx
+Semangat dari Lumajang membara untuk kemenangan Khofifah-Emil, salut untuk emak-emak PKS! xemoticonx
+Insyaallah menang
+BU KHOFIFAH MENANG LAGI
+Sangat menginspirasi melihat semangat emak-emak yang siap mendukung Khofifah-Emil. Kepemimpinan Bu Khofifah memang layak mendapatkan dukungan luar biasa!
+Ikrar gerakan emak-emak adalah bukti nyata bahwa Bu Khofifah mampu menyatukan masyarakat. Mari kita wujudkan pemenangan bersama
+Apel Siaga Latansa ini menunjukkan bahwa dukungan untuk Khofifah-Emil sangat kuat. Bu Khofifah, semangat ini patut diapresiasi!
+Dukungan dari perempuan pelopor PKS menjadi kekuatan tersendiri. Semoga langkah Bu Khofifah makin mantap menuju pemenangan!
+Momen ini menunjukkan bahwa kebersamaan dan persatuan sangat penting. Bu Khofifah, kami siap mendukung penuh pemenangan ini!
+Melihat antusiasme peserta di Glagah Arum membuat kami percaya bahwa Bu Khofifah akan terus membawa perubahan positif bagi Jawa Timur
+Kepemimpinan Bu Khofifah yang inklusif dan memberdayakan perempuan patut dicontoh. Mari kita bersatu untuk memenangkan Khofifah-Emil!
+Mantap Ibu
+Jawa Timur dukung penuh 02 rek
+Bu Khofifah passwordnya xemoticonx kerja nyata xemoticonx
+xemoticonx Menyala, lanjutkan
+Yang pasti-pasti saja
+Luar biasa, semangat emak-emak PKS pasti membawa kemenangan untuk Khofifah-Emil
+Terima kasih emak-emak pelopor PKS atas semangatnya yang luar biasa. Kemenangan Khofifah-Emil makin dekat
+Emak-emak selalu jadi ujung tombak dalam perjuangan. Kalian hebat, pemenang Khofifah-Emil di tangan kalian
+Deklarasi ini makin menguatkan optimisme untuk kemenangan Khofifah-Emil. Maju terus emak-emak PKS
+Ikrar emak-emak PKS ini adalah langkah besar untuk kemenangan Khofifah-Emil. Teruskan perjuangannya!
+Deklarasi juru kampanye emak-emak ini adalah wujud nyata kepedulian dan komitmen perempuan PKS dalam menjaga persatuan dan mendukung kepemimpinan Khofifah-Emil
+Semangat dan dedikasi emak-emak Latansa PKS dalam perjuangan ini sungguh menginspirasi. Kemenangan sudah di depan mata
+Keterlibatan aktif dalam apel siaga ini membuktikan komitmen kuat untuk menciptakan perubahan positif di Jawa Timur
+Juru kampanye emak-emak PKS adalah contoh teladan dalam berjuang demi pemimpin yang mampu membawa perubahan untuk Jawa Timur yang lebih baik
+Semangat Bu lanjutkan dua periode, Ibu sudah hebat bawa banyak perubahan untuk Jawa Timur yang lebih baik
+PKS tetap dukung Khofifah Emil
+PKS mantap dukung Bu Khofifah Emil
+MANTAP BU KHOFIFAH AKU ORANGNYA ANDA
+Bu Khofifah terbukti didukung seluruh kalangan mayoritas
+PKS biasanya satu suara optimis dukung Khofifah Emil
+PKS sudah benar dukung lanjutkan Jawa Timur
+mengapa Anda diam saja dengan adanya sound horeg yang sudah meresahkan masyarakat Jawa Timur? Kalau Anda hanya cukup diam, berarti sama tidak jauh beda dengan mereka yang SDM-nya rendahan
+Khofifah Emil pasti didukung penuh masyarakat Jawa Timur
+Acaranya luar biasa! Semoga makin sukses untuk Khofifah-Emil! xemoticonx
+Semangat terus Bu Khofifah, kami selalu mendukung
+Apel Siaga Latansa sangat menginspirasi, semoga menang
+Kehadiran Bu Khofifah selalu membawa semangat baru bagi kami xemoticonx
+Energi positif di setiap kampanye Bu Khofifah, sukses terus!
+Doa terbaik untuk kemenangan Khofifah-Emil, terus berjuang! xemoticonx
+Acara yang sangat meriah, dukungan untuk Khofifah-Emil makin kuat
+Selalu kagum dengan kepemimpinan dan visi Bu Khofifah
+Semoga Bu Khofifah dan Pak Emil menang telak di pemilihan kepala daerah!
+Hebat sekali! 2.500 peserta, bukti nyata dukungan yang solid
+Aura kemenangan sudah terasa, teruskan perjuangannya, Bu
+Salut untuk semua emak-emak yang berjuang mendukung Khofifah-Emil! xemoticonx
+Kami siap mendukung penuh Khofifah-Emil sampai garis akhir!
+Kepemimpinan Khofifah-Emil layak untuk dilanjutkan, sukses selalu
+Doa dan dukungan dari kami di Jawa Timur, semoga menang besar!
+Apel Siaga ini luar biasa! Membawa semangat baru bagi kami semua
+Bersatu padu untuk kemenangan Khofifah-Emil, Jawa Timur pasti lebih baik
+Khofifah selalu memberikan inspirasi untuk generasi muda!
+Dengan acara seperti ini, yakin Khofifah-Emil akan menang di pemilihan kepala daerah
+Pemimpin yang hebat selalu mendapat dukungan yang besar, semangat terus! xemoticonx
+Saya ada di antara 2500 itu ibu xemoticonx
+xemoticonx Lanjutkan...PKS terbaik
+Bagus
+Hadir xemoticonx xemoticonx xemoticonx xemoticonx
+Bagaimana Jawa Timur mau maju, kalau di sekolahan masih jadi tempat sarang korupsi, pungutan liar masih merajalela?
+Sudah waktunya
+Huu Khofifah terbaik
+Kapan bu ke Pacitan
+PKS Jawa Timur mantap, partai pengusung dan pendukung yang lainnya mana aksinya?
+Jawa Timur butuh pemimpin seperti Bu Khofifah dan Mas Emil. Kami siap berdiri di belakang Anda
+Jawa Timur pasti lebih maju di tangan Anda berdua. Terima kasih atas dedikasinya
+Khofifah Emil dua periode xemoticonx
+Kami selalu mendukung dengan sepenuh hati! Bersama Ibu Khofifah dan Mas Emil, Jawa Timur pasti makin maju dan sejahtera xemoticonx xemoticonx
+Semangat terus! Perjalanan ini adalah milik kita semua, dan kami akan selalu berada di belakang Ibu dan Mas Emil. Bersama kita kuat! xemoticonx xemoticonx
+Bersama-sama, kita wujudkan Jawa Timur yang lebih maju. Semangat Bu Khofifah dan Mas Emil
+Lanjutkan ibu. Tuhan berkati ibu dan mas Emil. Amin
+Dengan pengalaman dan visi yang jelas, Bu Khofifah adalah sosok yang tepat untuk memimpin Jawa Timur ke arah yang lebih baik
+Bu Khofifah telah menunjukkan komitmen yang kuat dalam membangun Jawa Timur. Mari kita dukung beliau untuk melanjutkan program-program yang telah terbukti sukses
+Kami selalu mendoakan yang terbaik untuk Bu Khofifah dan Mas Emil. Semangat terus bangun Jawa Timur!
+Doa dan dukungan penuh dari kami, semoga sukses selalu dalam membangun Jawa Timur
+Warga Blitar orang cerdas xemoticonx xemoticonx xemoticonx
+Beliau telah membuktikan diri sebagai pemimpin yang peduli dan responsif. Melanjutkan kepemimpinan Bu Khofifah adalah langkah tepat untuk masa depan yang lebih baik
+Keberhasilan Bu Khofifah dalam meningkatkan pendidikan dan kesehatan di Jawa Timur patut diapresiasi. Dua periode lagi akan memberikan kesempatan lebih besar untuk kemajuan
+Bu Khofifah dan Mas Emil, kami selalu mendukung penuh! Bersama-sama, kita wujudkan Jawa Timur yang lebih sejahtera dan berprestasi xemoticonx
+Jangan lupa pilih bu Khofifah
+Ya Bu Khofifah Indar Parawansa dan Emil Dardak wajib menang. Saya sekeluarga dari
+Dukungan penuh untuk Bu Khofifah dan Mas Emil! Bersama, kita pasti bisa membawa Jawa Timur ke arah yang lebih baik
+Keberadaan Bu Khofifah di pemerintahan adalah harapan baru bagi kami di Blitar
+Bu Anda kapan ke Kediri ya?
+xemoticonx xemoticonx xemoticonx xemoticonx Lanjutkan bu jangan lengah, prestasikan lagi
+Orang yang haus pujian, menyelesaikan problem di Jawa Timur sangat 0 xemoticonx
+Jawa Timur dipimpin ibu ini mau jadi apa, kalau transparansi anggaran saja tidak ada
+Saya sebagai warga Blitar asli memilih Bu Risma yang banyak wawasan, Jawa Timur perlu perubahan ya begini xemoticonx saja
+Wajib dong
+Gas warga Blitar dan Jawa Timur seluruhnya nomor dua
+Warga Blitar bersatu untuk mendukung visi dan misi Bu Khofifah
+Jangan termakan publik warga Blitar telusuri keunggulan ketiga calon yang pasti ya nomor 03
+Bu Khofifah sangat mengayomi masyarakat kecil
+Jawa Timur dipimpin ibu ini mau jadi apa, proyek saja tidak terlaksana
+Blitar Khofifah Emil menang telak pasti
+Malas, bosan
+Jawa Timur butuh perubahan
+Maaf kali ini tidak dulu
+Mayoritas akun palsu semua pendukungnya xemoticonx
+Kamu warga Sidoarjo wajib milih nomor berapa kok tidak ada xmentionx
+Demi suara
+Aku pilih Khofifah
+Keren ibu, sehat selalu xemoticonx xemoticonx
+Saya sekeluarga memilih Bu Khofifah Indar Parawansa dan Emil Dardak. Saya dari desa Cangking kecamatan Plumpang kabupaten Tuban Jawa Timur. Wajib pilih nomor dua xemoticonx xemoticonx xemoticonx xemoticonx
+Luar biasa, kepemimpinan yang membawa harapan baru! Bersama-sama kita wujudkan Jawa Timur yang lebih baik xemoticonx xemoticonx
+xemoticonx siap
+Pemimpin yang dicari masyarakat Jawa Timur
+Siap Bu
+Perjalanan ini memang milik kita semua. Terima kasih sudah membawa kami menuju kemajuan
+Ya wajib milih nomor dua dong
+Tidak salah pilih
+Orang Blitar gubernurnya ya Khofifah
+Mantap Blitar
+Lamongan hadir nomor dua gas penuh xemoticonx xemoticonx xemoticonx xemoticonx
+Warga Blitar cerdas tahu mana yang terbaik
+Pemimpin yang mengayomi
+Luar biasa masyarakat Blitar xemoticonx xemoticonx
+Kita semua siap berjalan bersama Bu Khofifah dan Mas Emil untuk Jawa Timur yang lebih sejahtera
+Kami yakin dengan komitmen Ibu dan Mas Emil, Jawa Timur akan makin hebat. Semoga selalu diberi kekuatan dalam membangun negeri ini! xemoticonx
+Kok banyak akun palsu yang komentar baik xemoticonx xemoticonx xemoticonx
+Pilih nomor dua
+Bismillah Blitar penuh 02
+Insyaallah Blitar 80 xemoticonx Khofifah
+Lumajang nomor dua
+Perjuangan ini milik kita bersama, Bu! Insyaallah kita semua akan mencapai kemajuan yang lebih baik untuk Jawa Timur xemoticonx
+Bu Khofifah dan Mas Emil! Kami selalu mendukung langkah Anda untuk kemajuan Jawa Timur xemoticonx xemoticonx
+Semangat Bu Khofifah dan Mas Emil
+Doa dan dukungan dari kami tidak akan pernah berhenti. Jawa Timur pasti makin maju di bawah kepemimpinan Anda berdua xemoticonx xemoticonx
+Semangat Bu Khofifah dan Mas Emil! Kami akan selalu berada di belakang Anda untuk kemajuan Jawa Timur xemoticonx xemoticonx
+Jawa Timur akan menjadi provinsi yang lebih maju dengan kepemimpinan yang tangguh xemoticonx xemoticonx
+Terima kasih, kami bangga punya pemimpin seperti Ibu dan Mas Emil yang selalu mendengarkan dan bekerja untuk rakyat. Insyaallah sukses terus! xemoticonx
+Doa dan dukungan kami tidak pernah berhenti. Jawa Timur di bawah kepemimpinan Ibu dan Mas Emil makin membawa berkah dan kemajuan xemoticonx xemoticonx
+Saya juga
+Kami warga Blitar bangga mendukung Bu Khofifah sebagai pemimpin yang peduli
+Bu Khofifah selalu hadir untuk masyarakat Blitar, dukungan kami penuh untuk beliau
+Kami percaya, kepemimpinan Bu Khofifah akan membawa perubahan positif di Blitar
+Warga Blitar siap mendukung program-program inovatif Bu Khofifah untuk kesejahteraan
+Keren warga Blitar
+Bu Khofifah telah membuktikan kepeduliannya terhadap kebutuhan masyarakat Blitar
+Kami melihat komitmen Bu Khofifah untuk membangun Blitar lebih baik, dukungan kami selalu
+Gas dua periode lur
+Kami mengapresiasi langkah-langkah nyata Bu Khofifah untuk memajukan Blitar
+Dukungan kami untuk Bu Khofifah adalah bentuk harapan akan masa depan yang lebih baik
+Apa-apaan kampanye hanya pengajian terus kok mau maju bu, kampanye yang menguntungkan rakyat dong xemoticonx
+Keren ibu
+Berhenti saja bu mencalonkan gubernur anda sudah cukup membuat Jawa Timur menjadi kacau xemoticonx
+Efek dapat kaos dan uang biasanya xemoticonx
+Kalau pemikiran saya sih pilih yang lain selain bu Khofifah daripada tambah hancur ini Jawa Timur xemoticonx
+Blitar maju bersama Khofifah Emil
+Khofifah-Emil xemoticonx xemoticonx
+Dukungan warga Blitar untuk Bu Khofifah adalah bukti cinta kami pada daerah
+Bu Khofifah selalu melibatkan masyarakat dalam setiap program, kami sangat mendukung
+Blitar bakal lebih maju ini kalau Khofifah gubernurnya
+Maju terus ibu Khofifah
+Warga Blitar siap bekerja sama dengan Bu Khofifah untuk mewujudkan Blitar yang lebih baik
+Kami melihat konsistensi Bu Khofifah dalam memajukan daerah, dukungan kami untuk beliau
+Bu Khofifah adalah sosok yang membawa semangat perubahan bagi warga Blitar
+Kami yakin, dukungan untuk Bu Khofifah adalah investasi untuk masa depan Blitar
+Warga Blitar sangat antusias dengan program-program yang diusung Bu Khofifah
+Dukungan kami untuk Bu Khofifah adalah wujud kepercayaan akan kepemimpinan yang baik
+Sangat cocok untuk terus memimpin Jawa Timur
+xemoticonx xemoticonx insyaallah amanah menang
+Dua periode lanjutkan
+Aduh tidak dulu deh kalau disuruh pilih nomor 02
+Cukup satu periode saja bu, Jawa Timur tidak ada kemajuan sama sekali
+Sudah cukup warga Jawa Timur tidak percaya lagi dengan Anda bu
+Mulai Ngawi sampai Banyuwangi nomor 02 pilihannya xemoticonx
+Omong kosong bu tidak ada kerja nyata
+Tidak ada itu bu tidak ada kerja nyata
+Tambah apa bu, sudah cukup satu periode saja tidak usah nambah
+Aduh, periode kemarin saja sudah tidak karuan
+Mari pemimpinnya ganti yang baik, jangan Anda lagi
+Wajib xmentionx xemoticonx
+Blitar makin maju dan solid xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Mantap betul
+Menyala Blitar xemoticonx xemoticonx xemoticonx xemoticonx
+Mantap penuh xemoticonx xemoticonx
+Bu Khofifah selalu menunjukkan dedikasi yang tinggi untuk memajukan Jawa Timur
+Saya Banyuwangi juga milih Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
+Bu kesejahteraan untuk guru swasta xemoticonx
+Kepemimpinan Bu Khofifah membawa banyak perubahan positif. Dengan dukungan kita, beliau bisa melanjutkan visi dan misinya untuk kesejahteraan masyarakat
+Dukungan untuk Bu Khofifah adalah dukungan untuk pembangunan yang berkelanjutan. Mari kita bersama-sama memperkuat langkah beliau
+Bu Khofifah memiliki visi yang jelas dan strategi yang efektif. Dua periode akan memungkinkan beliau untuk mewujudkan semua rencana ambisiusnya
+Dengan pengalaman dan dedikasi yang dimiliki, Bu Khofifah layak untuk diberi kesempatan kedua. Mari kita dukung beliau untuk Jawa Timur yang lebih maju
+Kepemimpinan Bu Khofifah menginspirasi banyak orang. Dukungan kita akan memperkuat usaha beliau dalam menciptakan Jawa Timur yang lebih sejahtera
+Jawa Timur mau jadi apa bu Khofifah, kalau kebijakan ibu selalu memihak
+Warga Bangkalan juga dua periode xemoticonx xemoticonx
+Lima tahun Jawa Timur seperti tidak punya gubernur
+Jawa Timur pilih yang pasti-pasti saja kawan xemoticonx
+xemoticonx Bantengnya diorat-arit
+Dukung penuh nomor dua pokoknya xemoticonx
+Lanjutkan, nomor dua intinya xemoticonx
+Dari jauh nomor dua pokoknya xemoticonx xemoticonx xemoticonx
+Lanjutkan dua periode ibu
+Dukung penuh Khofifah Emil xemoticonx
+Dukung nomor dua untuk Jawa Timur makin maju xemoticonx
+Orang Jawa Timur itu Khofifah
+Biasanya begini ini efek dapat kaos dan bekal
+Mantap ibu xemoticonx
+Saudara Blitar tetap dukung Khofifah Emil
+Warga Blitar harus pilih bu Khofifah
+Yakin Khofifah menang
+Nomor dua gas penuh menang
+Yakin menang ini
+Wajib pokoknya pilih bu Khofifah
+Gas penuh pilih bu Khofifah
+Jawa Timur maju hebat berprestasi
+Orang Blitar positif dukung bu Khofifah
+Ayo ayo pilih bu Khofifah
+Mantap bu Khofifah
+Bu Khofifah memang bagus
+Jangan lupa pilih bu Khofifah
+Pokoknya pilih bu Khofifah
+Jangan lupa pilih nomor dua
+Jangan ke mana-mana pilih nomor dua
+Bu Khofifah aku sudah jelas pilih Anda
+Blitar basis kemenangan Khofifah Emil
+Kalau ada butuhnya baru turun ke rakyat bu
+Mengayomi kalau dekat pemilihan umum saja bu
+Blitar wajib pilih nomor dua
+Yang realistis saja, periode pertama banyak program tidak selesai kalau dekat pemilihan umum baru turun ke rakyat
+Blitar pasti dukung Khofifah Emil satu suara menang satu suara
+Blitar bisa menangkan Khofifah Emil
+Pasti Khofifah Emil nomor dua lebih baik
+Pilihlah pemimpin yang tidak pernah meninggalkan jejak jelek ya teman-teman xemoticonx
+Blitar Raya siap kawal Khofifah Emil
+Tidak dulu kalau pilih 02, masih heran dikasih janji apa para pedagang itu
+Kira-kira janji-janji manis apa ya yang dikasih sama beliau xemoticonx
+Kok wajib sih, periode kemarin saja tidak ada buktinya masak mau dilanjut
+Bukan semua Bu saya sebagai warga sipil periode kemarin banyak yang belum terselesaikan program Bu Khofifah xemoticonx
+Cukup satu periode saja, mengerti sendiri waktu sudah menang hilang
+Warga pintar wajib observasi dan teliti, agar dapat pemimpin yang tidak hilang waktu menjabat
+Saya warga Lampung akan gunakan hak pilih saya di Surabaya, pilih ibu Khofifah, karena tidak temperamental xemoticonx
+Nomor dua pasti jadi lebih baik, harapannya pemerataan dan pembangunan jalan dan air untuk jalur barat Malang Blitar Tulungagung Trenggalek lebih diperhatikan lagi
+Lanjutkan bu, masyarakat sudah tahu kalau ada maunya xemoticonx
+Tidak bu cukup satu periode saja
+Sudah Bu cukup satu periode saja ya
+Aku warga Blitar pilih nomor tiga
+Saya warga Blitar. Tetap mendukung Bu Khofifah. Semoga sukses ya Bu xemoticonx xemoticonx
+Bunda ada saudara di Kabupaten Blitar sangat sengsara dipimpin Bu Khofifah lima tahun lalu, jangan sampai lima tahun ke depan dipimpin Bu Khofifah ya, tolong sadarlah masyarakat Blitar
+Apa yang mau dilanjutkan, program saja tidak jalan
+Waduh perasaan Abah Blitar itu tidak setuju dengan kepemimpinan Bu Khofifah, salah informasi ini jangan harap Blitar memilih Bu Khofifah
+Ini buktinya kejahatan bahwa Bu Khofifah mempergunakan kekuasaan untuk kepentingan pribadi, jangan berharap bisa memimpin Jawa Timur
+Lebih pintar lagi tidak pilih nomor dua
+Pemimpin yang tidak pro rakyat
+Siap pilih Ibunda tercinta. Lanjutkan. Nomor dua. Bu. Agama ditegakkan. Dan perselingkuhan di kantor dibasmi agar bersih
+Siap pilih nomor dua Ibunda. Khofifah amanah
+Saya dan keluarga besar saya. Anak dan menantu saya. Keluarga besar siap dukung Ibunda saya tercinta. Nomor dua dan Mas Emil yang cerdas dan pintar. Semoga amanah sukses. Lanjutkan. Kuat dukung
+Kostum untuk para pendukungnya mana?
+Mantap jiwa, lanjut
+404awokwokwokwok404 xemoticonx
+Gas penuh Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Butuh bukti nyata bukan omong kosong
+Warga Blitar kalau nomor dua koruptor berjamaah
+404njabatt404 nih masalah 404sak munu akeh ne404 aduh
+Masalahnya sudah satu periode jangan dilanjut lagi
+Mulai terjun lapangan kalau cari suara begini tidak masuk
+Mengayomi kalau ketika ada acara besar, coba kalau sudah jadi
+Pilihlah pemimpin yang tidak 404mengakak-akali404 masyarakat
+Selalu cari muka di pasar atau tidak buka acara pengajian aduh
+Jawa Timur butuh perubahan tidak stuck di sini-sini saja
+Pasti disuap berbentuk amplop
+Situbondo dukung nomor dua gubernur dan bupati nomor dua
+Masyaallah keliling terus, sehat selalu Bun xemoticonx xemoticonx xemoticonx
+Terima kasih untuk para jamaah yang selalu menjaga ketenangan dan kedamaian negeri ini dengan doa dan salawat. Semoga Allah memberikan keberkahan untuk semuanya
+Masyaallah sangat mulia sekali, berkah untuk kita semua
+Bu Khofifah pemimpin juga suka berdakwah xemoticonx xemoticonx
+Luar biasa, semoga salawat dan doa dari mereka terus membawa berkah bagi kita semua dan Jawa Timur makin damai serta sejahtera xemoticonx
+Mantap lanjutkan demi kebaikan Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Memang pemimpin panutan xemoticonx
+Alhamdulillah semoga sehat selalu dan bisa selalu menebarkan kebaikan Bu
+Pengajian rutin yang menjaga harmoni masyarakat, terima kasih untuk semuanya yang terlibat
+Teruslah menginspirasi dengan kegiatan positif seperti ini, Bu Khofifah
+Berkah untuk kita semua
+Pengajian rutin seperti ini adalah kekuatan spiritual yang luar biasa untuk menjaga keseimbangan masyarakat. Teruslah berzikir dan berdoa untuk negeri ini xemoticonx
+Masyaallah berkah selalu Bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Salut untuk mereka yang tidak pernah lelah mendoakan kebaikan negeri, panutan sekali
+Dengan bersalawat, berzikir menjaga kerukunan
+Terima kasih untuk mereka yang selalu mendoakan kebaikan negeri ini. Barakallah
+Terima kasih untuk semua yang telah menjaga negeri ini dengan doa dan salawat. Semoga Allah selalu melindungi Jawa Timur dan Indonesia xemoticonx xemoticonx
+Terima kasih untuk jamaah yang terus mendoakan keselamatan negeri ini. Semoga Jawa Timur selalu diberkahi dan dalam lindungan Allah SWT
+Berkah selalu untuk Bumi Majapahit xemoticonx
+Dengan berzikir membuat hidup kita menjadi tenang
+Aku rasa Muslimat pasti dukung Khofifah Emil
+Masyaallah selalu membawa kebahagiaan untuk ibu-ibu Jawa Timur xemoticonx xemoticonx
+Ingin disalami oleh Ibu xmentionx xemoticonx, sehat selalu Ibu xemoticonx xemoticonx
+Pengajian rutin ini adalah bukti bahwa kita semua peduli terhadap kedamaian negeri. Terima kasih untuk terus menjaga ketenangan melalui zikir dan doa xemoticonx
+Terima kasih, Bu Khofifah, atas dukungan Ibu terhadap kegiatan keagamaan di Blitar. Ini memperkuat rasa persatuan di antara kita
+Masyaallah panutan xemoticonx xemoticonx
+Sayang kamu penuh Bu
+Berkah dan barakah untuk Jawa Timur
+Semoga Provinsi Jawa Timur dipimpin Bu Khofifah Indar Parawansa dan Emil Dardak lagi. Bu Khofifah Indar Parawansa dan Emil Dardak saya sekeluarga memilih Bu Khofifah Indar Parawansa dan Emil Dardak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Lanjutkan keberkahannya Ibu
+404Nderek404 Bu Nyai xemoticonx
+Blitar 404dekengane404 pusat Bu
+Aku orang Tuban hadir Bu Khofifah
+Orang seagamis ini difitnah oleh si merah xemoticonx xemoticonx
+Mantap Ibu lanjutkan xemoticonx xemoticonx
+Syafaat Rasulullah tidak pernah ditinggalkan xemoticonx xemoticonx
+Muslimat NU hadir Bu Khofifah
+404sukdono sda404 dukung Bu Khofifah
+Berkah ya Bu
+Saya senang dengar Bu Khofifah ceramah rasanya tentram
+Bu Khofifah pasti dipilih masyarakat Blitar
+Bu Khofifah disayang umat
+Gubernur andalan xemoticonx xemoticonx
+Aku Nganjuk hadir Bu Kho
+Menyala selalu Bu Khofifah xemoticonx xemoticonx
+Berkah pagi xemoticonx
+Kegiatan yang sederhana tapi penuh makna. Teruskan tradisi baik ini, Blitar
+Semoga pengajian ini membawa keberkahan untuk kita semua. Terima kasih sudah menjaga keteduhan
+Kegiatan seperti ini yang bikin masyarakat kita tetap damai dan rukun
+Salut untuk mereka yang mendoakan negeri ini tanpa henti. Semoga selalu diberi kesehatan
+Masyarakat yang teduh karena zikir dan doa-doa yang tulus. Barakallah untuk semua
+Mereka yang menjaga keteduhan batin masyarakat patut kita apresiasi setinggi-tingginya
+Semoga pengajian di Kampung Coklat membawa berkah dan ketenangan bagi kita semua, amin
+Semoga pengajian ini jadi penyejuk hati bagi masyarakat Blitar dan sekitarnya. Amin
+Bu Khofifah, kehadiran Ibu di pengajian rutin ini menunjukkan perhatian yang besar terhadap masyarakat dan nilai-nilai keagamaan
+Kunjungan Ibu ke Kampung Cokelat memberi semangat bagi jamaah untuk terus belajar dan berkembang dalam iman
+Pengajian seperti ini yang membuat masyarakat merasa damai dan aman
+Semoga kegiatan ini terus berjalan lancar dan makin banyak yang ikut serta
+Ibu adalah teladan yang menginspirasi kami untuk terus meningkatkan kualitas pengajian dan mempererat silaturahmi
+Semoga pengajian ini memberi manfaat untuk banyak orang
+Kehadiran Ibu di sini menjadi motivasi bagi kami semua untuk lebih aktif dalam kegiatan keagamaan
+Semoga zikir dan doa mereka menjadi perisai bagi negeri ini. Terima kasih atas perhatiannya, Bu Khofifah. Amin
+Bu Khofifah, apresiasi kami atas kepedulian Ibu terhadap pengembangan pendidikan agama di kampung kami
+Kunjungan Ibu membawa energi positif yang membuat pengajian makin bersemangat dan bermakna
+Terharu melihat kekompakan warga dalam menjaga keteduhan negeri. Semoga terus diberi kesehatan dan kelancaran
+Semoga mereka selalu dalam lindungan dan kesehatan
+Ibu, semangat dan dedikasi Ibu terhadap masyarakat sangat terlihat dalam setiap langkah yang diambil
+Terima kasih, Bu Khofifah, atas perhatian Ibu kepada isu-isu keagamaan. Kami merasa didukung dan diperhatikan
+Bu Khofifah, kunjungan ini makin menguatkan hubungan antara pemerintah dan masyarakat dalam membangun karakter yang baik
+Bu Khofifah adalah teladan bagi kita semua dalam menjalankan ajaran agama dengan konsisten
+Saya sangat mengagumi dedikasi Bu Khofifah dalam memperkuat nilai-nilai agama di masyarakat
+Komitmen Bu Khofifah terhadap agama terlihat dari berbagai program yang mendukung umat
+Bu Khofifah selalu mengedepankan prinsip-prinsip keagamaan dalam setiap kebijakannya
+Kehidupan sehari-hari Bu Khofifah mencerminkan nilai-nilai spiritual yang kuat
+Bu Khofifah adalah sosok yang selalu mengajak masyarakat untuk lebih dekat dengan Tuhan
+Kepemimpinan Bu Khofifah sangat dipengaruhi oleh keyakinan agamanya yang mendalam
+Saya percaya, taat beragama Bu Khofifah membawa berkah bagi banyak orang
+Semangat Bu Khofifah dalam menjalankan ibadah patut dicontoh oleh kita semua xemoticonx
+Bu Khofifah membuktikan bahwa kepemimpinan dan iman bisa berjalan seiring
+Pengabdian Bu Khofifah tidak hanya untuk rakyat, tapi juga untuk agama
+Bu Khofifah selalu mengingatkan kita pentingnya nilai-nilai agama dalam kehidupan sehari-hari
+Saya kagum dengan bagaimana Bu Khofifah mengintegrasikan ajaran agama dalam program pemerintah
+Tindakan nyata Bu Khofifah dalam membina umat sangat menginspirasi
+Bu Khofifah menunjukkan bahwa taat agama bukan hanya ritual, tapi juga perilaku sehari-hari
+Perhatian Bu Khofifah terhadap pendidikan agama patut diacungi jempol
+Bu Khofifah selalu menempatkan nilai-nilai agama sebagai dasar dalam setiap kebijakan
+Kepedulian Bu Khofifah terhadap umat menunjukkan dedikasi spiritual yang tinggi xemoticonx
+Saya terinspirasi oleh cara Bu Khofifah mengajak masyarakat untuk lebih taat beribadah
+Bu Khofifah adalah sosok pemimpin yang menjadikan agama sebagai pedoman hidup
+Ketulusan Bu Khofifah dalam menjalankan ibadah patut dicontoh oleh semua
+Visi Bu Khofifah untuk masyarakat yang beriman sangat relevan di era sekarang
+Masyaallah, semoga keberkahan terus mengalir dari setiap doa dan salawat yang dipanjatkan. Terima kasih sudah menjaga keteduhan hati masyarakat xemoticonx
+Luar biasa, semoga pengajian rutin ini menjadi sumber keberkahan bagi Kampung Coklat dan seluruh warganya xemoticonx
+Pengajian yang penuh cahaya dan kedamaian, semoga terus istikamah menjaga negeri dengan zikir dan doa. Terima kasih semuanya xemoticonx
+xemoticonx Semoga doa-doa yang dipanjatkan membawa kedamaian dan ketentraman bagi kita semua. Luar biasa acara ini xemoticonx
+Kegiatan yang sangat mulia, terima kasih sudah menjaga tradisi yang menyejukkan hati dan jiwa. Barakallah xemoticonx
+Rasa syukur dan terima kasih kepada semua yang rutin menghadiri pengajian ini, semoga negeri kita selalu damai berkat doa-doa kalian xemoticonx
+Kampung Coklat makin teduh dan berkah dengan adanya pengajian rutin ini. Semoga selalu istikamah dalam kebaikan xemoticonx
+Semangat terus menebar kebaikan Ibu
+Lanjutkan dua periode xemoticonx xemoticonx
+Selalu menebar kebaikan
+Kegiatan salawat yang menyentuh hati
+Teruskan kegiatan yang berkah ini Ibu
+Masyaallah Ibu
+Bu Khofifah Indar Parawansa kembali menjadi Gubernur Jawa Timur
+Acara penuh berkah, semoga selalu membawa keteduhan bagi masyarakat
+Terima kasih Bu Khofifah, pengajian seperti ini sangat penting untuk menjaga kedamaian di masyarakat xemoticonx xemoticonx
+Semoga pengajian ini terus istikamah dan membawa banyak kebaikan untuk semua
+Luar biasa, semoga makin banyak yang mengikuti jejak kebaikan ini
+Kegiatan seperti ini sangat dibutuhkan untuk menjaga spiritualitas masyarakat. Salut
+Bersama-sama dalam doa dan zikir, insyaallah negeri ini selalu dalam lindungan-Nya
+Luar biasa, semoga makin banyak yang tergerak mengikuti pengajian rutin ini
+Pengajian yang membawa damai dan kebersamaan. Semoga terus berlanjut
+Masyaallah, pengajian yang sangat menyejukkan hati. Semoga Allah berkahi semuanya
+Acara yang sangat bermanfaat, semoga terus membawa kedamaian untuk masyarakat
+Lihat senyuman mereka, sangat mencerminkan ketenangan dan kebahagiaan
+Terima kasih Bu Khofifah, selalu menginspirasi dalam menjaga kesejukan negeri ini
+Pengajian seperti ini mempererat tali silaturahmi dan menjaga kedamaian
+Kegiatan yang patut dicontoh, menyatukan masyarakat dalam doa dan zikir
+Semoga acara pengajian ini selalu membawa keberkahan dan rahmat untuk semua
+Bersama-sama dalam doa untuk kedamaian negeri ini. Luar biasa
+Terima kasih telah terus memimpin dengan hati dan kebijaksanaan, Bu Khofifah
+Semoga pengajian rutin ini terus menjadi sarana untuk memperkuat iman dan persaudaraan
+Indahnya kebersamaan dan kekompakan dalam acara yang penuh berkah ini
+Semoga keteduhan dan keberkahan selalu menyertai masyarakat yang senantiasa berzikir dan berdoa demi kebaikan kita semua. Terima kasih telah menjadi penjaga spiritual negeri ini
+Luar biasa, kekuatan doa dan salawat dari masyarakat ini yang membuat negeri kita tetap damai. Semoga berkah terus mengalir untuk semua
+Masyaallah adem sekali melihatnya xemoticonx xemoticonx
+xemoticonx xemoticonx salam dua periode
+Mantap Ibu, sehat selalu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bu Khofifah, upaya Ibu dalam mempromosikan dialog antaragama sangat menginspirasi dan memperkuat persatuan di Jawa Timur
+Alhamdulillah 404saget ngerangkul seduluran404 xemoticonx xemoticonx xemoticonx xemoticonx
+Ketika 350 pendeta bersatu, kita semua yakin Khofifah-Emil adalah pemimpin yang bisa merangkul seluruh elemen. Kita siap memenangkan mereka untuk Jawa Timur yang lebih sejahtera xemoticonx xemoticonx
+Menggetarkan hati sekali 350 pendeta dari seluruh Jawa Timur bersatu untuk mendukung Khofifah-Emil. Ini adalah bukti nyata bahwa mereka dipercaya untuk merawat kesejahteraan dan persatuan seluruh rakyat xemoticonx xemoticonx
+Bu Khofifah, keberanian Ibu dalam menyuarakan toleransi antaragama membuat Jawa Timur menjadi contoh bagi persatuan bangsa
+Melihat keberagaman masyarakat Jawa Timur mendukung Khofifah-Emil adalah bukti nyata bahwa mereka dipercaya menjaga harmoni dan persaudaraan. Kemenangan sudah di depan mata xemoticonx xemoticonx
+Ratusan pendeta telah menyuarakan dukungan dengan penuh keyakinan. Bersama Khofifah-Emil, kita melangkah menuju masa depan Jawa Timur yang lebih adil dan makmur xemoticonx xemoticonx
+Terima kasih, Bu Khofifah, atas komitmen Ibu dalam menciptakan harmoni antarberagama. Ini menjadi teladan bagi daerah lain
+Kehadiran ratusan pendeta untuk mendukung dan berkomitmen merawat persaudaraan sejati sangat mengharukan. Khofifah-Emil pasti akan membawa kesejahteraan bagi semua xemoticonx xemoticonx xemoticonx
+Begini dong pemimpin
+Semoga dukungan ini menjadi kekuatan positif untuk pembangunan Jawa Timur
+Luar biasa! Dukungan ratusan pendeta adalah bukti nyata bahwa Bu Khofifah dan Mas Emil mampu merangkul semua kalangan. Semoga kemenangan berpihak pada kalian!
+Semua kalangan masyarakat turut memperjuangkan kebaikan bersama
+Dukungan ini membawa kebaikan dan kemajuan untuk Jawa Timur
+Semoga Bu Khofifah selalu diberkahi
+Dari umat beragama lain pun dukung Bu Khofifah xemoticonx xemoticonx
+Bu Khofifah terus merawat kebersamaan dan kesejahteraan masyarakat
+Toleransinya tidak main-main xemoticonx
+Dukungan luar biasa dari pendeta se-Jawa Timur ini mengukuhkan bahwa Khofifah-Emil adalah simbol pemimpin yang dirindukan. Kita semua bergerak bersama untuk kemenangan yang lebih besar xemoticonx xemoticonx
+Gerakan Bersama Membuat Selisih Kemenangan adalah langkah konkret untuk menyongsong masa depan yang lebih baik bersama Khofifah-Emil. Bersatu kita kuat xemoticonx xemoticonx
+Semangat toleransi Bu Khofifah membuat Jawa Timur menjadi contoh bagi daerah lain xemoticonx xemoticonx Dengan keberanian dan kebijaksanaannya, Bu Khofifah mengajak semua pihak untuk hidup rukun
+Bu Khofifah tokoh ideal gubernur Jawa Timur
+Bu Khofifah selalu menjadi teladan dalam menciptakan harmoni antar umat beragama di Jawa Timur
+Kepemimpinan Bu Khofifah dalam hal toleransi menjadi inspirasi bagi kita semua untuk saling menghargai
+Salam toleransi
+Semoga dukungan ini tetap berlanjut
+Pendidikan tentang toleransi yang diusung Bu Khofifah sangat penting untuk generasi mendatang
+Dukungan berbagai pihak, Jawa Timur akan makin maju
+Saya yakin Bu Khofifah Indar Parawansa dan Emil Dardak melanjutkan dua periode pemerintahan di Jawa Timur. Ini Khofifah Indar Parawansa dan Emil Dardak terbaik, benar-benar xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Dukungan Bu Khofifah terhadap kerukunan umat beragama mengajak kita semua untuk bersatu
+Kita dukung bersama untuk nomor dua xemoticonx xemoticonx
+Bu Khofifah didukung semua kalangan Jawa Timur
+Alhamdulillah, dukungan yang luar biasa dari para pendeta ini makin menguatkan langkah Bu Khofifah dan Mas Emil menuju kemenangan. Lanjutkan merawat persaudaraan sejati!
+Bukti nyata persatuan dalam keberagaman
+Bu Khofifah sangat menyambut keberagaman di Jawa Timur xemoticonx
+Dukungan dari berbagai kalangan
+Dukungan berbagai pihak membuktikan persatuan yang kuat
+Kerukunan dan kebersamaan demi kebaikan bersama
+Semoga persaudaraan ini terus terjaga dan membawa kesejahteraan
+Indahnya toleransi xemoticonx
+Keren sekali Bu xemoticonx
+404Mashok tenan ikii404 pemimpinku
+Ya ini gubernurku
+Semoga segala usaha mereka diberkahi dan mendapatkan hasil terbaik
+Luar biasa! Dukungan dari ratusan pendeta ini menunjukkan bahwa semangat persaudaraan lintas agama benar-benar hidup di Jawa Timur. Khofifah-Emil membawa harapan besar bagi kita semua xemoticonx xemoticonx
+Dukungan tulus dari para pendeta di seluruh Jawa Timur menjadi bukti bahwa Khofifah-Emil diterima di semua lapisan masyarakat. Mari kita lanjutkan persatuan ini untuk kemenangan bersama xemoticonx xemoticonx
+Wah, keren Bu! Blusukan langsung ke pasar, memang luar biasa dedikasinya xemoticonx
+Luar biasa, semangat dan dedikasi pedagang di Pasar Templek benar-benar menginspirasi! Semoga usaha mereka selalu diberkahi dan makin sukses. Amin.
+Salut untuk Bu Khofifah yang blusukan langsung ke pasar. Pemimpin yang peduli! xemoticonx
+Blusukan seperti ini bikin pemimpin tahu langsung masalah rakyat. Keren
+Blusukan seperti ini benar-benar menghangatkan hati. Terima kasih telah mengapresiasi perjuangan pedagang kecil, semoga mereka selalu diberkahi rezeki yang melimpah.
+Salut dengan blusukannya, Bu Khofifah! Pas sekali untuk menyerap aspirasi rakyat
+Melihat kerja keras pedagang di Pasar Templek, hati ini tersentuh. Semoga segala jerih payah mereka dibalas dengan keberkahan.
+Semoga Allah selalu melimpahkan kesehatan dan rezeki yang berlimpah bagi para pedagang yang bekerja keras di Pasar Templek ini. Luar biasa inspiratif!
+Salut untuk para pedagang yang tanpa lelah berjuang dari subuh. Semoga usaha mereka selalu diberkahi dan dipermudah segala urusan.
+Luar biasa Bu Khofifah, semangat terus untuk para pedagang!
+Benar-benar sangat dekat dengan masyarakat
+Semangat para pedagang di Pasar Templek patut diacungi jempol. Doa terbaik untuk kesehatan dan kelancaran rezeki mereka.
+Momen berharga saat Bu Khofifah blusukan ke Pasar Templek. Rakyat merasa didengar
+Tidak ada yang bisa menggantikan semangat para pedagang yang begitu tulus. Semoga usaha mereka senantiasa diberkahi.
+Mantap, semoga pedagangnya selalu diberi kesehatan dan rezeki lancar! xemoticonx
+Menyebar janji tapi tidak ada aksi, belum lagi program yang tidak efektif
+Mendengarkan aspirasi rakyat xemoticonx cari muka ke rakyat xemoticonx
+Antusias masyarakat Blitar terlihat dari mimik mukanya xemoticonx xemoticonx xemoticonx
+Semangat para pedagang
+Sound horeg kapan ditertibkan Bu?
+Bu Khofifah tokoh yang suka turun langsung ke masyarakat
+Selalu dekat dengan rakyat! Bu Khofifah, terima kasih telah menyapa pedagang di Pasar Templek
+Aksi nyata Bu Khofifah di pasar menunjukkan komitmen untuk memberdayakan UMKM
+Demi suara sampai main ke pasar
+Blitar pasti dukung penuh Khofifah Emil
+Blusukan xemoticonx cuman sesaat hadeh cari apa Bu
+Kalau ada butuhnya baru ingat rakyat kecil
+Ada maunya
+Jangan sampai nomor dua lagi yang terpilih
+Itu lo mbak ya sound horeg ditertibkan kalau perlu larang saja. Selain bikin kuping budek, juga mencoreng nama baik Jawa Timur.
+Ke pasar karena kampanye saja
+Lagi dan lagi ibu Khofifah menyapa rakyat kecil
+Aksi nyata seperti ini yang bikin Bu Khofifah makin dicintai rakyat kecil
+Semoga sukses kampanyenya, Bu! Tetap rendah hati dan dekat dengan rakyat
+Kehadiran di tengah-tengah pedagang seperti ini mengingatkan kita akan betapa pentingnya kerja keras dan pengabdian. Semoga semuanya selalu diberi kesehatan dan keberkahan.
+Anda selalu peduli dengan orang kecil, Bu. Tetap semangat memperjuangkan rakyat kecil xemoticonx
+Terima kasih Bu Khofifah, sudah turun langsung mendukung para pedagang kecil yang penuh dedikasi xemoticonx xemoticonx xemoticonx
+Senyum lebar para pedagang pasar Templek
+Semangat pedagang Pasar Templek memang luar biasa, semoga rezeki mereka makin lancar xemoticonx xemoticonx xemoticonx
+Pemimpin yang merakyat dan selalu menyemangati rakyatnya! Terima kasih, Bu Khofifah!
+Terima kasih, Bu, atas kunjungan dan perhatian Ibu pada kerja keras pedagang. Semoga rezeki selalu mengalir xemoticonx xemoticonx
+Semangat para pedagang pasar Templek
+Pemimpin yang merakyat dan selalu menyemangati rakyatnya!
+Terima kasih, Bu, sudah memperhatikan pedagang kecil di Blitar. Semoga mereka selalu diberi kesehatan dan kelancaran rezeki!
+Kerja keras tiada lelah serta bukti kepedulian terhadap rakyatnya
+Semangat terus, Bu Khofifah! Kehadiran Anda pasti membawa berkah untuk para pedagang
+Semoga makin banyak pemimpin yang mau blusukan ke pasar seperti ini.
+Blusukan seperti ini yang bikin Bu Khofifah dekat dengan rakyat kecil. Teruskan perjuangan!
+Salut untuk Bu Khofifah yang tidak segan turun ke lapangan langsung menyapa para pedagang
+Blusukan pagi-pagi begini jadi bukti nyata Bu Khofifah memang sosok pemimpin yang selalu turun langsung
+Bu Khofifah memang selalu dekat dengan rakyat, terutama mereka yang bekerja keras seperti pedagang pasar
+Sungguh mengharukan melihat bagaimana para pedagang bekerja keras demi keluarganya. Semoga setiap langkah mereka selalu diberi kelancaran.
+Saat banyak yang terlelap, para pedagang ini sudah bekerja keras! Semoga semangat mereka terus terjaga dan rezeki selalu lancar.
+Pasar Templek pasti senang sekali kedatangan Bu Khofifah!
+Foto-fotonya keren, semoga kampanyenya lancar ya Bu Khofifah! xemoticonx
+Semangat terus untuk para pedagang! Luar biasa perjuangannya!
+Pasarnya bersih dan ramai, semoga pedagangnya makin maju!
+Mantap, dekat dengan masyarakat xemoticonx
+Semoga pedagang Pasar Templek makin sukses!
+Waktu kampanye begini saja baru turun ke pasar nanti kalau sudah jadi masa mau Anda datang ke situ lagi Bu xemoticonx
+Kalau belum jadi peduli dengan rakyat kecil tapi kalau sudah jadi ya pasti lupa dengan rakyat xemoticonx kecilnya yang di bawah xemoticonx
+Periode kemarin kok tidak seperti ini Bu, oh iya sih mau lanjut dua periode makanya tergesa-gesa kampanye ke rakyat kecil xemoticonx
+Selamat pagi Bu, mohon maaf mengganggu waktunya. Saya warga Banyuwangi Selatan dan kebetulan jalan raya depan rumah saya termasuk dalam jalan provinsi, dimulai dari jalan Hutan Karetan di Kecamatan Purwoharjo sampai batas akhir di Kampung 9 Desa Kedungwungu Kecamatan Tegaldlimo xemoticonx tepat batas akhir xemoticonx ujung jalan di depan rumah saya xemoticonx jalan menuju Taman Nasional Alas Purwo. Mohon maaf Bu jalannya sangat bergelombang sekali, hal ini sudah terjadi sangat lama namun hanya dilakukan penambalan yang mengakibatkan makin bergelombang, dan apabila kami bersimpangan mobil dengan mobil xemoticonx truk itu sangat mepet sekali Bu, tidak jarang kami harus turun dari aspal sedangkan jarak tanah dengan ketinggian aspal sudah sangat dalam, hal tersebut sering menyebabkan kecelakaan. Jika Ibu berkenan tolong hal ini dijadikan bahan diskusi yang serius untuk Ibu beserta jajarannya, kami warga Tegaldlimo khususnya sangat menanti akan perbaikan jalan tersebut, Bu. Semoga Ibu dan rekan-rekan selalu diberikan kesehatan. Terima kasih
+Satu periode saja, sudah Bu tidak usah dua periode tidak cocok
+Hanya satu program yang belum terfikirkan yaitu xemoticonx kesejahteraan karyawan xemoticonx karyawati PTT di tiap kantor kecamatan dan instansi yang lain baik guru, maupun kesehatan, sebab PTT pegawai tidak tetap non PNS gaji bulanannya tidak sesuai UMK Kabupaten Probolinggo, PTT dan honor daerah itu beda. Jika honor daerah gajinya Rp2.400.000, sedangkan PTT gajinya Rp1.100.000, bahkan ada yang gajinya di bawah Rp1.000.000, tidak cukup untuk keperluan keluarga baik itu beli susu dan pampers anaknya. Kedua xemoticonx mengapa tiap THR dan gaji 13 PTT tidak dapat dan dicabut, padahal dulu sempat dapat THR dan gaji 13 yang diambil dari dana APBD. Sedangkan kabupaten xemoticonx kota lain menyediakan THR dan gaji 13 tiap tahunnya sesuai gaji pokok diambil dari dana APBD kabupaten xemoticonx kota. Menjadi tanda tanya?
+404ijo ngguyu a lek, wong iki kerjone opo lek404 xemoticonx
+Sudah Buk, aku tim bersih xemoticonx Jawa Timur sekarang xemoticonx
+Maaf saudara, aku pilih yang lain. Tri Rismaharini lebih nyata kinerjanya. Jadi wali kota, berani mengubah gang dolly jadi pemukiman pada umumnya. Jadi Mensos mau turun ke bawah mendengar keluhan rakyat kecil. Yang ini lima tahun menjabat, belum mendengar apa yang dikerjakannya. Maaf aku beda pilihan. Bisa kan?
+404nginiki nek wes dadi jelas lali404
+Warga Blitar sudah tahu pemimpin yang berkualitas
+Kehadiran Bu Khofifah di Pasar Templek membawa semangat baru bagi para pedagang
+Sangat mengagumkan melihat Bu Khofifah turun langsung dan mendengarkan aspirasi pedagang
+Blusukan Bu Khofifah menunjukkan kepedulian yang nyata terhadap perekonomian lokal
+Aksi blusukan Bu Khofifah menjadi contoh pemimpin yang peduli dan mengerti kebutuhan rakyat
+Semoga kehadiran Bu Khofifah di Pasar Templek bisa memberikan motivasi bagi para pedagang
+Bu Khofifah, sosok pemimpin yang tidak hanya bicara tapi juga turun ke lapangan
+Melihat Bu Khofifah blusukan bikin kita yakin bahwa Jawa Timur akan terus berkembang
+Kunjungan Bu Khofifah ke pasar menunjukkan betapa pentingnya sektor UMKM bagi perekonomian
+Rasa dekat yang ditunjukkan Bu Khofifah kepada pedagang patut dicontoh oleh pemimpin lain
+Semoga blusukan ini jadi momentum untuk memajukan pasar tradisional di Jawa Timur
+Bu Khofifah, terima kasih telah mendengarkan langsung cerita dan harapan para pedagang.
+Kehadiran Bu Khofifah di pasar menunjukkan bahwa pemerintah peduli pada kesejahteraan rakyat
+Blusukan ini membuktikan bahwa Bu Khofifah selalu siap mendukung perekonomian lokal.
+Terharu melihat Bu Khofifah berinteraksi langsung dengan para pedagang di Pasar Templek.
+Bu Khofifah, pemimpin yang memahami bahwa pasar adalah denyut nadi perekonomian
+Semoga dengan blusukan ini, banyak kebijakan yang berpihak pada pedagang kecil
+Bu Khofifah, teruskan blusukan ini agar suara pedagang makin didengar
+Blitar dukung penuh Khofifah Emil xemoticonx xemoticonx
+Dukung penuh nomor dua
+Salah fokus xemoticonx semangka xemoticonx xemoticonx
+Semangat dua periode Bu Khofifah
+Gas penuh dua periode xemoticonx xemoticonx
+Kelas Bu Khofifah xemoticonx xemoticonx
+Anak Blitar pilih Khofifah Emil xemoticonx xemoticonx
+Begini ini kalau sudah jadi jelas lupa wkwkw
+Dukung penuh dua periode
+Bagaimana Jawa Timur mau maju dan bersih, orang dengan anggaran saja tidak transparan
+Halah validasi saja pokoknya, tidak ada perubahan sama sekali kok mau dua periode
+Kampanye saja, cari nama, nanti kalau sudah jadi lupa
+Waduh bahaya banyak anggaran bakal tidak transparan kalau dengan Khofifah xemoticonx
+Selalu bersama rakyat kecil jaya terus Ibu Khofifah xemoticonx
+Sudah satu periode saja, sudah ada buktinya kan jadi ya sudah mending ganti saja
+Pakai segala blusukan, paling cuman cari dukungan, selebihnya bukan dari hati xemoticonx
+Paling itu rakyat kecil nanti juga dilupain, cuman datang kalau ada maunya
+Bu Khofifah dipilih rakyat Blitar
+Blitar pasti Khofifah Emil menang telak
+Kemarin ke mana saja Bu kok baru sekarang turun
+Blusukan kok kalau mau pemilihan kepala daerah kemarin-kemarin ke mana saja bos
+Blusukan kok kalau dekat pemilihan kepala daerah cari suara ya bos
+Apaan sih caper tidak asyik
+Blitar optimis bisa menangkan Ibu Khofifah
+Blitar pasti dukung Khofifah Emil
+Blusukan apa blusukan itu Bu, kok sudah ada yang pakai baju kampanye
+Blusukan yang sudah direncanakan ya Bu, kok sudah ada yang pakai baju kampanye
+Blitar plat AG dan sekitarnya optimis menang Khofifah Emil
+Blitar Raya sudah jelas dukung Anda Bu Khofifah
+Kunjungan Bu Khofifah ke Pasar Templek sangat menginspirasi! Semoga bisa makin mendorong ekonomi lokal
+Terima kasih Bu Khofifah telah memperhatikan para pedagang kecil di Pasar Templek. Ini menunjukkan kepedulian yang luar biasa.
+Kehadiran Bu Khofifah di sini membawa semangat baru bagi para pedagang. Semoga pasar ini makin berkembang!
+Kami sangat senang melihat Bu Khofifah mendukung produk lokal. Ini langkah positif untuk meningkatkan kesejahteraan masyarakat.
+Kunjungan Bu Khofifah ke Pasar Templek menunjukkan komitmen terhadap pembangunan ekonomi daerah. Kami mendukung penuh!
+Bu Khofifah, terima kasih atas perhatian dan dukungan Anda terhadap para pelaku usaha kecil di Blitar. Kami merasa diperhatikan
+Semoga kunjungan Bu Khofifah menjadi awal dari berbagai program yang bermanfaat untuk pengembangan pasar tradisional
+Kegiatan seperti ini sangat penting untuk mendengarkan langsung aspirasi para pedagang. Terima kasih Bu Khofifah!
+Sangat bangga memiliki pemimpin seperti Bu Khofifah yang peduli dengan perekonomian lokal. Mari kita dukung bersama!
+Kunjungan Bu Khofifah ke Pasar Templek adalah bukti bahwa pemerintahan yang baik harus dekat dengan masyarakat. Semoga terus berlanjut
+Mantap sekali ini kali xemoticonx xemoticonx
+Dua makin di depan xemoticonx
+Bismillah menang xemoticonx xemoticonx xemoticonx xemoticonx
+Rakyat suka yang seperti ini xemoticonx
+Menyala Blitar xemoticonx
+Saya sekeluarga dukung 02
+Lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Luar biasa cara cari simpatinya xemoticonx coba kalau sudah terpilih bagaimana tuh
+Turun ke rakyat kecil kalau ada maunya xemoticonx
+Blusukan hanya berlaku saat kampanye ya teman-teman ya wkwkw
+Wkwkwkkwkw kemarin ke mana saja sekarang ke masyarakat
+Waktunya begini saja turun masyarakat Bu Bu, kemarin
+Wahai calon pejabat, ketika engkau mencalonkan diri dari sikap, perilaku ke rakyat sangat terpuji, tapi jangan lupa dengan janji yang kau buat jika engkau menjadi apa yang kau harapkan!
+Blusukan untuk kampanye saja jangan terpancing ya dengan berita seperti ini, Jawa Timur makin buruk dipimpin Bu Khofifah
+Pasar makin macet jika ada pemimpin yang blusukan seperti ini, banyak hal negatif ketika Bu Khofifah datang seperti ini, jangan kampanye Bu istirahat saja mengurus anak
+Bunda tidak suka dengan Bu Khofifah, blusukan karena ada maksud coba Bu Khofifah menjadi pedagang jangan menjadi pemimpin, rasakan menjadi pedagang ketika ada pemimpin seperti Bu Khofifah blusukan pasti rugi karena Bu Khofifah merugikan pedagang
+404main e sangat aluss mbujuki nak wong wong golek rai404 xemoticonx 404golek suoro404
+404komenan e akeh seng mendem wong jelas jelas wong e mudun mel golek rai404
+Cari muka terus!
+404progam golek raine mulai bermunculann404 xemoticonx
+404eaa mulaiii progam golek suara ne di get noo blusukane404
+404eaaa mulai golekk raii nichhh404
+Masa-masa kampanye, coba kalau sudah jadi tidak tahu deh ke mana
+Blusukan, ke pasar, pengajian hanya akan terjadi waktu kampanye saja
+Aspirasinya jangan cuma didengarkan Bu, diimplementasikan juga
+Hal seperti ini seharusnya tidak dilakukan saat menjelang pemilihan kepala daerah
+Di tengah sawah padi bersemi, membangun Jawa dengan sepenuh hati. Bu Khofifah, pemimpin berani, wujudkan harapan, sejahtera nanti
+Selamat Ibu xmentionx xemoticonx xemoticonx xemoticonx jadi teringat saat Anda ke kota kami xemoticonx
+Selamat hari jadi Jawa Timur dan Magetan kota tercinta xemoticonx semoga makin maju xemoticonx xemoticonx
+Terima kasih Bu Khofifah atas dedikasi dan kerja kerasnya dalam memajukan Jawa Timur. Selamat HUT ke-79, semoga Jawa Timur makin jaya di bawah kepemimpinan Ibu!
+Selamat untuk Jawa Timur lebih baik xemoticonx
+Dirgahayu Jawa Timur! Terima kasih Bu Khofifah atas kepemimpinan yang selalu mengedepankan rakyat. Semoga Jawa Timur terus berkembang dan menjadi provinsi terbaik!
+Jawa Timur berprestasi xemoticonx selamat hari jadi Jawa Timur xemoticonx
+JAWA TIMUR MAJU BERPRESTASI xemoticonx xemoticonx xemoticonx
+Tujuh puluh sembilan tahun perjalanan yang luar biasa! Jawa Timur keren sekali
+Dirgahayu Jawa Timur ke-79! Terima kasih Bu Khofifah atas pengabdian dan cinta Ibu pada masyarakat Jawa Timur. Semoga makin makmur dan berprestasi di masa depan.
+Selamat HUT JAWA TIMUR, semoga Bu Khofifah kembali menjadi pemimpin Jawa Timur lagi xemoticonx xemoticonx xemoticonx xemoticonx
+Jawa Timur makin berprestasi bareng Bu Khofifah xemoticonx
+Terima kasih Bu Khofifah atas semangat dan upaya untuk memajukan Jawa Timur. Selamat ulang tahun ke-79, mari terus melangkah bersama untuk kesejahteraan rakyat.
+Barakallah Jawa Timur xemoticonx
+HUT Jawa Timur semoga selalu diberkahi Tuhan xemoticonx
+Selamat hari jadi Jawa Timur ke-79
+Dengan gotong royong, kita ciptakan Jawa Timur yang membawa berkah dan manfaat bagi seluruh rakyatnya. Selamat ulang tahun Jawa Timur
+Dirgahayu Jawa Timur yang ke-79 semoga makin maju sukses dan sejahtera. Bu Khofifah terima kasih
+Selamat ulang tahun Jawa Timur, lebih maju sejahtera
+Terima kasih Bu Khofifah atas dedikasinya bagi Jawa Timur. Selamat HUT ke-79, semoga semangat persatuan dan gotong royong membawa provinsi kita makin sejahtera!
+Terima kasih Bu Khofifah, di bawah kepemimpinan Ibu, Jawa Timur terus melangkah maju. Selamat ulang tahun Jawa Timur ke-79, semoga makin berprestasi dan sejahtera.
+BRAVO BU KHOFIFAH xemoticonx xemoticonx xemoticonx
+Selamat HUT ke-79 Jawa Timur! Terima kasih Bu Khofifah yang selalu hadir dan peduli dengan nasib masyarakat. Doa terbaik untuk Ibu dan kemajuan Jawa Timur ke depannya.
+Selamat ulang tahun tanah kelahiran saya
+Semangat gotong royong yang tidak pernah pudar, itulah kekuatan Jawa Timur. Bersatu kita bisa
+Dirgahayu ke-79 Jawa Timur! Perjalanan panjang yang penuh kerja keras dan dedikasi ini patut kita rayakan bersama. Maju terus
+Semoga Jawa Timur makin inovatif dan memberikan manfaat besar bagi Indonesia. Dirgahayu, Jawa Timur!
+Ucapan Bu Khofifah penuh semangat! Mari bersama-sama membangun Jawa Timur yang lebih baik
+Keren logonya xemoticonx sekilas tampak angka tiga xemoticonx tiga xemoticonx xemoticonx top tiga xemoticonx tiga xemoticonx xemoticonx
+Selamat ulang tahun Jawa Timur ke-79! Terima kasih Bu Khofifah atas kepemimpinan yang penuh inspirasi dan selalu berpihak pada rakyat. Semoga Jawa Timur terus maju!
+Jawa Timur bisa maju lagi dengan Bu Khofifah
+Bismillah Jawa Timur makin maju xemoticonx xemoticonx xemoticonx
+Dirgahayu Jawa Timur yang ke-79, semoga selalu damai dan maju
+Dirgahayu Jawa Timur saya, terima kasih Bu Khofifah yang sudah menyumbangkan prestasi bagi Jawa Timur xemoticonx xemoticonx
+Dirgahayu Jawa Timur saya, semoga makin maju
+Jawa Timur maju bersama Khofifah Emil
+Saya sekeluarga memilih Bu Khofifah Indar Parawansa dan Emil Dardak. Saya dari Desa Cangking Kecamatan Plumpang Kabupaten Tuban Jawa Timur. xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Hidup Jawa Timur! Bersama kita wujudkan mimpi untuk provinsi yang lebih maju dan sejahtera
+Jawa Timur menuju satu abad makin maju
+Mimpi besar untuk Jawa Timur yang lebih maju, lebih inovatif, dan lebih sejahtera. Kita pasti bisa!
+Bu Khofifah, terima kasih atas semua usaha dan kerja keras yang telah Ibu lakukan untuk Jawa Timur. Kami bangga dan terus mendukung Ibu untuk membawa Jawa Timur lebih maju.
+Dana hibah banyak yang dikorupsi, tolong diberantas
+Barakallah Jawa Timur makmur
+Selamat untuk Provinsi Jawa Timur lebih baik
+Lanjut
+Maju terus Jawa Timur saya xemoticonx xemoticonx
+Terima kasih Bu Khofifah atas kerja kerasnya xemoticonx xemoticonx
+Gas penuh Jawa Timur saya
+Jawa Timur maju berprestasi xemoticonx xemoticonx
+Semangat terus membangun Jawa Timur xemoticonx xemoticonx
+Jawa Timur 404wayaeh404 dilanjut 404maneh404 xemoticonx
+Cinta kamu Jawa Timur saya
+Gas penuh terus xemoticonx xemoticonx
+Sukses Jawa Timur, terima kasih Iwapi Jawa Timur xmentionx mendapat penghargaan
+Selamat ulang tahun Jawa Timur, semoga makin guyub rukun xemoticonx xemoticonx xemoticonx xemoticonx
+Terima kasih atas perjuanganmu Bu, semoga tetap jadi gubernur Jawa Timur xemoticonx xemoticonx xemoticonx
+Selamat hari jadi Jawa Timur! Semoga makin maju dan membawa kesejahteraan bagi semua rakyatnya. Bangga jadi bagian dari Jawa Timur!
+Terus bergerak maju, Jawa Timur! 79 tahun bukan hanya angka, tetapi cerminan dari dedikasi dan perjuangan. Bangga!
+Semoga ke depannya Jawa Timur bisa menjadi lebih bersinar xemoticonx xemoticonx
+Jawa Timur bersatu untuk masa depan yang cerah! Kami bangga akan setiap langkah yang telah diambil
+Perjalanan panjang ini adalah bukti betapa kuatnya persatuan kita. Selamat ulang tahun, Jawa Timur! xemoticonx
+Sayang Jawa Timur saya, semoga makin maju dan sejahtera. Dan untuk Bu Khofifah terima kasih sudah mengabdi untuk Jawa Timur. 404Wayah e404 lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx
+Selamat hari ulang tahun Jawa Timur lebih maju lebih baik ke depannya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xmentionx
+Selamat ulang tahun Jawa Timur saya
+Selamat hari ulang tahun Jawa Timur
+Selamat ulang tahun Jawa Timur saya
+Bangga jadi warga Jawa Timur xemoticonx xemoticonx xemoticonx
+Selamat ulang tahun untuk Jawa Timur! Semoga makin maju dan sejahtera! xemoticonx
+Semangat gotong royong memang selalu jadi ciri khas kita. Jawa Timur pasti makin hebat!
+Semoga mimpi Jawa Timur sebagai provinsi inovatif segera terwujud
+Berkah untuk Jawa Timur dan Indonesia! Semangat terus untuk kemajuan bangsa
+Jawa Timur sudah jadi provinsi yang selalu inovatif. Salut untuk rakyat dan pemimpinnya!
+Bersatu dalam perbedaan, itulah kekuatan Jawa Timur!
+Insyaallah dengan persatuan, kita bisa wujudkan Jawa Timur yang lebih hebat!
+Dari dulu sampai sekarang, Jawa Timur selalu jadi contoh untuk provinsi lain!
+Saya Anugerah, Pimpinan Besar Armada Allah, siap mendukung xemoticonx memperjuangkan agar Ibu Khofifah menjadi gubernur Jawa Timur lagi. Selamat berjuang Bu. Allah bersama kita.
+Bu, anak saya juga ulang tahun lo hari ini
+Alhamdulillah di usia ke-79 Jawa Timur maju berprestasi
+Selamat ulang tahun Jawa Timur, semoga lebih maju dan sejahtera xemoticonx xemoticonx
+Semoga Jawa Timur makin sukses di bawah arahan Bu Khofifah xemoticonx
+Jawa Timur makin hebat berkat kepemimpinan Bu Khofifah. Selamat ulang tahun, Jawa Timur xemoticonx xemoticonx
+Terima kasih Bu Khofifah, semoga Jawa Timur terus berjaya di bawah kepemimpinan Ibu xemoticonx xemoticonx
+Ulang tahun yang spesial untuk Jawa Timur, dan Bu Khofifah adalah sosok yang menginspirasi di balik kemajuannya
+Naik
+Semangat terus Ibu
+Dirgahayu provinsi tercinta
+Terus maju dan sejahtera untuk Jawa Timur, dan semoga bisa dipimpin lagi oleh Bu Khofifah
+Selamat hari ulang tahun Jawa Timur xemoticonx xemoticonx xemoticonx
+Maju bangkit Jawa Timur saya
+Jawa Timur makin cerah dan maju
+Selamat ulang tahun, Provinsi Jawa Timur! Semoga di bawah kepemimpinan Bu Khofifah, Jawa Timur makin maju
+Dirgahayu Jawa Timur! Terima kasih Bu Khofifah atas dedikasinya untuk rakyat
+Sangat menginspirasi! Bu Khofifah selalu menunjukkan cinta dan perhatian kepada Jawa Timur
+Ucapan yang sangat menyentuh dari Bu Khofifah. Semoga Jawa Timur terus bersinergi dalam kebangkitan
+Selamat untuk Provinsi Jawa Timur! Semoga visi Bu Khofifah dapat terwujud
+Bu Khofifah, pemimpin yang luar biasa! Mari kita rayakan hari jadi Jawa Timur dengan semangat baru
+Jawa Timur ke-79! Terima kasih Bu Khofifah sudah menjadi pendorong perubahan
+Bu Khofifah, ucapanmu mengingatkan kita akan pentingnya bersatu untuk Jawa Timur
+Semangat Jawa Timur ke-79! Bu Khofifah, teruskan inovasi dan kolaborasi
+Kita patut bangga punya pemimpin seperti Bu Khofifah. Selamat ulang tahun Jawa Timur!
+Semoga harapan Bu Khofifah untuk Jawa Timur makin terwujud di usia yang ke-79 ini
+Selamat untuk Provinsi Jawa Timur! Terima kasih Bu Khofifah atas semua kerja kerasnya
+Inspirasi dari Bu Khofifah membuat kita makin yakin akan masa depan Jawa Timur
+Jawa Timur hebat di tangan Bu Khofifah! Selamat ulang tahun, semoga sukses selalu
+Momen spesial untuk Jawa Timur! Terima kasih Bu Khofifah atas perhatianmu
+Dirgahayu Jawa Timur! Semoga kepemimpinan Bu Khofifah membawa banyak kemajuan
+Ucapan Bu Khofifah membawa harapan baru bagi masyarakat Jawa Timur
+Selamat ulang tahun Provinsi Jawa Timur! Bu Khofifah, terus berkarya untuk rakyat
+Bu Khofifah, semangatmu menggerakkan kita semua untuk mencintai dan membangun Jawa Timur
+Jawa Timur maju berprestasi
+Semoga Jawa Timur makin berkah
+Selamat ulang tahun Jawa Timur. Tahun depan gubernur baru, semangat baru, prestasi baru xemoticonx xemoticonx
+Dirgahayu provinsi terbaik di Indonesia xemoticonx
+Semoga Jawa Timur lebih baik produktif
+Jawa Timur saya pasti lebih baik
+Makin baik kalau dipimpin Khofifah Emil
+Jawa Timur lebih maju, amin
+Sehat dan sukses selalu Ibu xmentionx untuk senantiasa mensejahterakan masyarakatnya
+Lanjutkan anda pimpin lagi Bu xemoticonx
+Jawa Timur makin maju apalagi dipimpin Khofifah
+Di usia ini Jawa Timur menuju kejayaannya
+Selamat ulang tahun yang ke-79, Jawa Timur! Semoga makin maju dan sejahtera bagi seluruh masyarakatnya. Terima kasih, Bu Khofifah, atas dedikasi Ibu yang luar biasa selama memimpin Jawa Timur. Kami sangat menghargainya
+Di hari jadi yang ke-79 ini, mari kita terus bersatu dan berinovasi demi kemajuan Jawa Timur. Dan kami berterima kasih atas komitmen Ibu dalam memajukan pendidikan dan kesehatan di Jawa Timur. Dedikasi Ibu sangat berarti bagi kami
+Selamat hari jadi, Jawa Timur! Semoga keindahan budaya dan kekayaan alamnya makin dikenal di seluruh Nusantara. Dan juga untuk Bu Khofifah, terima kasih telah menjadi pemimpin yang menginspirasi dan mendengarkan aspirasi masyarakat
+Merayakan 79 tahun Jawa Timur, mari kita tingkatkan semangat gotong royong untuk membangun daerah yang kita cintai. Juga aku mau bilang atas semua usaha dan kebijakan yang Ibu luncurkan, kami sangat berterima kasih. Semoga semua kebaikan terus berlanjut
+Terima kasih, Bu Khofifah, atas kepemimpinan yang penuh kasih dan perhatian terhadap rakyat. Ibu telah membuat perbedaan yang nyata. Dirgahayu Jawa Timur saya xemoticonx
+Di momen spesial ini, kita rayakan perjalanan 79 tahun Jawa Timur menuju kemajuan. Selamat ulang tahun Jawa Timur saya xemoticonx xemoticonx
+Selamat hari jadi ke-79, Jawa Timur! Semoga setiap langkah kita membawa berkah dan kemakmuran bagi semua
+Dalam usia yang ke-79, semoga Jawa Timur terus menjadi rumah bagi keberagaman dan inovasi
+Selamat untuk Jawa Timur yang ke-79! Mari kita jaga dan lestarikan kekayaan budaya dan alamnya
+Di hari jadi yang ke-79 ini, kita doakan agar Jawa Timur selalu menjadi yang terdepan dalam pembangunan dan kesejahteraan
+Maju dan menang
+Sukses untuk dua periode Ibu xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
+Bu Khofifah dua periode xemoticonx
+Walaupun saya bukan orang Jawa Timur saya lama di Surabaya kawan tapi saya kagum sekali dengan Ibu mulai dari menteri sosial sampai gubernur, sukses terus Ibu
+Dirgahayu itu artinya semoga panjang umur bukan selamat ulang tahun
+Ini baru calon pemimpin yang dengerin suara rakyat, keren
+Selalu menyenangkan melihat Bu Khofifah turun langsung mendengarkan suara rakyat. Semoga pasar Pabean bisa jadi lebih baik dengan perhatian yang tepat! xhashtagx
+Kepemimpinan Bu Khofifah yang responsif membuat kami yakin, Pasar Pabean akan bebas banjir dan makin maju xemoticonx
+Kunjungan Ibu Khofifah menunjukkan kepedulian yang tinggi terhadap petani dan pengusaha bawang, sangat menginspirasi!
+Kami senang sekali Bu Khofifah mendengar keluhan soal banjir. Semoga solusi cepat datang untuk kami para pedagang
+Senang melihat Bu Khofifah tidak segan terjun langsung. Semoga banjirnya cepat kelar deh!
+Wah, penting sekali ini agar pasar tidak banjir waktu hujan! xemoticonx xemoticonx
+Langkah kuat karena ketulusan rakyat
+Keren sekali, Bu Khofifah selalu hadir bersama masyarakat!
+Bu Khofifah untuk Jawa Timur berprestasi
+Tuban hadir dukung Khofifah Emil
+Terima kasih Bu Khofifah sudah mendengar langsung aspirasi kami. Pasar Pabean pasti akan lebih nyaman dan aman
+Salut Bu! Selalu bersama rakyat kecil dan memperhatikan masalah yang penting
+Bu Khofifah selalu hadir untuk rakyat. Semoga pasar kami bisa lebih baik dan bebas banjir berkat perhatian beliau
+Energi rakyat adalah semangat yang tak tergoyahkan
+Luar biasa! Bu Khofifah selalu menyempatkan diri untuk bertemu langsung dengan masyarakat. Mari bersama-sama kita jaga kebersihan pasar! xhashtagx
+Ketulusan rakyat adalah langkah menuju kemenangan
+Sukses terus untuk Ibu Khofifah dalam memperjuangkan aspirasi rakyat
+Bu Khofifah memang sosok pemimpin yang peka terhadap masalah masyarakat. Mari kita dukung agar pasar Pabean jadi lebih bersih dan nyaman! xhashtagx
+Bu Khofifah selalu tanggap terhadap masalah warga. Kami optimis, pasar ini akan menjadi tempat yang lebih nyaman
+Aku asli Malang hadir dukung Bu Khofifah
+Dengan Bu Khofifah perubahan nyata untuk Jawa Timur
+Salut sekali dengan Bu Khofifah selalu melakukan yang terbaik untuk rakyatnya
+Doa dan dukungan kami selalu bersama
+Pemimpin yang hadir di tengah masyarakat adalah pemimpin sejati. Kami percaya Bu Khofifah akan membawa perubahan nyata
+Kampanye yang penuh empati! Harapan pedagang di Pasar Pabean akan kenyamanan saat berjualan sangat wajar. Semoga dapat terealisasi! xhashtagx
+Selamat Bu Khofifah, teruslah mendengarkan suara rakyat! Semoga perbaikan infrastruktur pasar segera dilakukan demi kenyamanan bersama xhashtagx
+Bu Khofifah selalu peka terhadap keluhan masyarakat! Kami yakin masalah banjir di Pasar Pabean segera tertangani dengan baik
+Terima kasih Bu Khofifah sudah mendengarkan keluhan para pedagang. Semoga got yang tersumbat bisa cepat diperbaiki agar pasar tetap aman saat hujan! xhashtagx
+Bu Khofifah Mas Emil terbaik untuk Jawa Timur
+Jawa Timur sejahtera bersama Khofifah-Emil xemoticonx xemoticonx
+Semangat selalu Ibu
+Mudah-mudahan bisa cepat direalisasikan agar tidak ada lagi keluhan
+Kapan lagi ada pemimpin yang selalu menghampiri rakyatnya ke pasar xemoticonx
+Pasar Pabean itu memang vital, tiap hari ramai sekali
+Dukungan tulus rakyat adalah ketulusan sejati
+Kalau sudah benerin got, pedagang jadi lebih tenang deh. Pasar tidak kebanjiran lagi
+Semoga benar-benar ada solusi untuk masalah banjir ini. Sudah terlalu lama nunggu nih!
+Masyaallah sehat selalu ya Ibu
+Laris manis ya Pak Bu xemoticonx
+Selain belanja bawang merah, Bu Khofifah juga belanja masalah xemoticonx xemoticonx
+Cara berkampanye yang berbeda tidak hanya memberikan janji tapi mencoba melihat langsung permasalahan yang ada
+Memang selalu keren Bu Khofifah nih
+Langkah kuat karena ketulusan masyarakat
+Luar biasa, sehat-sehat Ibu xemoticonx
+Bu Khofifah selalu bersama rakyat
+Sudah tidak ragu lagi milih nomor dua ini
+Pasti menang Bu Khofifah xemoticonx
+Kami merasa diperhatikan dengan baik oleh Bu Khofifah. Semoga masalah got tersumbat ini segera teratasi
+Pemimpin tangguh dan peduli sesama xemoticonx xemoticonx
+Ya begini baru gubernur saya, sudah dilanjutkan saja
+Dengan ketulusan dan doa masyarakat, masa depan Jawa Timur lebih cerah
+Dukungan Bu Khofifah untuk perbaikan pasar ini sangat kami nantikan. Terima kasih sudah selalu memperjuangkan kepentingan pedagang
+Semoga kampanye ini membawa perubahan yang nyata untuk pedagang pasar
+Terima kasih sudah peduli dengan masalah banjir di pasar, Bu!
+Hebat, pemimpin yang selalu turun ke lapangan
+Untuk rakyat xemoticonx xemoticonx
+Pasar Pabean memang tempat yang penting untuk ekonomi lokal, salut untuk perhatiannya
+Ayo kita dukung bersama gerakan ini agar pasar kita lebih baik lagi!
+Bawang merah dan cabai selalu jadi andalan pasar ini, semoga makin lancar jualannya
+Lanjutkan Bu Khofifah terbaik
+Aku juga dagang suka Bu Khofifah
+Pemimpin yang selalu turun ke lapangan dan mendengarkan aspirasi rakyat. Terima kasih, Bu Khofifah!
+Dukungan Bu Khofifah untuk para pedagang sangat menginspirasi! Semoga semua harapan mereka terwujud agar pasar selalu nyaman dan aman saat hujan xhashtagx
+Khofifah Emil terbaik untuk Jawa Timur xemoticonx xemoticonx
+Semangat terus, Bu! Kehadiran Ibu di pasar memberikan harapan bagi kami semua
+Pasar adalah fasilitas vital
+Ibu Khofifah benar-benar memahami pentingnya pasar lokal untuk perekonomian. Terima kasih atas dukungannya!
+Keberadaan Bu Khofifah di pasar membangkitkan semangat pedagang! Mari kita dukung agar harapan mereka untuk pasar yang lebih baik bisa tercapai xhashtagx
+Kehadiran Ibu di pasar memberikan semangat baru bagi para pedagang, semoga terus berlanjut
+Pemimpin yang dekat dengan seluruh kalangan rakyat
+Sikap proaktif Ibu Khofifah dalam mendukung petani bawang menunjukkan visi yang jelas untuk pertanian di daerah kita
+Semangat untuk Bu Khofifah xemoticonx
+Kunjungan ini sangat berarti bagi kami, Ibu Khofifah! Semoga bisa membawa perubahan positif bagi para petani
+Saya suka Bu Khofifah cocok jadi gubernur
+Dengan adanya perhatian dari Ibu, kami yakin harga bawang akan lebih stabil dan kesejahteraan petani meningkat
+Pasar Pabean saya sering ke sana Bu Khofifah
+Memang masih perlu banyak pembenahan
+Terima kasih, Ibu, atas komitmen Ibu untuk membantu petani lokal. Kami berharap dukungan ini terus berlanjut
+Kehadiran Ibu di pasar menjadi motivasi bagi kami untuk terus berusaha dan berkembang
+Kami sangat mengapresiasi Ibu Khofifah yang selalu mendengarkan aspirasi para petani. Ini adalah langkah positif untuk masa depan pertanian!
+Barisan 404sakera404 Madura hadir, 02 menang karena itu suara rakyat, suara rakyat adalah suara tuhan
+Selalu berdoa untuk Ibu Khofifah semoga Allah SWT mengizinkan menjadi gubernur Jawa Timur lagi. Masyarakat Jawa Timur masih membutuhkan Ibu. Bismillah
+Menang xemoticonx xemoticonx xemoticonx
+Masyaallah sehat selalu Bu xemoticonx xemoticonx xemoticonx
+Ya ini gubernur kawan xemoticonx xemoticonx xemoticonx xemoticonx
+Masyaallah selalu mendengarkan aspirasi masyarakat kecil
+Mantap xemoticonx xemoticonx
+Tepat hari ini 12 Oktober anak saya ulang tahun lo Bu Khofifah, bersamaan dengan hari ulang tahun Jawa Timur, tidakkah dapat kado xemoticonx
+Safari ke pedagang bisa tiap bulan sekali tidak apa-apa
+Musik horeg bagaimana kabarnya
+Alhamdulillah lombok xemoticonx cabai harga sudah murah xemoticonx
+Bu Khofifah dan Mas Emil, semangat terus! Kami percaya, dengan keikhlasan dan kerja keras, Jawa Timur akan makin maju dan sejahtera xemoticonx xemoticonx
+Bersama Bu Khofifah dan Mas Emil, kami yakin Jawa Timur akan makin hebat. Terima kasih sudah menjadi pemimpin yang menginspirasi xemoticonx xemoticonx
+Semoga Allah SWT selalu memberkahi setiap langkah Bu Khofifah dan Mas Emil dalam memajukan Jawa Timur. Kami selalu mendukung! xemoticonx xemoticonx
+Semangat untuk xhashtagx Bu xmentionx, tetap merakyat ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Jawa Timur pasti akan makin maju di bawah kepemimpinan Bu Khofifah dan Mas Emil. Semangat, kami selalu di belakang kalian! xemoticonx xemoticonx xemoticonx
+Surabaya sudah dukung penuh 02 xemoticonx xemoticonx xemoticonx xemoticonx
+Dukungan kami selalu untuk Bu Khofifah dan Mas Emil! Bersama-sama kita bisa membawa perubahan positif untuk Jawa Timur xemoticonx xemoticonx
+Cerdas dan inspiratif xemoticonx xemoticonx
+Tak ada yang lebih kuat dari doa tulus dan dukungan penuh cinta. Khofifah-Emil, lanjutkan perjuangan
+Ini baru pasangan power! Jawa Timur siap naik level
+Terima kasih atas kerja keras dan dedikasi Bu Khofifah dan Mas Emil. Kami akan terus mendukung langkah kalian menuju kemajuan Jawa Timur! xemoticonx xemoticonx
+Dukungan kami tak pernah berhenti! Bu Khofifah dan Mas Emil, teruslah berjuang membawa kebaikan dan perubahan nyata untuk Jawa Timur xemoticonx xemoticonx
+Insyaallah rakyat Jawa Timur dukung anda Bu
+Kami percaya, dengan hati tulus yang menyatu, kemenangan untuk Jawa Timur sudah makin dekat
+Bismillah Ibu dua periode untuk Jawa Timur
+Ayo masyarakat Jawa Timur pilih 02 tidak yang lain ya xemoticonx xemoticonx
+Kemenangan kalian adalah harapan besar kami semua. Terus berjuang, doa kami selalu menyertai
+Ibu Khofifah memiliki visi yang jelas untuk membawa Jawa Timur ke arah yang lebih baik
+Ikhlas dalam bekerja dan berjuang, hasilnya pasti luar biasa! Kami di belakangmu, Bu Khofifah
+Dukungan dari hati adalah kekuatan yang tak tergantikan. Bersama, kita akan membuat perubahan untuk Jawa Timur
+Tetesan keringatmu adalah harapan kami. Jawa Timur makin maju bersama!
+Dukungan ini datang dari jiwa-jiwa yang tulus, dan itu akan membuat kalian makin kuat untuk memimpin
+Aku juga suka ibu karena kinerjanya bagus amanah semua keluargaku mendukungnya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Dua periode bu khofifah xemoticonx xemoticonx
+Semua akan 02 pada waktunya xemoticonx
+Masak cari masa cuma dikasih kaos bu? Apa tidak ada dana untuk cari masa, masak iya relawan cuma disuruh bagi-bagi kaos saja, sembako apa minyak-minyak gitu bu agar lebih pro
+Balihonya kamu neng SBY kok pada hilang semua bu
+27 November pilihnya Khofifah emil
+Oh ya kemenangan xemoticonx
+Jangankan di Surabaya, se-jatim kalau perlu dukungan untuk buk Khofifah
+Khofifah saja mas, Khofifah saja
+Alah, apa saja program yang dikeluarkan bu khofifah selama lima tahun list dong
+Semua kalangan masyarakat baik profesi kerah putih biru ungu semua dukung bu Khofifah
+Pilih yang sudah punya pengalaman saja xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Beliau-beliau yang kerja di pasar ini tulus sekali mengucapkan dukungannya dari hati, inilah bukti bahwa dukungan dari rakyat kecil akan terus mengalir xemoticonx xemoticonx
+Mantap lanjutkan
+02 untuk dua periode
+Love you bu
+Kebersamaan kita akan membuahkan hasil luar biasa. Khofifah-Emil, untuk Jawa Timur yang lebih maju
+Terlihat bahagia antara pemimpin dan rakyatnya
+Ketulusan masyarakat adalah bahan bakar yang tak pernah habis untuk langkah-langkah besar menuju masa depan yang lebih baik
+Wkwkwkwkwk xemoticonx
+Insyaallah menang xemoticonx xemoticonx xemoticonx
+Love you idolaku
+Terus melejit bu xemoticonx xemoticonx
+Terharu bu xemoticonx xemoticonx
+Semangat terus, Bu Khofifah xemoticonx Kami selalu mendukung langkah kalian untuk kemajuan Jawa Timur xemoticonx
+Doa dan dukungan kami selalu menyertai Ibu dan Mas Emil, semoga terus diberi kekuatan untuk memajukan Jawa Timur xemoticonx
+Optimis dua periode xemoticonx
+Mantap Bu Khofifah, bismillah dua periode xemoticonx
+Mantap nomor dua
+Salam dua jari
+Kepemimpinan Bu Khofifah menunjukkan komitmen yang tinggi terhadap kesejahteraan masyarakat
+Kami bangga bisa mendukung pemimpin yang tulus memperjuangkan rakyatnya. Semoga perjuangan ini diberkahi
+Semangat kami untuk kalian tidak pernah padam! Jawa Timur pasti lebih hebat dengan Khofifah-Emil
+Terbukti mantap xemoticonx
+Optimis dua periode
+Yakin menang xemoticonx
+Terima kasih telah selalu menginspirasi kami dengan ketulusan. Jawa Timur siap maju bersama kalian
+Menyala Bu Khofifah xemoticonx
+Saya tunarungu suka pilih Bu Khofifah Indar parawansa yang jujur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Lanjutkan dua periode Bu Khofifah xemoticonx
+Dukungan tulus ini bikin hati terharu, semoga perjuanganmu terus membawa berkah untuk Jawa Timur
+Semangat Bu Khofifah dan Mas Emil! Kami selalu mendukung dengan doa dan hati yang tulus!
+Karena bu khofifah memang orangnya juga setulus itu mengabdi ke rakyat
+Saya orang jember juga dukung bu khofifah lanjutkan buk jenengan harapan orang kecil seperti kami hidup bu khofifah jangan lupa coblos nomor dua xemoticonx xemoticonx
+Perjuanganmu bukan sekadar politik, tapi pengabdian penuh cinta untuk rakyat!
+Kami percaya Bu Khofifah adalah pemimpin sejati yang selalu memikirkan rakyat. Lanjutkan perjuangan! xemoticonx
+Kami bangga bisa menjadi bagian dari perjuangan ini. Bu Khofifah dan Mas Emil, mari kita lanjutkan langkah ini untuk kesejahteraan Jawa Timur! xemoticonx xemoticonx
+Doa dan dukungan kami selalu menyertai Bu Khofifah dan Mas Emil. Terima kasih sudah berjuang untuk kemajuan Jawa Timur! xemoticonx xemoticonx
+Energi positif dari masyarakat yang mendukung membuat kami yakin, masa depan Jawa Timur akan lebih cerah!
+Ikhlas dan tulusmu adalah contoh bagi kami semua. Tetap semangat dalam membawa perubahan
+Bu khofifah tokoh yang peduli dengan pedagang pasar
+Terima kasih sudah menjadi pemimpin yang tulus, kami bangga mendukung perjuanganmu untuk kemajuan bersama
+Bu kapan musik horeg dilarang
+Bu Khofifah disukai rakyat karena bu Khofifah tidak pernah menyakiti hati rakyatnya atau memarahinya
+Semoga bu Khofifah dan lain-lain diberikan kesehatan dan kemudahan amin
+Khofifah Emil pasti dipilih rakyat karena benar banyak prestasinya untuk jatim
+Orang tulus yang bakal menang ya Khofifah
+Beliau membuktikan kerja nyata xemoticonx
+Bu Khofifah disayangi rakyat dan dipilih rakyat
+Terbaik Khofifah Emil waktunya lanjut
+Tuban hadir dukung Bu Khofifah xemoticonx
+Bismillah dua periode
+Saya juga mau kaosnya Bu, insyaallah Bu Khofifah tetap jaya, sehat selalu Bu xemoticonx xemoticonx
+Masyaallah tabarakallah semoga ibu selalu sehat-sehat dan tetap bisa memimpin masyarakat jawa timur sukses selalu xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx dua lagi
+Ibu khofifah adalah orang yang tulus. Masyarakat pasti merasakan itu
+Kerja keras dan usaha yang selama ini dilakukan oleh bu khofifah pasti akan terbayarkan
+Masyaallah semoga ibu khofifah menang
+Program-program inovatif yang dia usulkan sangat berdampak positif bagi pertumbuhan ekonomi daerah
+Bu Khofifah selalu mendengarkan aspirasi rakyat dan berusaha mengimplementasikannya
+Hmmmm
+Bu Khofifah, dedikasi Anda untuk memajukan Jawa Timur sangat menginspirasi! Semoga semua program yang dijalankan membawa manfaat nyata bagi masyarakat
+Kami mendukung visi Bu Khofifah dalam pengembangan ekonomi dan pendidikan di Jawa Timur. Semoga semua langkah yang diambil menjadi ultimat untuk kemajuan daerah!
+Terima kasih, Bu Khofifah, atas komitmen Anda dalam meningkatkan kesejahteraan rakyat Jawa Timur. Mari terus bersinergi untuk hasil yang lebih baik!
+Pimpinannya yang bijaksana dan inovatif menunjukkan bahwa Jawa Timur memiliki masa depan yang cerah. Semangat terus, Bu Khofifah!
+Bu Khofifah, upaya Anda dalam pemberdayaan perempuan dan anak-anak patut diacungi jempol. Semoga terus menjadi pendorong perubahan positif!
+Kami percaya bahwa dengan kepemimpinan Bu Khofifah, Jawa Timur akan makin maju dan sejahtera. Mari kita dukung semua program yang ada!
+Ibu boleh minta dibantu terkait kegiatan musik horeg yang mengganggu masyarakat. Ini sudah sangat mengganggu masyarakat tapi masih saja dilaksanakan. Kok bisa mendapatkan izin? Padahal merugikan
+Namanya juga politik. Modus curi duit rakyat xemoticonx. Susah kalau sudah kena partai
+Sehat terus ibu khofifah xemoticonx xemoticonx
+Dirapihkan dengan kerja dilancarkan dengan doa xemoticonx. Khofifah-Emil terbaik!
+Dukunganku penuh untuk Bu Khofifah dan Mas Emil! Jawa Timur pasti makin kece
+Tidak sabar lihat perubahan nyata! Gas terus Bu Khofifah
+Semangat Bu Khofifah! Jatim di tangan yang tepat
+Bu Khofifah xemoticonx Mas Emil xemoticonx Kombo paling epic untuk Jatim
+Jatim makin maju, Bu! Aku siap dukung sampai akhir
+Dukungannya tulus, energinya vibes sekali
+Sukses Bu Khofifah! Kami bangga jadi bagian dari perjuangan ini
+Jatim bakal makin glow up! Semangat terus Bu Khofifah
+Lanjutkan. Bu Khofifah emang top. Jatim makin bergairah dan maju melesat. Programnya membumi dan bisa dirasakan masyarakat Jatim
+Yang sudah terbukti saja. Yang lain mah masih janji-janji saja xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx temperamennya kadang-kadang ngeri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Salam dua jari semoga berkah
+Bapak prabowo 02 kesukaanku. 02 bu khofifah. Ini mantap xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Pasar kapasan simokeeto surabaya, Jawa timur
+Aku juga milih Ibu xmentionx xemoticonx
+Bu Khofifah mantap jiwa
+Ayo buk teruskan di kawasan banteng. Kita pasti menang
+Semoga sukses
+Semoga yang terbaik
+Semangat Bu. Semoga sukses xemoticonx xemoticonx
+Lanjut dua periode Bu gubernur xhashtagx
+Bismillah No.2 lanjutkan xemoticonx
+Saya akan pilih xmentionx karena saya tak akan berikan suara saya sekeluarga untuk kader banteng xemoticonx
+Bu khofifah ya
+Kasih sarung bu atau jilbab agar bermanfaat
+Bu Khofifah ya ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Ini bukan jauh soal menang atau kalah tapi bagaimana bagaimana pemimpin itu juga harus introspeksi. Pemimpin itu harus mau dan berani berkorban. Bukan orientasi hanya jadi 'Pemimpin' yang hanya ingin dihormati dan mendapat gaji besar dan mengkayakan diri. Tapi harus berani berkorban nyawa bahkan harta sekalipun
+Maaf ya jalan provinsi di kota saya banyak yang tambal sulam membahayakan pengendara roda dua, saya juga tidak tahu program beliau untuk jatim lima tahun ini. Bagi yang tahu apa saja program beliau untuk Jatim, please kasih tahu saya. Lima tahun Jatim auto pilot
+Cukuplah satu periode tidak ada kemajuan
+Keren saudaraku saya orang Banyuwangi pilihanmu pilihan tepat xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx semangat lanjut bu Khofifah xemoticonx pak Emil
+Semoga Bu Khofifah terpilih kembali menjadi Gubernur Jawa Timur xemoticonx xemoticonx
+Maaf ya
+Tidak sudi
+Terima kasih bu cukup sekali saja xemoticonx
+Asli Surabaya tapi tidak bisa kerja ya untuk apa xemoticonx
+Teruslah berjuang untuk Jawa Timur lebih dahsyat. We love you
+Bu Khofifah pak Emil. Up. Dua periode xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Lanjutkan untuk Jatim lebih maju xemoticonx xemoticonx xemoticonx
+Buktikan kalau terbaik, coba tulis visi misi yang sudah tercapai di periode pertama? Bus trans jatim bikin seperti Jakarta dong bu, agar semua warga jatim bisa menikmati
+Sudah terbukti pemimpin yang santun dan lanjutkan
+Kabar GBT bagaimana Bu?
+Pelit lima tahun menjabat tidak ada manfaatnya sama sekali
+Coblos no 3
+Malas melihat rupamu
+Akun yang komentar di sini kok rata-rata akun baru ya bu? Ibu bayar pendukung online kah xemoticonx xemoticonx xemoticonx xemoticonx
+Yang paling penting sabar bu dan tulus. Tidak suka marah-marah
+Bu Khofifah dan bapak Emil tolong Bu sidak di pembangunan TIJ warganya kesusahan Bu dan bapak dikarenakan air sumur untuk mandi dan mencuci pakaian kering
+Saya dari kota Pasuruan Jatim dukung ibu Khofifah Indar parawansa
+Turun ke pasar seperti kita nyalon saja
+Inspiratif sekali Bu Khofifah! Para pedagang pasar benar-benar menjadi pahlawan ekonomi di tengah malam, bekerja untuk masa depan keluarga mereka xemoticonx xemoticonx xemoticonx
+Ya Allah malam-malam berkunjung ke pasar untuk menyapa rakyatnya xemoticonx xemoticonx xemoticonx xemoticonx
+Keren Bu! Memang betul, para pedagang di sini luar biasa kerja kerasnya. Semoga terus dilimpahi berkah dan rezeki yang melimpah xemoticonx xemoticonx
+Masyaallah ibu khofifah tidak kenal lelah demi rakyatnya xemoticonx xemoticonx
+Masyaallah sungguh mulia sekali kegiatan jenengan bu xemoticonx xemoticonx
+Semangat para pedagang di Pasar Induk Keputran patut diacungi jempol! Semoga keberkahan selalu menyertai mereka. Terima kasih Bu Khofifah sudah memberikan perhatian xemoticonx xemoticonx
+Pasar Induk Keputran memang tempatnya para pekerja keras. Terima kasih Bu Khofifah sudah memberikan apresiasi dan doa untuk mereka. Semoga berkah selalu xemoticonx xemoticonx
+Jalan terus, jalan terus xemoticonx xemoticonx
+Pasar Induk Keputran benar-benar menggambarkan kekuatan ekonomi rakyat. Terima kasih Bu Khofifah sudah menyemangati para pekerja keras ini! xemoticonx xemoticonx
+Bangga sama pedagang pasar yang bekerja tanpa henti demi keluarga. You're the real MVP xemoticonx
+Dari dulu kemana saja bu, kok baru sekarang turun
+Semoga seluruh pedagang selalu diberikan kesehatan dan berkah. Hormat untuk mereka!
+Butuh simpati sekali sampai rela malam-malam ke pasar bu xemoticonx
+Di bawah kepemimpinan Bu Khofifah, semangat para pedagang di Pasar Keputran makin terasa. Semoga program-programnya terus memperkuat perekonomian kita
+Ya ya mau pemilihan nih banyak xemoticonx cari muka nanti kalau sudah jadi sudah tahu endingnya bakal bagaimana xemoticonx
+Sangat mulia apa yang dilakukan bu khofifah. Beliau tengah malam ke pasar untuk melihat bagaimana kondisi rakyatnya di pasar xemoticonx xemoticonx
+Pasar Keputran tengah malam penuh dengan orang-orang yang bekerja keras untuk keluarga
+Rata-rata yang komen akun baru semua wkwkwkwk xemoticonx xemoticonx xemoticonx xemoticonx
+Pasar Keputran tengah malam xemoticonx ekonomi jalan terus, pejuang keluarga tidak pernah istirahat. Salut
+Bu Khofifah selalu memberikan perhatian pada perekonomian rakyat kecil seperti di Pasar Keputran. Semoga program-programnya makin mensejahterakan para pedagang
+Dengan dukungan Bu Khofifah, semoga para pedagang di Pasar Keputran makin sejahtera dan terus diberi kesehatan
+Hormat kami kepada seluruh pedagang pasar yang bekerja keras demi keluarga! Semoga selalu diberi kesehatan dan rezeki. Terima kasih Bu Khofifah atas dukungannya xemoticonx xemoticonx
+Kepedulian Bu Khofifah terhadap para pedagang di Pasar Keputran menunjukkan komitmen beliau dalam memajukan perekonomian daerah. Semoga terus sukses
+Ayahku buruh panggul pasar. Kami semua hidup dari pasar
+Salam hormat untuk semua pedagang di Pasar Induk Keputran! Semoga sehat selalu dan dilimpahi keberkahan. Terima kasih Bu Khofifah atas perhatian Ibu xemoticonx xemoticonx xemoticonx
+Kalau mau lihat arti sesungguhnya dari kerja keras, datang saja ke Pasar Keputran tengah malam
+Terima kasih Bu Khofifah atas perhatiannya kepada para pedagang kecil. Semoga Pasar Keputran terus berkembang di bawah kepemimpinannya
+Perjuangan mereka membangun perekonomian Indonesia
+Kelihatan sekali ya cuman mentingin suara tidak ada seperti melakukan apa gitu yang lebih berpengaruh untuk masyarakat
+Segitunya demi cari suara
+Gondang, bojonegoro kok sepi bu xmentionx
+Merakyatlah sampai rakyat tidak bisa mengalahkanmu
+Kunjungan ini menunjukkan perhatian Bu Khofifah terhadap perekonomian lokal dan kesejahteraan masyarakat
+Luar biasa, Bu! Semangat para pedagang di Pasar Induk Keputran adalah bukti kerja keras dan dedikasi untuk keluarga. Semoga sehat dan rezeki selalu melimpah! xemoticonx xemoticonx
+Semoga berkah ya bu, jenengan baik xemoticonx xemoticonx xemoticonx
+Luar biasa cara kampanye seperti ini pasti masyarakat suka xemoticonx
+Terima kasih Bu Khofifah atas perhatiannya kepada para pejuang ekonomi kita. Pasar Induk Keputran memang luar biasa, penuh semangat dan kerja keras! xemoticonx xemoticonx
+Salut untuk ibu-ibu dan bapak-bapak pedagang yang gigih mencari nafkah
+Mantap sekali beliau ini
+Keputran pasar besar di Jawa Timur
+Terima kasih Bu Khofifah atas perhatian dan dukungannya terhadap pasar tradisional xemoticonx xemoticonx
+Menang buk menang xemoticonx
+Jangan malas-malasan nanti dihari tua menyesal
+Gas penuh Bu Khoff xemoticonx xemoticonx
+Hmm, biasa itu bun apalagi Surabaya padang terang benderang walau dini hari sekalipun xemoticonx coba di pedesaan selatan Jawa Timur pada jam yang sama sudah ada juga yang seperti pasar keputran bahkan lingkup lebih kecil tapi ramai xemoticonx
+Rumah misua ku di sana, tapi tidak tahu kemarin ikut atau tidak
+Respect malam xemoticonx berkunjung ke pasar keputran. Aku orang Surabaya dukung penuh jenengan bu xemoticonx xemoticonx
+Lanjutkan bu xemoticonx xemoticonx
+Lanjutkan
+Sampai larut malam, luar biasa bu khoff xemoticonx
+Makasih bu, inspirasinya xemoticonx xemoticonx
+Maju terus ekonomi Jawa Timur
+Salut sekali sama para pedagangnya xemoticonx xemoticonx
+Pasar Keputran adalah pasar induk yang menyuplai pasar-pasar sekitar. Perannya sangat vital dan memang perlu perhatian khusus dari pemerintah
+Semangat terus untuk para pedagang! Kerja keras kalian inspirasi bagi kita semua
+Pasar Keputran memang selalu hidup, bahkan saat yang lain tertidur
+Laris manis xemoticonx xemoticonx
+Keren Bu Khofifah, sehat selalu ibu xemoticonx xemoticonx
+Salut untuk ibu-ibu dan bapak-bapak pedagang yang gigih mencari nafkah!
+Love you ibu
+Makasih bunda atas kehadirannya xemoticonx
+Pasti menang sih ini xemoticonx xemoticonx
+Semoga pasar dan para pedagang selalu diberikan rezeki yang melimpah
+Ditunggu kunjungan berikutnya bu! xemoticonx
+Pemandangan yang penuh semangat! Jadi ingin ke Pasar Keputran
+Terima kasih untuk apresiasinya, Bu Khofifah! Mereka memang pejuang ekonomi sejati
+Di balik gemerlap malam, ada yang bekerja keras untuk kesejahteraan keluarga
+Saya sering kirim ke Keputran memang besar volume dagangannya
+Foto ini mengingatkan bahwa setiap usaha keras akan membuahkan hasil
+Kepedulian Bu Khofifah terhadap kebutuhan masyarakat Surabaya sangat menginspirasi
+Tindakan beliau untuk tidak tidur demi berkunjung ke pasar menunjukkan komitmen luar biasa sebagai pemimpin
+Tolong punggung keluarga panjang umur selalu
+Pemimpin yang sangat menginspirasi semua orang, semangat terus untuk seluruh pedagang semoga dilimpahkan berkah dan rezekinya xemoticonx xemoticonx
+Jangan malas teman, masih banyak yang harus dicari
+Kunjungan ini mencerminkan dedikasinya dalam memastikan kebutuhan masyarakat terpenuhi
+Aku dulu sering ikut ibu ke Keputran
+Bu Khofifah selalu mengutamakan kepentingan rakyat, dan ini adalah bukti nyata dari hal tersebut
+Pasar menghidupi sekitarnya
+Semangatnya untuk mendengarkan langsung aspirasi pedagang sangat mengagumkan
+Keberaniannya meluangkan waktu untuk melihat kondisi pasar menunjukkan rasa tanggung jawab yang tinggi
+Bu Khofifah tokoh peduli rakyat bawah
+Aku sudah jelas mantap dukung Bu Khofifah
+Sikap proaktifnya dalam mencari solusi untuk kebutuhan rakyat patut dicontoh
+Bu Khofifah adalah contoh pemimpin yang peduli dan siap berkorban demi rakyatnya
+Dedikasinya yang tinggi menjadi motivasi bagi banyak orang untuk lebih terlibat dalam pembangunan daerah
+Tidak ada tebak skor timnas Bu xmentionx?
+Bu Khofifah selalu mendukung ekonomi rakyat kecil, terima kasih atas kepeduliannya xemoticonx xemoticonx
+Kehadiran Ibu benar-benar memberikan semangat bagi kami para pedagang. Semoga Ibu selalu diberkahi xemoticonx
+Semoga ekonomi pedagang di Jawa Timur makin maju berkat Bu Khofifah xemoticonx
+Yang bilang Indonesia malas, belum pernah melihat perjuangan pedagang di Pasar Keputran
+Di saat yang lain tidur nyenyak, pedagang di Pasar Keputran sudah berjuang untuk keluarga mereka. Ini dedikasi yang nyata
+Di Pasar Keputran, setiap malam adalah waktu berjuang untuk keluarga. Hormat tertinggi untuk mereka
+Para pedagang di Pasar Keputran adalah definisi nyata dari kerja keras tanpa lelah. Kami melihat kalian, dan kami menghargai kalian
+Pedagang pasar itu tidak ada kata malas. Setiap malam mereka berjuang demi keluarga. Hormat!
+Ibu xmentionx kerja keras, kolaborasi dengan semua elemen, tidak bising xemoticonx
+Ibu Khofifah tidak pernah lelah demi rakyatnya
+Salut untuk Bu Khofifah yang peduli pada perjuangan pedagang pasar! Kehadirannya selalu membawa semangat baru bagi mereka
+Bu Khofifah selalu mendukung para pedagang kecil, semoga kepemimpinannya membawa rezeki yang berlimpah bagi semua di Pasar Keputran
+Terima kasih Bu Khofifah atas perhatian dan dukungannya bagi para pekerja keras di Pasar Keputran. Semoga beliau selalu sehat dan terus menginspirasi
+Bu Khofifah dan para pedagang Pasar Keputran adalah kolaborasi hebat untuk perekonomian Jawa Timur yang lebih baik. Semoga makin maju
+Bu Khofifah selalu berada di sisi rakyat kecil. Semangat beliau memberi inspirasi bagi para pekerja keras di Pasar Keputran
+Ibu saya titip bila jadi gubernur tolong, buat peraturan daerah, dilarang kegiatan sistem suara horeg seperti itu
+Kampanye terus Bu besok kalau jadi lupa dengan rakyat xemoticonx
+Tidak melihat kaum muda sama sekali anda Bu Khofifah xemoticonx
+Kampanye terus Bu yang periode kemarin ke mana saja wkwk
+Sekalian belanja murah di pasar Keputran Bu Khofifah
+Ada yang belum tahu? Ke Surabaya ayo!
+Lagi memberi janji manis tuh biasanya
+Waktu kampanye turun ke rakyat, waktu menjabat entah ke mana ini nanti
+Tebak skornya mana Bu hehe
+masyaallah ibu tidak ada capainya xemoticonx xemoticonx xemoticonx
+Semoga Ibu Khofifah selalu diberikan kesehatan xemoticonx xemoticonx
+Bisanya begini xemoticonx saja Bu mencari simpati rakyat untuk kepentingan
+Ada maunya pastikan sampai turun malam xemoticonx ke pasar
+Kalau butuh suara baru turun ke pasar Bu
+Pasti menyebar janji yang ujungnya xemoticonx tidak terealisasi
+Ada maunya pasti sampai turun malam-malam ke pasar xemoticonx xemoticonx
+Kemarin ke mana saja Bu? Kok dekat xemoticonx pemilihan baru turun ke pasar?
+Pasti menyebar janji, ujung-ujungnya tidak terealisasi wkwk
+Malas lanjut, waktunya ganti pemimpin
+Diberi kesempatan satu periode gagal, sudah cukup tidak lanjut lagi
+Ganti pemimpin itu solusi untuk Jawa Timur sekarang
+Bukan apa adanya, tapi ada apanya? xemoticonx
+Jalan-jalan saja untuk cari suara masyarakat, tapi giliran sudah dipercaya lupa tanggung jawabnya xemoticonx
+Kepeduliannya di awal saja, nanti juga lupa kan masa-masa kampanye xemoticonx
+Nanti giliran sudah jadi pemimpin, rakyat kecil dilupakan
+Luar biasa Bu Khofifah tengah malam bisa turun ke bawah
+Cari muka melulu Bu, kerja tidak ada yang benar
+Bismillah, dua periode satu putaran, insyaallah
+Programnya anda lo Bu tidak tepat sasaran sekali xemoticonx
+Seharusnya diperbaiki dulu kinerjanya Bu xemoticonx
+404Burusma404 jujur amanah tidak banyak beban kepentingan partai
+Demi menggapai tujuan memang tidak harus malas, walau di tengah malam pun harus terus semangat Bu xemoticonx xemoticonx
+Pilihan rakyat Jawa Timur Khofifah Emil pilihan hati
+Kritik dulu baru turun ke jalan xemoticonx
+Walah Bu waktunya apa pemilihan kepala daerah saja turun kepada masyarakat
+Pencitraan apa lagi ini wkwkwk
+Bu xmentionx mau tanya 90 xemoticonx 6 xemoticonx berapa?
+Tomat dengan lombok makin mahal kalau ada Bu Khofifah, petani sengsara enaknya anda foto-foto saja 404abah404 tidak setuju Jawa Timur anda pimpin
+Bu Khofifah ke pasar bukan untuk masak tapi berkampanye, bunda ini tiap pagi lo ke pasar tidak pernah foto-foto, kalau mau beli dagangan pasar ya tinggal beli bukan difoto terus dipegang dan harganya jadi tambah naik, dasar Bu Khofifah saya kasihan dengan pedagang dan petani sayuran
+Harga bahan pokok melambung tinggi setelah Bu Khofifah mendatangi pasar untuk kampanye, Bu pasar itu objek vital yang harus selalu berputar ekonominya bukan dijadikan alat kampanye, jangan pimpin Jawa Timur
+Waktu kampanye saja gencar Bu, dulu waktu menjabat ke mana?
+Nanti kalau menjabat hilang lagi tidak Bu?
+Butuh suara baru turun ke pasar anda
+Janji manis terus ya Bu, periode kemarin ke mana?
+Malam xemoticonx ke pasar kelihatan sekali pencitraan
+Selalu pencitraan ketika mencari suara
+Hanya saat kampanye turun ke masyarakat xemoticonx
+Kemarin ke mana saja, sekarang baru ke masyarakat
+Waktunya begini turun lapangan survei atau cari suara xemoticonx
+Mulai cari suara ini keluar xemoticonx
+Anda apa survei atau cari suara?
+Jangan terlupakan kalau sudah terpilih bukan hanya cari simpati ya Bu, saya sangat setuju
+Kok mirip guru saya SD Bu Latifa
+Cari 404rai404 atau Bu
+Sudah kelihatan kalau cari 404rai404
+Kami terharu dan bangga memiliki pemimpin seperti Bu Khofifah xemoticonx xemoticonx. Perhatian Ibu pada pendidikan anak-anak kami adalah anugerah yang luar biasa xemoticonx
+Bangga sekali punya pemimpin seperti Bu Khofifah! Kepedulian Ibu pada pendidikan anak-anak kami begitu berarti xemoticonx. Semoga Ibu selalu diberkahi xemoticonx
+Kegiatan sosial Bu Khofifah di kalangan buruh pabrik sangat menginspirasi, memberikan motivasi dan harapan baru bagi mereka
+Bu Khofifah selalu menginspirasi! xemoticonx xemoticonx Dukungan untuk pendidikan anak-anak kami sangat berarti. Teruslah membawa harapan untuk kami, Bu! xemoticonx
+Luar biasa Bu Khofifah! Perhatian Ibu pada kami para buruh sangat menyentuh hati xemoticonx xemoticonx. Terima kasih telah memperjuangkan kesejahteraan kami xemoticonx
+Sungguh luar biasa Bu Khofifah! Perjuangan Ibu untuk para pekerja dan pendidikan anak-anak kami membawa harapan baru bagi masa depan xemoticonx
+Mantap perjuangannya Bu
+Anak buruh bisa sekolah, upah minimum yang diperjuangkan, ini bukti kepemimpinan Bu Khofifah yang berpihak pada rakyat. Lanjutkan perjuangan untuk Jawa Timur yang lebih baik! xemoticonx xemoticonx
+Semoga Allah selalu melindungi Bu Khofifah xemoticonx. Perhatian Ibu pada kami para buruh sangat menyentuh hati xemoticonx xemoticonx. Kami selalu mendukung!
+Upah minimum yang Ibu perjuangkan sangat berarti bagi kami xemoticonx. Terima kasih Bu Khofifah telah selalu memikirkan kesejahteraan kami dan keluarga xemoticonx
+Jawa Timur makin maju berkat perhatian Bu Khofifah yang luar biasa untuk para pekerja. Semoga dukungan ini terus membawa kebaikan bagi kita semua! xemoticonx xemoticonx
+Terima kasih Bu Khofifah atas dedikasi dan perhatian yang tidak pernah putus untuk para buruh xemoticonx. Jawa Timur makin sejahtera karena Ibu
+Bu Khofifah aktif terlibat dalam dialog dengan buruh, membuktikan komitmennya untuk memperjuangkan aspirasi mereka
+Bu Khofifah selalu siap membantu menyelesaikan masalah yang dihadapi buruh pabrik, menjadikannya sosok yang sangat dihormati
+Bu Khofifah memang pemimpin yang selalu memperhatikan kesejahteraan masyarakat. Terima kasih atas segala upaya untuk buruh dan pendidikan anak-anak mereka! xemoticonx xemoticonx
+Begitu besar dukungan masyarakat Jawa Timur untuk pasangan calon Khofifah-Emil, tidak terkecuali para buruh yang telah merasakan kehadiran pemerintah provinsi Jawa Timur akan nasib mereka, sehingga wajar bila ada ketulusan untuk mendukung Khofifah-Emil di periode selanjutnya xemoticonx xemoticonx
+Luar biasa Ibu Khofifah, semoga hajatnya terkabul menjadi gubernur dua periode xemoticonx
+Luar biasa! Ibu Khofifah selalu hadir untuk mendukung para pekerja. Semangat mereka luar biasa!
+Buruh lebih sejahtera dengan Khofifah Emil
+Bangga sekali mempunyai sosok pemimpin seperti Bu Khofifah, lanjutkan dua periode Bu xemoticonx xemoticonx
+xemoticonx Ibu Khofifah yang memperhatikan kamu para buruh xemoticonx xemoticonx terima kasih Bu xemoticonx xemoticonx
+Visi dan misi Bu Khofifah sangat sejalan dengan kepentingan buruh, menunjukkan integritas beliau sebagai pemimpin
+Buruh sejahtera dengan nomor dua xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Bangga sekali punya gubernur seperti ini xemoticonx xemoticonx
+Bu Khofifah mengerti sekali kebutuhan rakyat kecil, dari upah minimum sampai sekolah anak
+Perjuangan yang tidak kenal lelah dan mementingkan kepentingan buruh untuk terus bertahan hidup. Sangat menginspirasi kami xemoticonx
+Salam dua jari, mari kita lanjutkan lagi
+Lanjutkan satu putaran
+Buruh Jawa Timur satu suara untuk Khofifah Emil
+Saya melihat perkembangan pesat di sektor pertanian berkat kebijakan yang diimplementasikan oleh Bu Khofifah
+Kunjungan Bu Khofifah ke pabrik menjadi motivasi besar bagi kami untuk terus berinovasi
+Buruh supir pantura hadir teman
+Alhamdulillah semenjak era Bu Khofifah buruh makin jaya, saya harap Bu Khofifah bisa melanjutkan masa jabatannya menjadi dua periode atau bahkan selama-lamanya xemoticonx xemoticonx
+Keberpihakan Bu Khofifah kepada buruh pabrik terlihat jelas dalam kebijakan-kebijakan yang berpihak pada hak-hak mereka
+Anak buruh bisa masuk SMA negeri karena kebijakan Bu Khofifah. Ini kepemimpinan yang nyata
+Air mata haru saat mendengar perhatian Bu Khofifah pada pendidikan anak buruh xemoticonx. Terima kasih atas perjuangannya, Bu
+Mengidolakan sekali dengan Ibu Khofifah. Semangat terus Ibu semoga perjuangan Ibu dapat mengantarkan Ibu untuk menjadi pemimpin Jawa Timur lagi xemoticonx xemoticonx
+Tidak ada kata lain selain rasa syukur xemoticonx. Bu Khofifah, kepemimpinan Ibu yang selalu memikirkan kami benar-benar menyentuh hati xemoticonx
+Terima kasih Ibu sudah datang melihat para pekerja pabrik
+Gas penuh Ibu Lia
+Menyala Bu xemoticonx xemoticonx
+Bu Khofifah selalu mendengarkan suara buruh, menunjukkan bahwa beliau peduli terhadap kesejahteraan mereka
+Kedekatan Bu Khofifah dengan buruh pabrik menciptakan hubungan yang harmonis, memperkuat solidaritas antara pemerintah dan masyarakat
+Terima kasih Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
+Dengan mendekatkan diri kepada buruh pabrik, Bu Khofifah menunjukkan bahwa beliau adalah pemimpin yang merakyat
+Dua periode Bu
+Bu, hadir di upacara HUT Jawa Timur tidak?
+Sehat selalu Ibu. Semoga perjuangan Ibu dapat dipermudah untuk kebaikan
+Bu Khofifah tidak lupa dengan buruh! Upah minimum naik, anak buruh bisa sekolah. Ini baru pemimpin
+Alhamdulillah, kami dari tim PT. Pabrik Kertas Tjiwi Kimia Jawa Timur bisa menyambut Bu Hj. Khofifah dengan senang hati xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Hormat untuk Bu Khofifah yang selalu memprioritaskan kesejahteraan buruh
+Memberi kuota pendidikan untuk anak buruh? Itulah kepemimpinan dengan hati
+Upah minimum diperjuangkan, pendidikan anak buruh diperhatikan. Bu Khofifah memang beda
+Pemimpin yang tidak pernah luput memikirkan rakyatnya
+Majukan buruh di Indonesia
+Kedekatan Bu Khofifah dengan buruh pabrik mendorong terciptanya lingkungan kerja yang lebih baik dan produktif
+Terima kasih sudah memberikan semangat untuk para pekerja, Bu Khofifah xemoticonx
+Bu Khofifah berhasil membangun kepercayaan di kalangan buruh pabrik, menjadikan hubungan antara pemerintah dan masyarakat makin solid
+Saya yakin Ibu xmentionx bisa maju dan lanjut kembali. Tetap optimis Ibu. Tetap semangat. Saya sayang Bunda xemoticonx xemoticonx
+Panutan perempuan berdaya, orangtua tunggal yang baik, peduli buruh dengan isu sensitifnya, peduli kesehatan mental dengan bikin ground camping makin layak, tanggap soal bencana, pelopor industri halal, dan penjaga toleransi beragama, Ibu panutan. Kira-kira sebagai perempuan, Ibu kalau diajak keluar ditanya makannya apa masih bilang terserah tidak Bu? xemoticonx xemoticonx
+Semangat dan sukses selalu Bu Khofifah, pemimpin yang sangat memotivasi dan menginspirasi xemoticonx
+Bangga dengan kepemimpinan yang peduli terhadap hak-hak pekerja. Terus maju Ibu Khofifah!
+Buruh jaya jaya jaya
+Momen penuh energi positif! Terima kasih sudah mendengar suara para buruh, Bu!
+02 menyala xemoticonx xemoticonx
+Salut dengan perhatian Bu Khofifah terhadap kesejahteraan pekerja. Semoga makin sukses dan amanah
+masyaallah sukses selalu Bu, semoga bisa membawa perubahan yang baik untuk para buruh
+Memperbanyak silaturahmi adalah kekuatan untuk menjuarai xemoticonx
+Kehadiran Bu Khofifah sangat berarti bagi pekerja pabrik, saya sangat terharu xemoticonx xemoticonx
+Bu Khofifah telah menunjukkan komitmennya dalam memperkuat ekonomi lokal melalui berbagai program pemberdayaan UMKM
+Inisiatif Bu Khofifah dalam pengembangan infrastruktur sangat membantu pertumbuhan ekonomi di pedesaan
+Kebijakan Bu Khofifah dalam menarik investasi asing patut diapresiasi, membawa angin segar bagi perekonomian Jawa Timur
+Saya sangat mendukung program pelatihan keterampilan yang diluncurkan Bu Khofifah, ini akan membuka banyak lapangan kerja
+Keberanian Bu Khofifah untuk mengembangkan sektor pariwisata menunjukkan visi jauh ke depan untuk perekonomian Jawa Timur
+Program kemitraan antara pemerintah dan pelaku usaha yang digagas Bu Khofifah sangat efektif dalam meningkatkan daya saing
+Dukungan Bu Khofifah terhadap produk lokal sangat penting untuk memajukan ekonomi daerah
+Buruh pasti bersama Bu Khofifah
+Mantap buruh makin diperlakukan dengan baik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Strategi Bu Khofifah dalam digitalisasi ekonomi memberikan peluang baru bagi pelaku usaha di Jawa Timur
+Kepemimpinan Bu Khofifah dalam memperkuat sektor industri kreatif sangat inspiratif dan berdampak positif
+Terlalu menyala ini xemoticonx xemoticonx xemoticonx
+Program bantuan sosial yang digagas Bu Khofifah sangat membantu masyarakat yang terdampak ekonomi
+Terbaik Khofifah Emil pro buruh
+Saya yakin ekonomi Jawa Timur akan terus tumbuh dengan adanya kebijakan pro-bisnis dari Bu Khofifah
+Bu Khofifah berhasil menciptakan sinergi antara pemerintah dan komunitas bisnis untuk mendorong pertumbuhan ekonomi
+Kepedulian Bu Khofifah terhadap lingkungan dan ekonomi berkelanjutan sangat mengagumkan
+Investasi di sektor pendidikan yang digagas Bu Khofifah merupakan langkah tepat untuk masa depan ekonomi
+Aku buruh di Gresik sangat terbantu berkat langkah-langkah pemerintah provinsi naikkan upah minimum
+Dengan berbagai inovasi yang dibawa Bu Khofifah, sektor ekonomi di Jawa Timur makin berdaya saing
+Saya melihat peningkatan signifikan dalam sektor perdagangan berkat dukungan Bu Khofifah terhadap pasar lokal
+Kampanye terbaik hanya Bu Khofifah seorang, untuk itu mari kita dukung bersama xemoticonx xemoticonx xemoticonx
+Inisiatif Bu Khofifah dalam pengembangan teknologi tepat guna sangat membantu petani dan nelayan
+Bu Khofifah memahami betul pentingnya kolaborasi antara sektor publik dan swasta untuk memajukan ekonomi
+Semangat Bu Khofifah dalam memajukan ekonomi daerah menjadi motivasi bagi semua pemangku kepentingan
+Dukung penuh Khofifah Emil
+Saya dulu ya tahu buruh memang kasihan buruh sekarang xemoticonx
+Dukungan masyarakat Jawa Timur yang begitu masif untuk pasangan Khofifah-Emil agar kembali memimpin Jawa Timur xemoticonx xemoticonx xemoticonx
+Pemimpin yang berhasil memimpin xemoticonx
+Orangtua saya keduanya buruh semua, makasih Bu Khofifah
+Sosok yang diharapkan oleh semua kalangan, menyala Bu Khofifah xemoticonx xemoticonx xemoticonx
+Saya buruh Bojonegoro anak dua bisa hidup dan menyekolahkan anak-anak saya terima kasih Bu Khofifah
+Bentuk kecintaan masyarakat Jawa Timur kepada pasangan Khofifah-Emil dengan semangat agar lanjut memimpin periode 2024-2029
+Terima kasih Bu Khofifah kebijakan anda sangat bermanfaat bagi kami
+Desainer ya buruh juga
+Lihat antusiasme para pekerja! Kehadiran Ibu Khofifah benar-benar memberi inspirasi!
+Terima kasih Bu Khofifah, sudah memperjuangkan nasib pekerja. Ini adalah pemimpin sejati!
+Melihat dukungan sebesar ini dari seluruh lapisan masyarakat Jawa Timur yakin pasangan Khofifah-Emil insyaallah kembali memimpin Jawa Timur, amin xemoticonx
+Kebijakan yang pro-pekerja seperti ini sangat mengharukan. Semoga terus berlanjut
+Bu Khofifah tokoh yang peduli kaum buruh. Sangat jarang karena banyak politisi kini makin mendekat ke elit oligarki, namun Bu Khofifah berbeda
+Semoga lebih banyak pemimpin seperti Ibu Khofifah yang peduli pada kesejahteraan buruh
