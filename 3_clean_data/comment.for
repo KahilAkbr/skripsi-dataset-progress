@@ -21771,7 +21771,6 @@ Maaf saya ingin menyewakan bangunan untuk tim kampanye kabupaten Malang, adakah 
 Khofifah Emil lanjutkan Jawa Timur ayo
 Soponyono pernah ke sana
 Lebih sering kegiatan positif seperti ini bu
-[DELETED]
 Maju berprestasi
 Tetap Khofifah Emil Jawa Timur
 pun biasa bu Khofifah
@@ -24953,7 +24952,6 @@ xmentionx maaf ibu di tempat saya kelurahan Nginden Jangkungan tidak ada tim suk
 Tetap jadikan dua periode Bu. Anda kemungkinan kalah di kota Surabaya. Tapi ingat di kota lain anda pemenangnya ya xemoticonx xemoticonx xemoticonx xemoticonx
 70 persen pasti ini suaranya
 Sukses ibu, jadi gubernur lagi
-[DELETED]
 Masyaallah tabarakallah Bu Khofifah lanjut putaran dua Bu sehat selalu xemoticonx xemoticonx
 Tetap ibu, tidak ada lainnya xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx menyala semangat kang santri xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -27070,7 +27068,6 @@ Begini dong bu Khofifah selalu kunjungan ke pasar jadi banyak berinteraksi denga
 bismillah Madura mutlak 02 ya bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Pasti menang Bu Khofifah xemoticonx
 Luar biasa lanjutkan bu bismillah pasti menang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-[DELETED]
 Lautan karya lautan warga xemoticonx
 masyaallah, semangat perjuangan Bapak R.P. Mohammad Noer benar-benar menginspirasi. Semoga kita semua bisa terus memperjuangkan kesejahteraan masyarakat seperti yang beliau cita-citakan. Al-Fatihah untuk beliau xemoticonx xemoticonx
 Luar biasa, kata-kata Bapak R.P. Mohammad Noer xemoticonx Agawe Wong Cilik Melu Gumuyu xemoticonx sungguh menggugah hati. Semoga semangatnya selalu hidup dalam perjuangan kita. Doa terbaik untuk beliau, Al-Fatihah xemoticonx xemoticonx
