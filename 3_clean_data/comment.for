@@ -34,7 +34,7 @@ Amin
 Saya Jawa Timur, Madiun. Insyaallah menang Kang Emil
 Selalu bangga mengawal Mas Emil sampai akhir masa kampanye xemoticonx
 Bismillah, semoga Allah meridai untuk keluarga Pak Emil, amin xemoticonx xemoticonx xemoticonx
-Kami keluarga besar JKSN xemoticonx Jaringan Kyai Santri Nasional xemoticonx Kyai Asep, Bu Khofifah xemoticonx Pak Emil, Gus Barra dan Pak Rizal, Gus Ghofirin, Haji Her Madura xemoticonx Mas Kaesang, sekaligus masyarakat Jawa Timur mengucapkan terima kasih atas terselenggaranya doa akbar bersama dalam menyambut kemenangan Jawa Timur sebagai gerbang baru Nusantara. Mari kita kawal pemilihan kepala daerah sampai tuntas, damai, santun, adil, dan makmur. Tanpa emosi kita tetap saudara. NKRI merdeka ya Allah
+Kami keluarga besar JKSN xemoticonx Jaringan kiai Santri Nasional xemoticonx kiai Asep, Bu Khofifah xemoticonx Pak Emil, Gus Barra dan Pak Rizal, Gus Ghofirin, Haji Her Madura xemoticonx Mas Kaesang, sekaligus masyarakat Jawa Timur mengucapkan terima kasih atas terselenggaranya doa akbar bersama dalam menyambut kemenangan Jawa Timur sebagai gerbang baru Nusantara. Mari kita kawal pemilihan kepala daerah sampai tuntas, damai, santun, adil, dan makmur. Tanpa emosi kita tetap saudara. NKRI merdeka ya Allah
 Lanjut dua periode
 Dukung penuh Khofifah-Emil dua periode xemoticonx xemoticonx
 Bismillah xemoticonx xemoticonx
@@ -1063,7 +1063,7 @@ Benar-benar seru acaranya, untung aku ikut xemoticonx
 Wah ini yang di Jember ini xemoticonx xemoticonx xemoticonx xemoticonx menyala xemoticonx xemoticonx
 Ya masyarakat Jawa Timur semua pilih Khofifah-Emil dijamin ibu PKK Jawa Timur cantik, ramah, terkenal di Indonesia, siapa sih yang tidak kenal Mbak Arumi? Pasti dong, ayo jangan lupa pilih xemoticonx xemoticonx xemoticonx xemoticonx
 Mantap Mas Emil! Ayo terus jadi pemimpin yang dekat dengan masyarakat
-Alhamdulillah terima kasih kami sampaikan kepada masyarakat Jawa Timur yang sudah berusaha menjadi bagian dari kami untuk siap menjaga pemilihan kepala daerah serentak ini dengan santun, bersahaja, tidak saling fitnah, tidak mudah emosi, saling menghargai xemoticonx menghormati perbedaan, cerdas dalam menyikapi media sosial, tidak terpancing untuk sistem adu domba, tidak golongan putih tetap solid menjaga demokrasi sehat untuk NKRI bersama tim JKSN xemoticonx Jaringan Kyai Santri Nasional xemoticonx Kyai Asep, Bu Khofifah dan Pak Emil, Gus Barra dan Pak Rizal xemoticonx xemoticonx xemoticonx
+Alhamdulillah terima kasih kami sampaikan kepada masyarakat Jawa Timur yang sudah berusaha menjadi bagian dari kami untuk siap menjaga pemilihan kepala daerah serentak ini dengan santun, bersahaja, tidak saling fitnah, tidak mudah emosi, saling menghargai xemoticonx menghormati perbedaan, cerdas dalam menyikapi media sosial, tidak terpancing untuk sistem adu domba, tidak golongan putih tetap solid menjaga demokrasi sehat untuk NKRI bersama tim JKSN xemoticonx Jaringan kiai Santri Nasional xemoticonx kiai Asep, Bu Khofifah dan Pak Emil, Gus Barra dan Pak Rizal xemoticonx xemoticonx xemoticonx
 Semoga terpilih untuk Jawa Timur Pak Emil dan Ibu Khofifah, sehat selalu untuk Ibu Arumi sekeluarga xemoticonx xemoticonx
 Ini baru keren
 Mantap sekali Mas Emil dan Mbak Arumi, bisa langsung menyapa rakyat
@@ -3274,7 +3274,7 @@ Mantap pemain Serbia satu ini xemoticonx xemoticonx xemoticonx xemoticonx
 Jawa Timur sangat beruntung punya Mas xmentionx dan Mbak xmentionx, pintar, cerdas, sederhana, dan ganteng
 Cintaku xemoticonx
 Salam hormat Bapak Emil dan Ibu, sedari dulu memang mengidolakan sekali dengan bapak yang satu ini, kalau bicara tidak terburu-buru kelihatan berwibawa sekali xemoticonx xemoticonx sukses terus pak untuk progres-progresnya, omong-omong senggol sedikit juga dong pak untuk kota saya tercinta Pasuruan xemoticonx xemoticonx
-Alhamdulillah warga Jawa Timur yang budiman saatnya kita bersatu untuk menyukseskan pemilihan kepala daerah dengan damai tanpa fitnah, mengejek pasangan calon lain, atau mudah emosi melihat media sosial orang lain yang lewat beranda kita, tetap santun dan bersahaja bersama Ibu Khofifah dan Pak Emil lanjut dua periode Jawa Timur berprestasi bersama JKSN xemoticonx jaringan kyai santri nasional xemoticonx
+Alhamdulillah warga Jawa Timur yang budiman saatnya kita bersatu untuk menyukseskan pemilihan kepala daerah dengan damai tanpa fitnah, mengejek pasangan calon lain, atau mudah emosi melihat media sosial orang lain yang lewat beranda kita, tetap santun dan bersahaja bersama Ibu Khofifah dan Pak Emil lanjut dua periode Jawa Timur berprestasi bersama JKSN xemoticonx jaringan kiai santri nasional xemoticonx
 Sepintar ini mengapa tidak diangkat jadi menteri
 Saya suka dengan Mas Emil tapi tidak dengan Bu Khofifah, jadi berharap selanjutnya Mas Emil saja yang maju jadi nomor satu selanjutnya, entah itu Jawa Timur atau RI satu, sehat selalu Mas Emil dan keluarga xemoticonx xemoticonx
 Bu xmentionx seperti boneka barbie xemoticonx cantik sekali Ibu, ingin peluk rasanya xemoticonx xemoticonx
@@ -5571,7 +5571,7 @@ Tidak terasa 10 tahun berlalu. Sehat selalu bapak jokowi
 Terima kasih pengabdiannya bapak presidenku
 Pulang desa mengembala kambing Mul?
 Sedih juga jadinya. Terima kasih Bapak Jokowi atas 10 tahun ini memimpin Indonesia untuk lebih baik, untuk Bapak Prabowo semoga dapat menjadi pemimpin yang amanah xemoticonx memajukan Indonesia dalam segala hal, amin xemoticonx xemoticonx xemoticonx
-Presiden Jokowi sendiri yang meminta anak buahnya membuat kampanye sepuluh tahun pemerintahannya. Dirigennya Kepala Kantor Komunikasi Presiden dan Menteri Komunikasi dan Informatika. Tak hanya mengerahkan humas lembaga-lembaga negara, mereka mengerahkan relawan, buzzer, dan influencer media sosial membuat kampanye Jokowi presiden yang berhasil. Ciri propaganda adalah mengungkap sebagian, menyembunyikan sebagian yang lain. Konflik kepentingan dan nepotisme tak masuk kampanye keberhasilan Jokowi. Tentu saja kampanye memoles citra Jokowi itu memakai uang besar. Jika Anda terpapar konten media sosial, pidato menteri, atau berita media massa yang memuji-muji program dan kebijakan Jokowi, Anda mungkin sedang mengonsumsi propaganda. Sebab, semua konten itu tak muncul secara natural. Konten dan berita itu didesain untuk mengantarkan Jokowi pensiun pada 20 Oktober 2024
+Presiden Jokowi sendiri yang meminta anak buahnya membuat kampanye sepuluh tahun pemerintahannya. Dirigennya Kepala Kantor Komunikasi Presiden dan Menteri Komunikasi dan Informatika. Tak hanya mengerahkan humas lembaga-lembaga negara, mereka mengerahkan relawan, buzer, dan influencer media sosial membuat kampanye Jokowi presiden yang berhasil. Ciri propaganda adalah mengungkap sebagian, menyembunyikan sebagian yang lain. Konflik kepentingan dan nepotisme tak masuk kampanye keberhasilan Jokowi. Tentu saja kampanye memoles citra Jokowi itu memakai uang besar. Jika Anda terpapar konten media sosial, pidato menteri, atau berita media massa yang memuji-muji program dan kebijakan Jokowi, Anda mungkin sedang mengonsumsi propaganda. Sebab, semua konten itu tak muncul secara natural. Konten dan berita itu didesain untuk mengantarkan Jokowi pensiun pada 20 Oktober 2024
 Bakal kangen dengan si mencla-mencle ya pak
 Terima kasih bapak presiden xmentionx Kamu mengakhiri dengan bagus
 Dari semua video perjalanan pak Jokowi, baru di postingan pak Emil yang membuat saya xemoticonx
@@ -8786,7 +8786,7 @@ Salah fokus dengan sedotan yang di gelas bergerak-gerak sendiri, apa karena angi
 Sedotannya bergerak sendiri xemoticonx
 Untung dapat Mas Emil
 Huaaa xemoticonx xemoticonx xemoticonx mengiri
-Full xemoticonx xemoticonx
+Penuh xemoticonx xemoticonx
 Bersyukurlah pada orang tuamu Arumi yang sudah menjagamu, mendoakan sehingga sampai di titik ini begitu disayangi suamimu xemoticonx xemoticonx
 Sakinah mawadah warahmah ya
 Seperti ini Mas kalau mengobrol itu xmentionx xemoticonx
@@ -9398,14 +9398,14 @@ Masyaallah, tatapannya itu lo penuh sejuta makna
 Salah fokus dengan sedotan, kok bergerak xemoticonx sendiri xemoticonx
 Pasangan yang serasi, bahagia selalu xemoticonx
 Coba perhatikan kok sedotannya bergoyang xemoticonx sendiri
-Burung cinta xemoticonx xemoticonx xemoticonx xemoticonx
+Love bird xemoticonx xemoticonx xemoticonx xemoticonx
 Yang bagian tersenyum-senyum saja ayo ah merapat xemoticonx xemoticonx xemoticonx
 Mengapa saya kok senang melihat xmentionx dan suami sampai ikutan senyum-senyum sendiri, semoga sakinah mawadah warahma, sehat panjang umur xemoticonx
 Ibu cantik sekali sih, masyaallah, bagaimana pak Emilnya tidak cinta terus, masyaallah
 Sedotan pun ikut bergoyang
 Masyaallah tabarakallah
 Mesra dan bahagia selalu ya mas dan mbak, seperti suami saya memperlakukan saya ini sepertinya, hihi, semoga tidak gede rasa
-Keren sekali acara selawat tadi
+Keren sekali cah acara selawat tadi
 Amin, bu Khofifah, kami akan memastikan hak pilih digunakan untuk masa depan yang lebih baik
 Bu Khofifah berkah selalu
 Kalau langsung menang saja bagaimana kawan? Tidak boleh ya wkwkwk
@@ -9429,14 +9429,14 @@ Bismillah ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ini gubernur saya, salam dua jari
 Terima kasih atas segala perhatian dan doa ibu untuk kami, semoga kepemimpinan ibu terus membawa kebaikan bagi semua
 Insyaallah menang bun
-Asli sampai embong xemoticonx dukungannya
+Asli sampai jalan xemoticonx dukungannya
 Kalau ras terkuat di bumi dukung begini bagaimana lagi, pasti menang
 Bu Khofifah dukungannya banyak sekali, tidak main-main, salam dua jari
 Ini yang tidak dipunyai pasangan satu dan tiga, insyaallah 50-60 xemoticonx bu xemoticonx
 Makin yakin 27 November coblos nomor dua Khofifah Emil
 Insyaallah menang mutlak bu 27 November, anak muda siap menangkan Khofifah Emil
-Tombol xemoticonx xemoticonx insyaallah nomor dua menang xemoticonx
-Pasti coblos dua 27 November
+Tombol xemoticonx xemoticonx insyaallah nomor 02 menang xemoticonx
+Pasti coblos 02 27 November
 Menuju presiden 2029
 Info lowongan kerja bu kalau ingin saya coblos langsung saja xmentionx
 xhashtagx
@@ -9455,19 +9455,19 @@ Inilah mantap nomor dua Khofifah Emil, ibunya Jawa Timur
 Bismillah menang mutlak bu
 Lanjutkan ibu, menang menang menang xemoticonx xemoticonx xemoticonx
 Merinding bu nyai saya xemoticonx xemoticonx xemoticonx xemoticonx, xhashtagx Muslimat NU Wilayah Maluku Utara
-xmentionx dari mana anda ini
+xmentionx dimana anda ini
 Barokallahu nyai Khofifah
 Semangat bu xemoticonx kami selalu mendukungmu xemoticonx xemoticonx
 Semoga menang dan anda menjadi pemimpin yang selalu amanah dan bijak, sehat selalu, amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Yok berkah berkah dijual murah obral-obral, yok yok ini jualan berkah nih, yang mau berkah coblos saya xemoticonx
+Ayo berkah berkah dijual murah obral-obral, ayo ayo ini jualan berkah nih, yang mau berkah coblos saya xemoticonx
 Jelas menang
-Bismillah dua xemoticonx xemoticonx xemoticonx xemoticonx
+Bismillah 02 xemoticonx xemoticonx xemoticonx xemoticonx
 Bismillah bu xemoticonx xemoticonx xemoticonx
 Fahmil untuk Jawa Timur lebih maju xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ibu Gubernur saya xemoticonx xemoticonx
 Sudah pernah memimpin korupsi merajalela sampai ke RT jalan provinsi dibiarkan lama tidak diperbaiki transportasi Surabaya amburadul
 Sehat selalu ibu xemoticonx xemoticonx
-Sudah saatnya 27 November quick count tembus 80 xemoticonx
+Sudah saatnya 27 November perhitungan cepat tembus 80 xemoticonx
 Terima kasih atas pesannya, bu, kami siap menuju TPS pada 27 November untuk mendukung demokrasi yang damai xemoticonx
 Masyaallah bu Khofifah luar biasa bersama rakyat
 Luar biasa semangatnya xemoticonx
@@ -9485,7 +9485,7 @@ Bu Khofifah idolanya ibu-ibu Jawa Timur
 Alhamdulillah acaranya lancar dan luar biasa xemoticonx
 Beliau selalu peduli terhadap kebutuhan masyarakat
 Semangat mencoblos nomor dua xemoticonx xemoticonx
-Semoga diberi berkah kemenangan ya bu de Pipah, amin xemoticonx xemoticonx
+Semoga diberi berkah kemenangan ya bude Pipah, amin xemoticonx xemoticonx
 xemoticonx xemoticonx xemoticonx bismillah ibu Khofifah menang, salam xemoticonx xemoticonx
 Bismillah, kemenangan ibu Khofifah mas Emil adalah kemenangan rakyat Jawa Timur tanpa terkecuali xemoticonx xemoticonx xemoticonx xemoticonx
 Luar biasa, penutupan kampanye yang penuh berkah dan spiritualitas
@@ -9502,7 +9502,7 @@ Doa ibu-ibu kuat sekali, keren para relawan dan ibu-ibu Muslimat selalu menjadi 
 Semoga sukses untuk Jawa Timur bu, doa saya untuk bu Khofifah dan pak Emil
 Insyaallah menang ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx amin
 Ini lo gubernur saya, ibunya Khofifah lanjutkan xemoticonx xemoticonx xemoticonx
-Yang jelas dua selalu di xemoticonx xemoticonx
+Yang jelas 02 selalu di xemoticonx xemoticonx
 Ibu Khofifah selalu menginspirasi kami untuk menjaga ketertiban dan kedamaian, semoga semuanya berjalan lancar pada 27 November nanti
 Ayo bersama-sama kita pastikan pemilihan kepala daerah berjalan dengan aman dan damai, terima kasih bu Khofifah atas kepemimpinannya
 Semoga pemilihan pada 27 November nanti sukses besar, ibu Khofifah, kami dukung penuh untuk suasana yang kondusif
@@ -9513,14 +9513,14 @@ Mari kita tunjukkan bahwa kita bisa menjaga suasana tetap kondusif, bu Khofifah,
 Semoga apa yang kita harapkan bersama untuk pemilihan umum berjalan dengan lancar dan aman, bu Khofifah, terima kasih atas bimbingannya
 Amin, semoga pemilihan umum berjalan dengan damai dan sukses, terima kasih bu Khofifah sudah memberikan arahan yang bijak untuk semua
 Cukup satu periode saja
-Bismillah, dua diijabah Allah menang
+Bismillah, 02 diijabah Allah menang
 Bismillah
 Jangan lupa kalau menang jangan lupa janjimu lo ya
 Masyaallah guruku, nyai Sholihah Abd Karim xemoticonx ketua Muslimat NU Bangkalan xemoticonx, sehat selalu ibu nyai xemoticonx xemoticonx
 Masyaallah bu
 Pasti untuk ibu xmentionx dan pak xmentionx dong
-Meriah sekali seperti
-Ingin ke sana tapi ramai sekali teman-teman katanya
+Meriah sekali cak
+Ingin ikut sebenarnya kemarin tapi ramai sekali teman-teman katanya
 Masyaallah semoga berkah ya ibu
 Bangga sekali xemoticonx xemoticonx
 Penutupannya penuh berkah
@@ -9528,8 +9528,8 @@ Alhamdulillah xemoticonx xemoticonx
 Semua kalangan berkumpul xemoticonx xemoticonx
 Sehat selalu semuanya
 Panjang umur Ibu xemoticonx
-Muak dengan yang ini. Tetap pilihankan rapi Mbak xmentionx untuk Jawa Timur menyala xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Khofifah-Emil Yes
+Muak dengan yang ini. Tetap pilihankan bersih-bersih Mbak xmentionx untuk Jawa Timur menyala xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Khofifah-Emil Ya
 27 November 2024 jangan lupa saudara di Jawa Timur nomor dua ya.
 Insyaallah Ibu menang satu putaran saja, salam hormat dari Kota Bitung, Sulawesi Utara xemoticonx xemoticonx
 Bismillah lanjut dua periode xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -9552,7 +9552,7 @@ Selamat dan sukses Bu Khofifah untuk memimpin Jawa Timur
 Alhamdulillah selamat ya Bu Khofifah xemoticonx Pak Emil semoga menjadi pemimpin yang terbaik, amanah, dan kotanya menjadi makin maju dan berkembang baik amin sehat sehat Bu Pak panjang umur orang baik xemoticonx xemoticonx xemoticonx
 Selamat ya Bu Khofifah dan Mas Emil semoga tambah sukses amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Alhamdulillah
-Fix Calon Presiden xemoticonx Calon Wakil Presiden 2029, kalau Pak Prabowo 2029 sudah tidak maju lagi lebih baik mengambil tawaran calon wakil presidennya Mas Gibran, daripada jadi calon presiden kemungkinan menang sangat kecil kalau melawan KIM, lagi pula Ibu Nyai juga bagian dari KIM jadi bisa jadi kandidat calon wakil presiden terkuat untuk kubu KIM jika Pak Prabowo tidak maju lagi di 2029
+Pasti Calon Presiden xemoticonx Calon Wakil Presiden 2029, kalau Pak Prabowo 2029 sudah tidak maju lagi lebih baik mengambil tawaran calon wakil presidennya Mas Gibran, daripada jadi calon presiden kemungkinan menang sangat kecil kalau melawan KIM, lagi pula Ibu Nyai juga bagian dari KIM jadi bisa jadi kandidat calon wakil presiden terkuat untuk kubu KIM jika Pak Prabowo tidak maju lagi di 2029
 Istimewa. Jawa Timur aman. Pesta bersih nyaman indah dan sejuk
 Saya tadi hadir di sana
 Insyaallah sukses Bu mantap kampanye tanpa menjelekkan orang lain
@@ -9567,7 +9567,7 @@ Masyaallah Ibu ramai sekali
 Bismillah kerja keras tidak akan bisa mengkhianati hasil
 Selalu hadir xemoticonx
 Dukung penuh 02
-Konsumsinya mau bau Bu xmentionx bagaimana panitianya Anda ini, orang jauh-jauh datang dari luar kota suguhanya seperti ini
+Konsumsinya tadi bau Bu xmentionx bagaimana panitianya Anda ini, orang jauh-jauh datang dari luar kota suguhanya seperti ini
 Saya tadi datang Bu xemoticonx
 Bu Khofifah orang yang tulus patut didukung dukung penuh 02 xemoticonx
 Kerja keras dan sinergi luar biasa dari Khofifah-Emil sangat terasa. Terima kasih telah menjadi harapan masyarakat Jawa Timur xemoticonx
@@ -9578,20 +9578,20 @@ Alhamdulillah, perjalanan yang luar biasa! Terima kasih atas kerja keras dan ket
 Assalamualaikum Ibu xmentionx Alhamdulillah saya tadi hadir di sana bersama rombongan Ibu xemoticonx dan dua putra putri saya tetapi tiba di sana ternyata tidak bisa masuk ke dalam karena terlalu penuh sudah xemoticonx xemoticonx xemoticonx xemoticonx Alhamdulillah tadi saya bisa mengambilkan nasi kotak dan air mineral untuk Ibu xemoticonx rombongan saya kami duduk bersama di luar di dekat rel kereta api depan lokasi xemoticonx xemoticonx xemoticonx sedih sekali karena tidak bisa mendukung teriak keras untuk menatap langsung Ibu di dalam xemoticonx
 Pendukungnya tidak kaleng-kaleng banyaknya saudara xemoticonx xemoticonx xemoticonx
 Terima kasih atas kepemimpinan yang rendah hati dan penuh semangat. Semoga menjadi teladan yang terus menginspirasi. Amin
-Gawendeng gawendeng gawendeng mau ramai sekali
+Gila gila gila tadi ramai sekali
 Masyaallah senangnya bisa bergabung acara kampanye terakhir Bunda sip pokoknya tetap semangat maju Jawa Timur sukses lanjutkan Bunda semoga amanah bersama Pak Emil Dardak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Ras terkuat di bumi turun tangan untuk memenangkan 02 xemoticonx xemoticonx
-Oke gas oke gas nomor dua coblos gas xemoticonx xemoticonx xemoticonx menyala
+Peh ras terkuat di bumi turun tangan untuk memenangkan 02 xemoticonx xemoticonx
+Oke gas oke gas nomor dua coblos teman-teman xemoticonx xemoticonx xemoticonx menyala
 Ras terkuat di bumi bukan kaleng xemoticonx memenangkan Bu Khofifah
 Surabaya ini sudah panas, kalau melihat pemimpinnya cemberut saja, tambah panas xemoticonx
 Hadir Bu Khofifah bersama rombongan
 Lanjutkan
 Tidak diragukan pasti menang ini
-Saya ingat betul ya ketika Anda kampanye 2018 kemudian di hadapan media bilang 2019 siap menggratiskan SMAN SMKN dan SLTA swasta di Jawa Timur. Tahun pertama penganggaran penuh BPOPP, tapi tahun-tahun selanjutnya mengapa dipangkas 6-9 bulan? Padahal APBD selalu naik. Kadis Pendidikan Provinsi bilang bahwa BPOPP menyesuaikan PAD, lah dana hibah kita saja melebihi PAD, dan masuk ke Dinas Pendidikan Provinsi Jawa Timur itu banyak! Harusnya kalau memang tidak sanggup itu segera klarifikasi. Bukan blunder dan seolah membiarkan simpang siur SMA sederajat di Jawa Timur itu gratis, semi berbayar, atau berbayar. Kalau kenyataannya pemprov tidak sanggup mengalokasikan dana APBD untuk pendidikan ya bilang, bukan diam!
+Saya ingat betul ya ketika Anda kampanye 2018 kemudian di hadapan media bilang 2019 siap menggratiskan SMAN SMKN dan SLTA swasta di Jawa Timur. Tahun pertama penganggaran penuh BPOPP, tapi tahun-tahun selanjutnya mengapa dipangkas 6-9 bulan? Padahal APBD selalu naik. Kadis Pendidikan Provinsi bilang bahwa BPOPP menyesuaikan PAD, lah dana hibah kita saja melebihi PAD, dan masuk ke Dinas Pendidikan Provinsi Jawa Timur itu banyak lo! Harusnya kalau memang tidak sanggup itu segera klarifikasi. Bukan blunder dan seolah membiarkan simpang siur SMA sederajat di Jawa Timur itu gratis, semi berbayar, atau berbayar. Kalau kenyataannya pemprov tidak sanggup mengalokasikan dana APBD untuk pendidikan ya bilang, bukan diam!
 Gaskan Ibu
 Pendukungmu itu lo mengganggu Surabaya saja. mengapa tidak kampanye di kabupaten sebelah saja xemoticonx xemoticonx
 Sampahmu diperhatikan Bu! Jangan setelah acara, sampah berhamburan semua membuat kotor kotanya orang saja xemoticonx xemoticonx xemoticonx
-Bu, sampah pendukung Anda tolong diurus, membuat Surabaya penuh sampah. Harusnya sebagai calon gubernur kasih nasihat ke pendukungnya untuk tertib dan buang sampah pada tempatnya, bukan dibuang di taman, di pinggir jalan. Kasihan petugas kebersihannya bekerja keras membersihkan sampah xemoticonx xemoticonx
+Bu, sampahnya pendukung Anda tolong diurus, membuat Surabaya penuh sampah. Harusnya sebagai calon gubernur kasih nasihat ke pendukungnya untuk tertib dan buang sampah pada tempatnya, bukan dibuang di taman, di pinggir jalan. Kasihan petugas kebersihannya bekerja keras membersihkan sampah xemoticonx xemoticonx
 Sampah banyak
 Menyala 03 xemoticonx
 Menyempitkan jalan
@@ -9608,7 +9608,7 @@ Sudah positif menang 02 xmentionx
 Saya sangat senang bisa hadir di sana dan di akhir acara ada Mas Kaesang yang ikut hadir memeriahkan acara
 Masyaallah Bu ramai sekali. Itu terdepan Muslimat Pangarengan Sampang Madura xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx lanjutkan Bu insyaallah menang
 Masyaallah putih-putih kawan
-Tidak ada serangan fajarkah?
+Tidak ada serangan fajar kah?
 Alhamdulillah acaranya berjalan lancar
 Masyaallah tabarakallah acara hari ini
 Bu Khofifah alhamdulillah Bu
@@ -9631,32 +9631,32 @@ Maaf Ibu minta tolong aktifkan kembali KAI di kawasan Madura Bu xemoticonx xemot
 Hadir Bu
 Lanjutkan Bu xemoticonx
 Masyaallah Bu xemoticonx
-Saya tadi di sana luar biasa full xemoticonx
+Saya tadi di sana luar biasa penuh xemoticonx
 Masyaallah banyaknya xemoticonx xemoticonx
 Bismillah menang xemoticonx xemoticonx xemoticonx
 Satu kali 24 jam xemoticonx xemoticonx
 Bu Khofifah cantik sekali xemoticonx xemoticonx
 Saya turut hadir tadi xemoticonx xemoticonx
 Luar biasa ramainya
-Masyaallah sejuk melihatnya xemoticonx xemoticonx
+Masyaallah adem melihatnya xemoticonx xemoticonx
 Adem kawan melihatnya
 Luar biasa antusiasnya xemoticonx
-Panutan orang Jawa Timur saudara
+Panutannya orang Jawa Timur saudara
 Pasangan calon idaman xemoticonx
 Top teman-teman nomor dua
 Saya turut serta tadi Bu
 Alhamdulillah sampai selesai xemoticonx xemoticonx
 xemoticonx xemoticonx gas kawan
 Nomor dua ini jelas menang
-Luar biasa Surabaya meriah hari ini Bu, tadi saya lewat acungkan dua jari semobil, keluarga full coblos 02 xemoticonx
+Luar biasa Surabaya meriah hari ini Bu, tadi saya lewat acungkan dua jari semobil, keluarga semua coblos 02 xemoticonx
 Yang penting sampahnya banyak di jalan-jalan. Tetap saja seperti yang dahulu
 Selesai pemilihan gubernur Khofifah Emil dua periode xemoticonx xemoticonx xemoticonx xemoticonx
 Salam dari Probolinggo Ibu xemoticonx xemoticonx bismillah dua periode, amin allahumma amin xemoticonx xemoticonx xemoticonx
 Kekuatan terbesar Khofifah adalah ibu-ibu xemoticonx xemoticonx
-Jamaahnya membludak
-Gedabus
-Ramai sekali massanya
-Kalau selesai kampanye sampahnya bersih tidak
+Jamaahnya membludak anjir
+Alah omong kosong
+Ramai sekali ini tadi kawan massanya
+Kalau selesai kampanye sampahnya bersihkan
 Mungkin bisa diperbaiki lagi Bu-Pak terkait kebersihan di seluruh area Surabaya hingga pelosok-pelosoknya xemoticonx xemoticonx xemoticonx
 Sukses selalu Bu
 Gila acaranya ramai sekali xemoticonx xemoticonx
@@ -9679,7 +9679,7 @@ Ibunya anak xemoticonx xemoticonx xemoticonx xemoticonx
 Tenang Ibu saya dan keluarga besar saya tetap nomor dua bismillah
 Bismillah menang satu putaran nomor dua pasti
 Bu Khofifah pilihanku xemoticonx
-Lanjutkan Bu trans Jawa Timur sampai Tuban xemoticonx xemoticonx
+Lanjutkan Bu trans Jatim sampai Tuban xemoticonx xemoticonx
 Luar biasa! Semoga Allah memudahkan langkah ke depan dan memberikan hasil yang terbaik. Terima kasih atas semua usaha dan keikhlasan
 Perjuangan yang luar biasa! Terima kasih atas kepedulian terhadap seluruh elemen masyarakat, dari petani hingga ojol xemoticonx
 Alhamdulillah, perjalanan yang menginspirasi. Terima kasih sudah berjuang untuk Jawa Timur yang lebih baik
@@ -9687,7 +9687,7 @@ Ramainya kawan xemoticonx
 Kepemimpinannya membawa banyak perubahan positif xemoticonx
 Kampanye yang keren xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx siap menjemput kemenangan menuju Jawa Timur berprestasi!
-Semoga sukses dan tercapai semua hajat kita bersama di bawa komando Bu Khofifah dan didampingi Mas Emil Dardak
+Semoga sukses dan tercapai semua hajat kita bersama di bawah komando Bu Khofifah dan didampingi Mas Emil Dardak
 Menguatkan semangat dan kebersamaan dengan selawat xemoticonx
 Pecah acaranya seru sekali
 Kampanye ditutup indah sekali xemoticonx
@@ -9705,10 +9705,10 @@ Proses kampanyenya keren keren
 Sukses Khofifah-Emil xemoticonx xemoticonx
 Kemarin bertemu dari dekat bareng Mbak Arumi, masyaallah kawan cantiknya
 Meriah sekali ya kelihatannya
-Sampahnya
+Sampahnya lo.
 Insyaallah menang satu putaran xemoticonx
 Untuk Jawa Timur Ibu Khofifah dan Pak Emil xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Saya datang kemarin Bu luar biasa yang hadir tempatnya sampai full xemoticonx
+Saya datang kemarin Bu luar biasa yang hadir tempatnya sampai penuh xemoticonx
 Bismillah lanjutkan xemoticonx xemoticonx
 Mantap lanjutkan
 Tapi tolong dikasih tahu orang-orang yang datang Bu. Sampah-sampah di jalan membuat sesak
@@ -9719,15 +9719,15 @@ ASN saja dipaksa untuk pilih dia
 Kemarin saya menerima sembako saat mengikuti kampanye Ibu
 Sembako yang dibagikan kemarin sudah kadaluarsa Bu
 Kemarin Ibu bagi
-Bu, mohon disampaikan ke timnya. Dana paket data untuk buzzer masih belum turun
-Saya Bonek kecewa dengan statement GBT bau, kan Ibu sendiri yang urus tapi kok malah menyalahkan orang lain
+Bu, mohon disampaikan ke timnya. Dana paket data untuk buzer masih belum turun
+Saya Bonek kecewa dengan pernyataan GBT bau, kan Ibu sendiri yang urus tapi kok malah menyalahkan orang lain
 Alhamdulillah
 Pisangnya segar sekali
 Lucu sekali posenya
 Selalu sehat ya Bu Khofifah xemoticonx
 Pisangnya sepertinya enak manis itu
 Pisangnya bikin mengiler Bu, saya kalau ke kampung halaman selalu beli pisang seperti itu
-Ibu tidak ada capeknya xemoticonx xemoticonx
+Ibu tidak ada capainya xemoticonx xemoticonx
 Doa Ibu adalah sumber semangat bagi kami. Terima kasih telah menjadi pemimpin yang selalu peduli kepada semua golongan
 Bangga jadi warga Jawa Timur xemoticonx
 Oke gas nomor dua pilihannya xemoticonx
@@ -9768,23 +9768,23 @@ Amin, sehat selalu untuk semua
 Salah fokus pisangnya bagus xemoticonx
 Insyaallah menang xemoticonx xemoticonx
 Sehat selalu bu, saya bawa massa untuk mencoblos anda
-Sehat selalu rezekiNya lancar
+Sehat selalu rezekinya lancar
 Yang merakyat hanya 02
 Yang terbaik 02
 Khofifah yang terbaik bos
 Jawa Timur 02 xemoticonx
-Terbaik ini
-Ojek daring lupa dukung 02
+Terbaik ini saudara
+Jangan lupa dukung 02
 Pisangnya besar-besar kawan xemoticonx
 Top bu Khofifah xemoticonx xemoticonx
 Masyaallah pisangnya xemoticonx xemoticonx
 Pasti manis itu pisangnya xemoticonx
 Semoga terpilih amin
-Gas penuh nomor dua
+Gas penuh saudara nomor dua
 Mantap pisangnya xemoticonx
 Gaskan Ibu xemoticonx saya dukung anda
 Blusukan terus bu xemoticonx
-Ramahnya bu Khofifah
+Ramahnya cah bu Khofifah
 Anggurnya menggoda xemoticonx
 Bu Khofifah memang ramah xemoticonx
 Bu Khofifah ini semangatnya patut ditiru xemoticonx
@@ -9843,8 +9843,8 @@ Lanjutkan nomor dua xemoticonx xemoticonx
 dukung penuh Khofifah Emil xemoticonx
 Gas penuh 02
 makin maju kalau gubernurnya bu Khofifah
-Yang pokok Khofifah saja 02
-Jelas tambah maju kalau gubernurnya bu Khofifah
+Sudah yang penting Khofifah saja 02
+Jelasnya tambah maju kalau gubernurnya bu Khofifah
 Pilih nomor dua
 Maju gas penuh
 Semangatnya teman-teman ibu-ibu xemoticonx
@@ -9862,7 +9862,7 @@ Terima kasih sudah menyapa masyarakat Lamongan ibu xemoticonx PSI Lamongan dukun
 PSI LAMONGAN SIAP MENANGKAN BU KHOFIFAH-EMIL xemoticonx
 Teman-teman semua 02
 Coblos nomor dua xemoticonx xemoticonx xemoticonx
-Sepakat dengan Ibu-ibu pedagang
+Sepakat dengan Ibu-ibu pedagang saudara
 02 oke sip ini pilihanku xemoticonx
 bismillah jadi xemoticonx
 Top bu Khofifah
@@ -9886,8 +9886,8 @@ Kepemimpinannya menunjukkan kejujuran dan komitmen tinggi terhadap tugas beliau
 Beliau selalu menjaga keberagaman dan mempromosikan toleransi di Jawa Timur
 Sosok yang sederhana tapi penuh prestasi xemoticonx
 Kerja keras tanpa pamrih untuk kesejahteraan masyarakat
-limat tahun dipimpin Khofifah Jawa Timur jalan di tempat, tanpa prestasi yang jelas
-limat tahun dipimpin Khofifah, hatimu jadi provinsi terkorup di Indonesia
+lima tahun dipimpin Khofifah Jawa Timur jalan di tempat, tanpa prestasi yang jelas
+lima tahun dipimpin Khofifah, hatimu jadi provinsi terkorup di Indonesia
 Lanjutkan bu xemoticonx xemoticonx xemoticonx xemoticonx
 Sudah saya pilih saya coblos tadi bunda
 Kesayangan xemoticonx
@@ -9898,7 +9898,7 @@ Bagi sembako tuh, bukannya itu juga money politic ya bu?
 Lah bahas money politic sedangkan ibu masih minta persenan uang proyek
 Ibu sendiri sudah merusak integritas proses demokrasi dengan memaksa ASN memilih ibu
 Walah enak sekali bu itu sotonya jadi ingin soto
-Soto Lamongan memang terbaik
+Soto Lamongan memang terbaik sih
 Bu Khofifah selalu di hati
 Soto Solo itu memang segar sekali
 Makan soto disandingkan dengan kerupuk makin nikmat itu xemoticonx
@@ -9926,7 +9926,7 @@ Sotonya enak dua porsi bu
 Soto salah satu makanan kesukaan saya xemoticonx
 Tambahkan sambal makin nikmat bu xemoticonx
 Seru sekali keliling Jawa Timur xemoticonx
-Salah satu comfort food saya bu xemoticonx
+Salah satu makanan nyaman saya bu xemoticonx
 Enaknya kawan soto-nya, khas Lamongan lagi xemoticonx
 Mantap soto xemoticonx xemoticonx xemoticonx
 Jadi ingin xemoticonx ingin soto xemoticonx
@@ -9939,7 +9939,7 @@ Lanjutkan saja bu dua periode
 Jadi ingin xemoticonx
 Soto Lamongan memang juara xemoticonx xemoticonx
 Membuat lapar ini
-Beginilah, soto paling top
+Beginilah kawan, soto paling top
 Dukung terus bu Khofifah
 Bu Khofifah paling keren
 Bu Khofifah paling hebat
@@ -9952,8 +9952,8 @@ Jadi kangen soto buatan nenekku di Lamongan
 Sotonya menggoda
 Soto Lamongan memang top xemoticonx
 Bu Khofifah gubernur andalanku xemoticonx
-Jadi ingin makan soto semua
-Bu Khofifah terima kasih sudah mendukung soto Lamongan xemoticonx xemoticonx
+Jadi ingin makan soto teman-teman
+Bu Khofifah terima kasih sudah mempromosikan soto Lamongan xemoticonx xemoticonx
 Soto ayam memang paling favorit sih xemoticonx xemoticonx
 Redhar Febri keliru salah Deo Emanuel keliru salah Gayo alam Sri Handayani ini salah semuanya jangan salahkan saya iya bu kalau masih menghasut memfitnah mengganggu ataupun menggoda mengklaim hak orang lain atau mengambil barang tanpa seizin pemiliknya jangan salahkan saya kalau nanti saya gebukin bukan miliknya kok ikut ikutan sewot agar tidak sembarangan masuk langsung semaunya sendiri itu Febrinya itu tidak usah sentimentil kepada keluargaku kalau memang ada masalah dengan saya Febrinya terus maunya apa begitu budayakan antri dong
 Ayo bu kita lestarikan kuliner daerah xemoticonx xemoticonx xemoticonx xemoticonx
@@ -9961,7 +9961,7 @@ Saya tidak berniat jahat dengan ibu, dan saya tidak iri dengan ibu, mengapa oran
 Apa tidak bisa cari yang lainnya bisanya merebut saja, redhar Febri sudah cari yang lainnya bisanya merebut
 Wah sepertinya enak nih
 Wah kelihatannya enak sekali bu
-Bu ya kalau memimpin tunjukkan hasil kerja nyatamu untuk kemajuan rakyat Jawa Timur, buat program gebrakan yang membuat rakyat makin makmur
+Bu tolong ya kalau memimpin tunjukkan hasil kerja nyatamu untuk kemajuan rakyat Jawa Timur, buat program gebrakan yang membuat rakyat makin makmur
 Wah enak nih
 Maknyus
 Mantap sekali
@@ -9973,11 +9973,11 @@ Kalau anak anda junior anda sudah kalah bersaing ya sudah terima lapang dada, ti
 Jangan seperti itu lagi ya bu, saya tidak suka anda sentimentil kepada keluargaku hanya karena junior anda kalah bersaing mengharap tapi tidak sampai
 Assalamualaikum salam Nusantara semoga umur panjang
 Langganan sejak kecil saya itu ibu, enak sekali bening asli ayam kampung
-Semua melenceng sedikit xemoticonx xemoticonx kampanye di media sosial bayar pelaku kampanye sudah tidak mempan, di mana mana The Jak mengamuk menolak Ridwan Kamil xemoticonx xemoticonx xemoticonx rakyat sudah cerdas tidak percaya akun berita viral dan lain lain
+Teman-teman melenceng sedikit xemoticonx xemoticonx kampanye di media sosial bayar buzer buzer sudah tidak mempan, di mana mana The Jak mengamuk menolak Ridwan Kamil xemoticonx xemoticonx xemoticonx rakyat sudah cerdas tidak percaya akun berita viral dan lain lain
 Iya bu silakan nikmatilah saja saya dikirimi
 Semoga nomor tiga yang menang
-Soto favorit xemoticonx langganan mimin bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Tumben berkeliling ke Lamongan, Bu. Ada perlukah?
+Soto favorit xemoticonx langganan admin bu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Tumben kelayapan ke Lamongan, Bu. Ada perlukah?
 Lanjut
 Luar biasa, Bu Khofifah! selawat Badar memang selalu membawa kedamaian dan semangat bagi kita semua. Semoga kita selalu diberi kekuatan untuk mengikuti jejak Rasulullah dan para sahabat
 Masyaallah, selawat badar selalu membawa kedamaian
@@ -10684,7 +10684,7 @@ Lanjutkan dua periode Bu Khofifah dan Mas Emil.
 Selama ini kemana saja Bu.
 Uang lauk pauk guru diadakan lagi Bu hehehe semoga menang.
 Bagus xemoticonx xemoticonx
-Closing statement debat terakhir santun sekali, tidak ambisius.
+Pernyataan penutup debat terakhir santun sekali, tidak ambisius.
 Top sekali xemoticonx xemoticonx xemoticonx xemoticonx
 Calon gubernur kebanggaan xemoticonx xemoticonx
 Idola kita semua xemoticonx
@@ -10698,7 +10698,7 @@ SIAP MEMENANGKAN BU KHOFIFAH LANJUTKAN TERUS NO dua xemoticonx xemoticonx xemoti
 Pilihan Kita Semua Tetap Bu Khofifah No dua.
 Gresik Khofifah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx ya.
 Mantap, nomor dua pilihanku.
-Madura full Khofifah Emil.
+Madura semua Khofifah Emil.
 Bu Khofifah sangat merakyat xemoticonx
 Semoga keberkahan dan kebahagiaan selalu menyertai masyarakat Tanah Merah Bangkalan.
 Semoga pasar Tanah Merah terus berkembang dan membawa manfaat besar untuk masyarakat.
@@ -10748,7 +10748,7 @@ masa untuk pembangunan daerah dinas harus menyetor ke ibu
 fokusnya hanya ke pencitraan saja
 itu saja, dibayar berapa? mau dong bu
 program banyak yang tidak terwujud, mengapa saja kemarin bu
-Tetangga Madura full Bunda Khofifah xemoticonx
+Tetangga Madura semua Bunda Khofifah xemoticonx
 112 tahun penuh dedikasi! Semoga Muhammadiyah makin solid dalam membawa kemakmuran untuk semua, dari pelosok desa hingga kota besar.
 Ibu Khofifah ini suasananya adem sekali
 Ibu Khofifah idaman muslimat xemoticonx xemoticonx
@@ -10992,7 +10992,7 @@ Luar biasa Khofifah Emil tadi malam.
 Lanjutkan ibu xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Khofifah saja Khofifah saja.
 Masih setuju Jawa Timur Bu Khofifah jabat lagi ke dua, pemutihan pajak selalu dinanti bu.
-Bismillah Wonocolo Full xemoticonx xemoticonx
+Bismillah Wonocolo penuh xemoticonx xemoticonx
 Pasar Pabean memang istimewa. Dukungan tulus ini semoga membawa manfaat besar.
 Ibu Khofifah memang pemimpin yang peduli dan dekat dengan masyarakat. Kami selalu mendukung penuh untuk kemajuan Jawa Timur.
 Masyarakat Jawa Timur sangat mendukung Bu Khofifah karena kepemimpinannya yang bijaksana dan peduli pada kesejahteraan rakyat. Semoga sukses selalu!
@@ -12523,37 +12523,37 @@ Jawa Timur ramai menyala melenting
 Panas-panas terus datang demi ibu
 Gila keren sekali jadi menyesal tidak ikut
 Pak Emil, janjimu sejak menjadi Bupati akan memajukan wilayah selatan, hingga bapak jadi wakil Gubernur kok belum ada respon Jalan Lintas Selatan di Trenggalek
-Bu Khofifah merasa sangat terinspirasi oleh keikhlasan dan keteladanan Kyai Agus Ali Masyhuri dalam memimpin pesantren
+Bu Khofifah merasa sangat terinspirasi oleh keikhlasan dan keteladanan kiai Agus Ali Masyhuri dalam memimpin pesantren
 Entah lihatnya, meskipun aku bukan orang islam, tapi aku suka dengan sosok bu khofifah
-Masyaallah, majelis selawat yang sangat menyejukkan hati! Semoga keberkahan terus menyertai kita semua. Terima kasih Kyai Agus Ali Masyhuri atas undangannya
+Masyaallah, majelis selawat yang sangat menyejukkan hati! Semoga keberkahan terus menyertai kita semua. Terima kasih kiai Agus Ali Masyhuri atas undangannya
 Kepemimpinan Bu Khofifah sangat luar biasa, semoga bisa memimpin lagi untuk terus membangun daerah kita
-Kyai Agus Ali Masyhuri selalu memberikan contoh yang baik bagi kita. Semoga beliau selalu diberkahi
+kiai Agus Ali Masyhuri selalu memberikan contoh yang baik bagi kita. Semoga beliau selalu diberkahi
 Majelis selawat seperti ini sangat penting untuk mempererat silaturahmi antar warga
-Majelis ini benar-benar mempererat persaudaraan. Terima kasih atas kesempatan berselawat bersama, Kyai Agus
-Bu Khofifah sangat menghargai setiap waktu dan energi yang telah Kyai curahkan untuk mencetak generasi penerus bangsa
-Bu Khofifah merasa sangat terberkati dengan adanya Kyai Agus Ali Masyhuri yang terus memberikan kebaikan dan ilmu
-Bu Khofifah sangat mengapresiasi dedikasi Kyai Agus Ali Masyhuri dalam mencetak generasi yang berakhlak mulia
-Bu Khofifah merasa sangat bersyukur memiliki Kyai Agus Ali Masyhuri sebagai panutan dan sumber inspirasi
+Majelis ini benar-benar mempererat persaudaraan. Terima kasih atas kesempatan berselawat bersama, kiai Agus
+Bu Khofifah sangat menghargai setiap waktu dan energi yang telah kiai curahkan untuk mencetak generasi penerus bangsa
+Bu Khofifah merasa sangat terberkati dengan adanya kiai Agus Ali Masyhuri yang terus memberikan kebaikan dan ilmu
+Bu Khofifah sangat mengapresiasi dedikasi kiai Agus Ali Masyhuri dalam mencetak generasi yang berakhlak mulia
+Bu Khofifah merasa sangat bersyukur memiliki kiai Agus Ali Masyhuri sebagai panutan dan sumber inspirasi
 Saya sangat mendukung Bu Khofifah untuk dua periode lagi, beliau sudah membawa banyak perubahan positif
 Keren bu khofifah terus menjaga silaturahmi xemoticonx
-Kehangatan dan keteduhan hati tercipta melalui selawat bersama di Bumi Selawat. Terima kasih atas undangannya, Kyai Agus
+Kehangatan dan keteduhan hati tercipta melalui selawat bersama di Bumi Selawat. Terima kasih atas undangannya, kiai Agus
 Kami hadir sebagai muslimah selawat bersama Sidoarjo Surabaya Gresik bunda xmentionx lanjutkan untuk Jawa Timur bunda ku xemoticonx xemoticonx xemoticonx
-Semoga Kyai Agus Ali Masyhuri selalu diberikan kekuatan dan kesehatan untuk terus menebar manfaat bagi umat
+Semoga kiai Agus Ali Masyhuri selalu diberikan kekuatan dan kesehatan untuk terus menebar manfaat bagi umat
 Bu Khofifah sudah terbukti kinerjanya, dua periode lagi akan lebih banyak perubahan positif yang bisa dicapai
-Bu Khofifah berharap dapat terus mendapatkan bimbingan dan doa dari Kyai Agus Ali Masyhuri untuk kemajuan bersama
+Bu Khofifah berharap dapat terus mendapatkan bimbingan dan doa dari kiai Agus Ali Masyhuri untuk kemajuan bersama
 Bu Khofifah berharap Pondok Pesantren Bumi Selawat makin berkembang dan memberi manfaat lebih banyak lagi bagi umat
-Terima kasih Kyai, semoga setiap doa yang Kyai panjatkan untuk kami senantiasa dikabulkan oleh Allah SWT
+Terima kasih kiai, semoga setiap doa yang kiai panjatkan untuk kami senantiasa dikabulkan oleh Allah SWT
 Entahlah, sejak lama ketika di Jember ini majelis selawat dijadikan wahana sosialisasi politik, kok jadi sering bertanya-tanya xemoticonx apa boleh ya?
 Terima kasih atas segala perhatian dan doa untuk kemajuan umat, semoga terus diberikan kekuatan dan kesabaran
-Terima kasih Kyai atas semua pengorbanan dan dedikasi yang diberikan kepada Pondok Pesantren Bumi Selawat
-Terima kasih Kyai Agus Ali Masyhuri atas setiap ilmu yang telah disampaikan dengan penuh kasih sayang
-Bu Khofifah mengucapkan terima kasih atas keberadaan Kyai Agus Ali Masyhuri yang selalu memberikan ketenangan hati
-Bu Khofifah sangat berterima kasih kepada Kyai atas segala usaha dalam mendidik generasi muda dengan ilmu yang bermanfaat
+Terima kasih kiai atas semua pengorbanan dan dedikasi yang diberikan kepada Pondok Pesantren Bumi Selawat
+Terima kasih kiai Agus Ali Masyhuri atas setiap ilmu yang telah disampaikan dengan penuh kasih sayang
+Bu Khofifah mengucapkan terima kasih atas keberadaan kiai Agus Ali Masyhuri yang selalu memberikan ketenangan hati
+Bu Khofifah sangat berterima kasih kepada kiai atas segala usaha dalam mendidik generasi muda dengan ilmu yang bermanfaat
 Bu Khofifah telah menunjukkan komitmennya untuk pembangunan, dua periode lagi pasti lebih banyak inovasi yang akan dihadirkan
-Bu Khofifah sangat berterima kasih atas segala perhatian dan doa yang terus mengalir dari Kyai Agus Ali Masyhuri
+Bu Khofifah sangat berterima kasih atas segala perhatian dan doa yang terus mengalir dari kiai Agus Ali Masyhuri
 Tetap jalin kerukunan xemoticonx
 Bu khofifah luar biasa xemoticonx xemoticonx xemoticonx xemoticonx
-Bu Khofifah sangat bersyukur atas keberadaan Kyai Agus Ali Masyhuri yang terus memberikan inspirasi dan semangat dalam setiap langkah kehidupan
+Bu Khofifah sangat bersyukur atas keberadaan kiai Agus Ali Masyhuri yang terus memberikan inspirasi dan semangat dalam setiap langkah kehidupan
 Setia dukung Khofifah
 Kawal kemenangan Bu khofifah dua periode
 Kawal kemenangan khofifah
@@ -12612,12 +12612,12 @@ memang selawat itu sangat menyejukkan hati xemoticonx xemoticonx
 memang tidak perlu diragukan lagi, beliau selalu mengajak hal-hal yang baik untuk warganya. semoga menang bu xemoticonx xemoticonx
 selawat juga bikin hati tenang sekali
 mama saya kemarin hadir bu, masyaallah senang sekali xemoticonx xemoticonx
-Alhamdulillah, kehadiran di Bumi Selawat sungguh membawa kedamaian. Semoga ini menjadi ladang pahala bagi kita semua. Terima kasih, Kyai Agus
-Sungguh majelis selawat yang penuh keteduhan dan berkah. Terima kasih Kyai Agus Ali Masyhuri, semoga majelis ini terus membawa kebaikan bagi kita semua
-Acara yang penuh keberkahan dan kedamaian, semoga kita semua selalu dalam lindungan-Nya. Terima kasih, Kyai Agus Ali Masyhuri
-Alhamdulillah, majelis yang menyejukkan hati dan mempererat silaturahmi antar warga. Terima kasih Kyai Agus Ali Masyhuri
+Alhamdulillah, kehadiran di Bumi Selawat sungguh membawa kedamaian. Semoga ini menjadi ladang pahala bagi kita semua. Terima kasih, kiai Agus
+Sungguh majelis selawat yang penuh keteduhan dan berkah. Terima kasih kiai Agus Ali Masyhuri, semoga majelis ini terus membawa kebaikan bagi kita semua
+Acara yang penuh keberkahan dan kedamaian, semoga kita semua selalu dalam lindungan-Nya. Terima kasih, kiai Agus Ali Masyhuri
+Alhamdulillah, majelis yang menyejukkan hati dan mempererat silaturahmi antar warga. Terima kasih kiai Agus Ali Masyhuri
 Sungguh luar biasa, selawat bersama ini menjadi penguat persaudaraan dan keguyuban masyarakat. Semoga selalu membawa kebaikan
-Selawat bersama ini menumbuhkan keguyuban dan kerukunan. Terima kasih sangat, Kyai Agus Ali Masyhuri
+Selawat bersama ini menumbuhkan keguyuban dan kerukunan. Terima kasih sangat, kiai Agus Ali Masyhuri
 Alhamdulillah, sangat bersyukur bisa hadir di majelis selawat ini. Semoga kita semua mendapat berkah dari Allah SWT
 Dengan pengalaman dan dedikasi yang dimiliki Bu Khofifah, saya yakin Jawa Timur akan makin maju di dua periode mendatang
 Bu Khofifah adalah sosok pemimpin yang selalu mendengarkan rakyatnya. Semoga bisa memimpin dua periode lebih lama lagi
@@ -12635,13 +12635,13 @@ Kepemimpinan Bu Khofifah sudah sangat efektif, mari dukung beliau untuk memimpin
 Bu Khofifah telah banyak membawa perubahan yang bermanfaat, mari kita dukung beliau untuk dua periode agar lebih banyak manfaat yang dirasakan
 Setiap kebijakan Bu Khofifah selalu berpihak pada rakyat, semoga bisa terus memimpin dengan penuh dedikasi di periode kedua
 Bu Khofifah memiliki kapasitas untuk memimpin lebih lama, semoga dua periode ke depan membawa lebih banyak kemajuan untuk Jawa Timur
-keberkahan untuk kita semua. Terima kasih, Kyai Agus Ali Masyhuri
+keberkahan untuk kita semua. Terima kasih, kiai Agus Ali Masyhuri
 Barakallah, semoga majelis selawat ini terus membawa kebaikan untuk Sidoarjo dan sekitarnya
-Terima kasih, Kyai Agus Ali Masyhuri, atas undangan majelis selawatnya. Semoga berkah selalu
+Terima kasih, kiai Agus Ali Masyhuri, atas undangan majelis selawatnya. Semoga berkah selalu
 Semoga acara ini membawa keberkahan bagi kita semua dan memperkuat tali persaudaraan
 Alhamdulillah sejuk rasanya
-Berselawat bersama membangun kedamaian di hati kita semua. Terima kasih atas undangannya, Kyai
-Majelis selawat di Bumi Sholawat selalu penuh dengan kesejukan. Terima kasih atas inspirasinya, Kyai
+Berselawat bersama membangun kedamaian di hati kita semua. Terima kasih atas undangannya, kiai
+Majelis selawat di Bumi Sholawat selalu penuh dengan kesejukan. Terima kasih atas inspirasinya, kiai
 Selalu menyebarkan kebaikan ya bu
 Subhanallah adem bu lanjutkan xemoticonx
 Tidak ada lawan bu
@@ -12817,7 +12817,7 @@ Bangga rasanya bisa mendengar kisah dari seorang pemimpin yang mengutamakan kola
 Kepemimpinan perempuan yang penuh teladan! Acara ini memberi banyak pelajaran bagi generasi muda untuk berani maju
 Dari Ketua OSIS hingga gubernur, perjalanan yang begitu menginspirasi! Terima kasih telah menjadi contoh pemimpin sejati
 Acara yang luar biasa! Memperlihatkan bahwa menjadi pemimpin berarti terus belajar dan bekerja sama dengan banyak pihak
-Masyaallah, ada Kyai Faqih juga sebelah kanan paling tinggi xemoticonx mantan Ketua PCI NU UK yang pertama xemoticonx xemoticonx xemoticonx
+Masyaallah, ada kiai Faqih juga sebelah kanan paling tinggi xemoticonx mantan Ketua PCI NU UK yang pertama xemoticonx xemoticonx xemoticonx
 Sudah pasti menang-menang Bu xemoticonx xemoticonx
 xemoticonx periode Bu xemoticonx xemoticonx
 Menang satu putaran xemoticonx
@@ -13105,7 +13105,6 @@ Mantap Bu
 Wah senangnya melihat itu
 Masyaallah Probolinggo bisa jadi sentral anggur nasional dan Bu Khofifah diberi kesehatan dan kelancaran dalam tugas juga ikhtiar pemilihan kepala daerah 2024, amin
 Probolinggo memang bagus Bu Khofifah
-[DELETED]
 Minta Bu Khofifah
 Top, masyaallah relawan yang terbaik pokoknya xemoticonx xemoticonx
 Top, relawannya top pimpinannya top juga xemoticonx
@@ -13555,7 +13554,6 @@ Dukung Bu Khofifah untuk masa depan yang lebih baik. Beliau adalah pemimpin yang
 Semoga perjuangan Bu Khofifah terus diberikan jalan oleh Tuhan untuk memajukan negeri ini! xemoticonx
 Mbak, saya pesan ya?
 Bu tolong bu, penertiban musik setan yang namanya horeg di tertibkan, malu-maluin Jawa Timur bu xemoticonx
-[DELETED]
 Gagal fokus melihat kegagahan dan karisma Bunda xmentionx pakai baju kebesaran xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lanjutkan Bu resik xemoticonx Jawa Timur, kalau sudah jadi minta tolong dirapikan pasar gadang Bu xemoticonx
 Luar biasa antusiasmenya xemoticonx xemoticonx
@@ -15227,7 +15225,6 @@ Sudah cukup satu periode saja ya
 Jangan lanjut dua periode xemoticonx
 Kapan ya calon gubernur saya ini ke rumah saya xemoticonx
 Ada saran Bu Mas dari saya warga Kalimantan xmentionx dan xmentionx pihak lawan debat selalu pakai templat dari komentar-komentar media sosial itu jelas bukan debat tapi mematikan perdebatan, saran pakai gaya debat mas Gibran di Pilpres kemarin, dan tambahkan bumbu-bumbu program yang sudah jalan baik dan akan ditambahkan
-[DELETED]
 Maaf Bu, saya tidak berpikir dulu ya, belum bisa menentukan pilihan, semoga hari H pencoblosan pun punya pilihan xemoticonx xemoticonx xemoticonx
 Pasti menang Bu Khofifah xemoticonx
 Jujur dari mana, yang membohongi, korupsi, tidak bisa kerja beda dengan Pakde Karwo Jawa Timur maju, sejak hancur xmentionx malas
@@ -15471,12 +15468,12 @@ Mendukung petani muda dengan visi masa depan yang cerah
 Mantap Bu sangat peduli dengan ujung tombak Jawa Timur
 Menyala xemoticonx xemoticonx
 Kasih alamatnya atau nomor WhatsApp-nya minat beli bibitnya
-Gas pol petani milenial xemoticonx xemoticonx
+Gas penuh petani milenial xemoticonx xemoticonx
 Mantap ini lo
 Petani muda luar biasa xemoticonx xemoticonx
 Semoga langkah ini membawa banyak inspirasi bagi para pemuda di desa-desa lain untuk terjun ke dunia pertanian modern
 Wah, inspiratif! Bertani dengan inovasi dan tren masa kini, Mas Miftahul buktikan kalau anak muda bisa sukses di pertanian. Semoga makin banyak petani muda hebat seperti ini! xemoticonx xemoticonx xemoticonx
-Lanjutkan Ibu. Gas pol
+Lanjutkan Ibu. Gas penuh
 Ini baru panutan! Mas Miftahul tidak hanya ahli di ladang, tapi juga jadi inspirasi untuk anak muda. Semoga semakin sukses dan bisa memajukan pertanian di Trenggalek! xemoticonx xemoticonx
 Anak muda yang kreatif
 Pemimpin yang selalu memimpin rakyat
@@ -15729,7 +15726,7 @@ Top, menyala selalu Bu semangatnya
 Bangga melihat perhatian Ibu Khofifah dan Mas Emil dalam melestarikan seni pencak silat. Semoga impian menjadikan Jawa Timur sebagai Gerbang Baru Nusantara bisa terwujud
 Luar biasa sekali
 Langkah positif yang inspiratif untuk kemajuan pencak silat Jawa Timur! Semoga makin banyak prestasi yang lahir dari para pendekar kita. Jaya selalu PSHW dan Jawa Timur
-Gas pol Bu
+Gas penuh Bu
 Sungguh langkah bijak yang akan mengangkat pencak silat dan budaya Jawa Timur ke panggung dunia. Kami dukung penuh inisiatif ini. Terus maju dan menginspirasi, Bu Khofifah dan Mas Emil xemoticonx xemoticonx
 Sinergi yang luar biasa antara pemerintah dan PSHW untuk kemajuan bersama. Dengan niat baik ini, semoga pencak silat makin membanggakan Indonesia di dunia internasional xemoticonx
 Kehadiran mereka membuktikan pentingnya menjaga tradisi dan silaturahmi
@@ -15923,7 +15920,6 @@ Lo ada Mas Ipin xemoticonx xemoticonx xemoticonx xemoticonx
 Batik muslimin ala xmentionx xemoticonx xemoticonx xemoticonx xemoticonx
 Keren sekali pemimpin yang turun langsung ke pasar subuh, contoh pemimpin yang merakyat
 Mas Ipin memang selalu punya cara untuk mendekatkan diri dengan masyarakat. Lanjutkan terus kedekatan ini
-[DELETED]
 Luar biasa kekompakannya, senang melihat pemimpin yang merakyat dan dekat dengan masyarakat
 Menyala Trenggalek mestinya 02 xemoticonx
 Revisi tahunnya, harusnya 2024 kan
@@ -16436,10 +16432,9 @@ Kebijakan yang diambil Bu Khofifah sangat menguntungkan petani lokal, semoga ter
 Benar-benar inspiratif, Bu! Terima kasih telah memberikan perhatian dan dukungan bagi petani kita xemoticonx xemoticonx
 Bu Khofifah terus dukung petani ya Bu
 Luar biasa, Bu Khofifah! Semoga semangat ini terus menginspirasi semua generasi xemoticonx xemoticonx
-[DELETED]
 Nama aku Alfan Ngemplak Rejo Kota Pasuruan
 Nomor telepon aku 088234121016
-[DELETED]
+Terima kasih banyak ya
 Ibu Khofifah
 Petani lumbung kehidupan bangsa, sehat selalu
 Bu Khofifah pemimpin mau turun ke lapangan
@@ -16597,8 +16592,7 @@ Masyaallah mau Ibu saya xemoticonx xemoticonx
 Besar sekali xemoticonx xemoticonx
 Kirim xemoticonx-nya dong Bu ke Kuningan xemoticonx
 Masyaallah mau Bu
-[DELETED]
-Ngawi mana ya
+Ngawinya mana ya
 Saya ingin mencoba Bu, satu biji berapa kilogram itu Bu?
 Kirim Bu Haji Khofifah ke Balikpapan
 Ya Bu benar masak saja tidak usah memimpin Jawa Timur lagi ya, banyak tugas yang tidak Ibu selesaikan nanti Jawa Timur makin buruk kalau sama Bu Khofifah lagi, cukup satu periode saja
@@ -16805,7 +16799,6 @@ Terima kasih atas perhatian Bu Khofifah untuk sektor pertanian
 Semangat warga Ngawi untuk mendukung Bu Khofifah sangat tinggi xemoticonx
 xmentionx dua Bu menang xemoticonx xemoticonx
 Bu Khofifah pemimpin berani turun ke masyarakat
-[DELETED]
 Warga Ngawi siap bersatu mendukung Bu Khofifah untuk kemajuan bersama xemoticonx
 Dukungan penuh dari warga Ngawi untuk Bu Khofifah, mari kita maju bersama xemoticonx
 Kami bangga bisa mendukung Bu Khofifah, semoga visi beliau terwujud xemoticonx
@@ -16944,7 +16937,7 @@ Hidup adalah perjuangan, benar sekali! Terus berkarya dan berinspirasi
 Semoga semangat perjuangan ini membawa perubahan yang positif bagi kita semua!
 Semangat terus Bu xmentionx dan Pak xmentionx, tetap berjuang untuk masyarakat Jawa Timur dan bangsa Indonesia menjadi makin maju dan makmur
 Saya bersama FahMil xemoticonx xemoticonx xemoticonx xemoticonx
-[DELETED]
+Alah. Omong kosong
 Loh ya ini yang keren xemoticonx xemoticonx
 Mengagumkan
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Ibu xemoticonx xemoticonx xemoticonx
@@ -17028,7 +17021,7 @@ Bu Khofifah lanjutkan untuk Jawa Timur maju berprestasi
 Optimis kita bisa menangkan Khofifah Emil
 Hidup memang harus diperjuangkan
 Lanjutkan saja Bu Khofifah Mas Emil
-Gas pol Ibu. Menyala gubernurku xemoticonx xemoticonx xemoticonx xemoticonx
+Gas penuh Ibu. Menyala gubernurku xemoticonx xemoticonx xemoticonx xemoticonx
 Hidup adalah perjuangan xemoticonx xemoticonx xemoticonx
 Mantap Bu
 Gaul sekali calon gubernur kita xmentionx
@@ -17122,7 +17115,7 @@ Terima kasih, Ibu Khofifah, untuk perhatian dan dukungan yang telah diberikan ke
 Bersyukur atas kunjungan Ibu Khofifah, semoga kolaborasi ini semakin erat ke depannya
 Menyala Ibu xemoticonx
 Malang akan selalu bersama 02 xemoticonx xemoticonx xemoticonx
-Gas pol Malang xemoticonx xemoticonx xemoticonx
+Gas penuh Malang xemoticonx xemoticonx xemoticonx
 Insyaallah warga Malang tidak akan menyesal dan salah pilih, jika pilih nomor dua xemoticonx
 Luar biasa antusias masyarakat Malang xemoticonx xemoticonx
 Insyaallah Malang unggul 02 xemoticonx
@@ -17499,7 +17492,7 @@ Lebih baik bantu dana untuk mengembangkan seni daripada hanya pencitraan, begini
 Memang kreatif orang-orang Jawa Timur itu
 Maju terus UMKM Jawa Timur
 Ada juga singo ulung Bondowoso Bu xmentionx
-Gas pol terus Bu Khofifah
+Gas penuh terus Bu Khofifah
 Top sekali
 xemoticonx Hai Kak xemoticonx pengikut paten kakak agar menyala xemoticonx
 Insyaallah UMKM makin sejahtera dengan program-program dan kepemimpinan Bunda xemoticonx xemoticonx
@@ -18574,7 +18567,7 @@ Semoga dilancarkan segala urusannya Bu
 Luar biasa masyaallah terima kasih Bu Khofifah
 Tangisan tulus penuh cita
 Langkah menuju kemenangan xemoticonx xemoticonx xemoticonx xemoticonx
-Gas pol Bu Khofifah
+Gas penuh Bu Khofifah
 Bismillah dua periode
 Ketulusan terpancar dari hati, khalifah di bumi Allah siap berjuang untuk kemakmuran rakyatnya, semoga dimudahkan Allah dalam setiap langkah beliau, amin amin ya rabbal alamin
 Penuh cinta
@@ -19704,7 +19697,6 @@ Bandara baru, harapan baru untuk ekonomi dan kesejahteraan Jawa Timur! xemoticon
 Bandara Dhoho, simbol pemerataan pembangunan di Jawa Timur! xemoticonx xemoticonx
 Tol Kertosono - Kediri sampai sekarang bagaimana progresnya? Lama sekali tidak jadi-jadi.
 Pemerataan pembangunan lanjutkan Ibu xemoticonx xemoticonx xemoticonx xemoticonx
-[DELETED]
 Jawa Timur makin maju dan berkembang di bawah kepemimpinan Bu Khofifah
 Bu Khofifah berhasil membawa Jawa Timur menjadi provinsi yang lebih modern dan inovatif
 Makin terlihat kemajuan Jawa Timur di berbagai sektor dengan kerja keras Bu Khofifah
@@ -19767,8 +19759,6 @@ Kediri raya makin maju amin
 Lanjutkan Bu, sudah kerja nyata
 xemoticonx xemoticonx xemoticonx xemoticonx jaya xemoticonx xemoticonx xemoticonx xemoticonx
 Kalau peresmian pasti Ibu ini tidak pernah ketinggalan
-[DELETED]
-[DELETED]
 Bisa saja ya permainan politik xemoticonx bukannya sudah ada Plt Gubernur Jawa Timur. Masa begini mainnya Bu? Tidak salah sih, tidak beretika saja xemoticonx Tidak termasuk strategi xemoticonx menghalalkan segala cara xemoticonx juga karena halal-halal saja. Tidak beretika saja sih
 Mantap Jawa Timur makin di depan xemoticonx xemoticonx xemoticonx
 Wah mantap ini, transportasi makin maju xemoticonx xemoticonx
@@ -20073,7 +20063,7 @@ Tidak masuk sama sekali, lewati saja lah
 Lewati-lewati, rakyat kecil tidak diperhatikan sama sekali
 Saya tidak merasa jadi penjahat melakukan kejahatan pada orang lain, kalau orang lain melakukan saya buat tuduhan benar ada jaringan. Dilindungi karena sama-sama asli penjahatnya. Seharusnya TNI bertemu saya bawa-bawa saja dulu ke Mabes TNI mencari tahu benar tidak. Saya ada nanti tempat
 Aku ke sana
-Sandal Lily punya saya persis seperti yang dipakai Mas Emil. Tetapi sayangnya waktu ziarah ke Kyai Kholil Bangkalan tertukar. saya kira pakai sandal Lily sudah paling beda. Ternyata tetap ada yang menyamakan, tertukar ukuran lebih kecil xemoticonx
+Sandal Lily punya saya persis seperti yang dipakai Mas Emil. Tetapi sayangnya waktu ziarah ke kiai Kholil Bangkalan tertukar. saya kira pakai sandal Lily sudah paling beda. Ternyata tetap ada yang menyamakan, tertukar ukuran lebih kecil xemoticonx
 Sandal yang dipakai Mas Emil mirip sekali dengan sandalnya mbah saya xemoticonx
 Ibu tolong perempatan Legundi Krian macet sudah puluhan tahun tolong ya Bu kalau dapat amanah lagi
 Mantap
@@ -20364,39 +20354,39 @@ Semoga satu putaran menang 67 persen
 Ini Bu yang mangap depan sendiri xmentionx
 Alhamdulillah, sama-sama mantan menteri sosial xemoticonx yang belum pernah jadi menteri tidak ikut xemoticonx
 Sungguh luar biasa dedikasinya dan perhatiannya
-Luar biasa! Terima kasih kepada Kyai Fathur Rozi Zubair dan tim pemenangan atas upaya memberikan layanan air bersih untuk masyarakat
-Terima kasih Kyai Fathur Rozi Zubair dan tim pemenangan, bantuan air bersih ini sangat membantu masyarakat Bangkalan. Ini sejalan dengan visi Bu Khofifah untuk terus meningkatkan kesejahteraan warga. Semoga berkah bagi semua
-Bantuan air bersih dari Kyai Fathur Rozi Zubair menunjukkan sinergi yang baik dengan program Bu Khofifah dalam mewujudkan kesejahteraan masyarakat. Semoga membawa manfaat yang berkelanjutan
+Luar biasa! Terima kasih kepada kiai Fathur Rozi Zubair dan tim pemenangan atas upaya memberikan layanan air bersih untuk masyarakat
+Terima kasih kiai Fathur Rozi Zubair dan tim pemenangan, bantuan air bersih ini sangat membantu masyarakat Bangkalan. Ini sejalan dengan visi Bu Khofifah untuk terus meningkatkan kesejahteraan warga. Semoga berkah bagi semua
+Bantuan air bersih dari kiai Fathur Rozi Zubair menunjukkan sinergi yang baik dengan program Bu Khofifah dalam mewujudkan kesejahteraan masyarakat. Semoga membawa manfaat yang berkelanjutan
 Luar biasa lanjutkan xemoticonx
 Bakti nyata untuk masyarakat! Terima kasih Bu Khofifah atas kepedulian dan layanan air bersih di Bangkalan! xemoticonx xemoticonx
-Bakti sosial dari Kyai Fathur Rozi Zubair ini merupakan langkah nyata dalam mendukung visi Bu Khofifah untuk memastikan kebutuhan pokok masyarakat terpenuhi. Semoga membawa keberkahan
+Bakti sosial dari kiai Fathur Rozi Zubair ini merupakan langkah nyata dalam mendukung visi Bu Khofifah untuk memastikan kebutuhan pokok masyarakat terpenuhi. Semoga membawa keberkahan
 Ini bukan untuk umum ya dipilih dari golongan apa dulu muslimat apa tidak wkwk
 Semoga layanan air bersih yang diberikan dapat memberikan manfaat besar bagi masyarakat di Bangkalan
 Langkah maju untuk Bangkalan! Terima kasih Bu Khofifah atas layanan air bersih yang sangat dibutuhkan masyarakat! xemoticonx xemoticonx
-Semoga kebaikan Kyai Fathur Rozi dibalas dengan pahala berlipat ganda
+Semoga kebaikan kiai Fathur Rozi dibalas dengan pahala berlipat ganda
 Konsisten apa tidak Bu apa hanya karena dekat pemilihan gubernur saja?
 Bu maaf, dulu kemana ya? Kok baru turun sekarang
 Semoga layanan ini terus berlanjut
 Bu Khofifah selalu hadir untuk kesejahteraan masyarakat! Terima kasih atas layanan air bersih bagi warga Bangkalan! xemoticonx xemoticonx
-Terima kasih Kyai Fathur Rozi Zubair. Bantuan ini selaras dengan komitmen Bu Khofifah dalam memperhatikan kebutuhan dasar masyarakat. Semoga terus memberi kebaikan bagi banyak orang
-Perhatian yang tulus untuk masyarakat Bangkalan. Terima kasih Bu Khofifah dan Kyai Fathur Rozi Zubair atas layanan air bersih ini! xemoticonx xemoticonx
-Terima kasih Kyai Fathur Rozi Zubair, langkah ini selaras dengan semangat Bu Khofifah untuk memperjuangkan hak-hak masyarakat, termasuk kebutuhan air bersih. Semoga jadi inspirasi bagi banyak pihak
-Salut untuk Kyai Fathur Rozi Zubair dan tim pemenangan yang telah mewujudkan akses air bersih, sebuah langkah konkret mendukung program Bu Khofifah untuk kesejahteraan masyarakat. Semoga semakin maju
-Terima kasih atas bantuan yang sangat bermanfaat ini. Inisiatif Kyai Fathur Rozi Zubair selaras dengan visi Bu Khofifah dalam memastikan seluruh warga Jawa Timur mendapatkan akses air bersih. Semoga berkahnya berlimpah
+Terima kasih kiai Fathur Rozi Zubair. Bantuan ini selaras dengan komitmen Bu Khofifah dalam memperhatikan kebutuhan dasar masyarakat. Semoga terus memberi kebaikan bagi banyak orang
+Perhatian yang tulus untuk masyarakat Bangkalan. Terima kasih Bu Khofifah dan kiai Fathur Rozi Zubair atas layanan air bersih ini! xemoticonx xemoticonx
+Terima kasih kiai Fathur Rozi Zubair, langkah ini selaras dengan semangat Bu Khofifah untuk memperjuangkan hak-hak masyarakat, termasuk kebutuhan air bersih. Semoga jadi inspirasi bagi banyak pihak
+Salut untuk kiai Fathur Rozi Zubair dan tim pemenangan yang telah mewujudkan akses air bersih, sebuah langkah konkret mendukung program Bu Khofifah untuk kesejahteraan masyarakat. Semoga semakin maju
+Terima kasih atas bantuan yang sangat bermanfaat ini. Inisiatif kiai Fathur Rozi Zubair selaras dengan visi Bu Khofifah dalam memastikan seluruh warga Jawa Timur mendapatkan akses air bersih. Semoga berkahnya berlimpah
 Dengan hanya kirim air bersih tidak menyelesaikan masalah, sama saja
 Memberi bantuan saat kampanye xemoticonx xemoticonx xemoticonx
-Semoga usaha Kyai Fathur Rozi dan tim dilancarkan oleh Allah
+Semoga usaha kiai Fathur Rozi dan tim dilancarkan oleh Allah
 Setelah jadi tidak bagi-bagi air lagi xemoticonx
 Kemenangan Bu Khofifah tidak bisa lepas dari tim beliau yang baik
 Kampanye elit, kerja nyata sulit
 Bantuannya kurang merata masih pilih satu
-Bantuan air bersih ini sangat dibutuhkan oleh masyarakat. Langkah Kyai Fathur Rozi Zubair menunjukkan dukungan terhadap upaya Bu Khofifah dalam mengedepankan kesejahteraan rakyat. Semoga membawa manfaat luas
+Bantuan air bersih ini sangat dibutuhkan oleh masyarakat. Langkah kiai Fathur Rozi Zubair menunjukkan dukungan terhadap upaya Bu Khofifah dalam mengedepankan kesejahteraan rakyat. Semoga membawa manfaat luas
 Panjang umur untuk hal-hal yang bermanfaat xemoticonx
 Layanan air bersih hanya membantu, tetapi tidak menyelesaikan masalah
 Tidak menyelesaikan masalah coba dipikir deh, pantas hasil kerjanya seperti tidak ada
-Terima kasih banyak, Kyai Fathur Rozi Zubair, atas kepeduliannya terhadap masyarakat
+Terima kasih banyak, kiai Fathur Rozi Zubair, atas kepeduliannya terhadap masyarakat
 Lanjutkan hal-hal positif xemoticonx
-Alhamdulillah, terima kasih Kyai Fathur Rozi Zubair, atas inisiatifnya yang luar biasa dalam menyediakan air bersih untuk warga
+Alhamdulillah, terima kasih kiai Fathur Rozi Zubair, atas inisiatifnya yang luar biasa dalam menyediakan air bersih untuk warga
 Sudah Bu Jawa Timur butuh perubahan
 Rakyat Bangkalan pasti dukung Khofifah Emil
 Lo ini kekeringan? Di daerah Jawa Timur?
@@ -20405,17 +20395,17 @@ Layanan air bersih sangat membantu para warga
 Layanan air bersih sangat membantu para warga dan meringankan beban mereka
 Memberikan kontribusi nyata kepada masyarakat
 Air bersih semoga berkah untuk semua warga
-Terima kasih Kyai inisiatif yang luar biasa
+Terima kasih kiai inisiatif yang luar biasa
 Inisiatif ini sangat berarti bagi warga Bangkalan! Semoga program ini terus berlanjut dan memberikan manfaat lebih
-Terima kasih Kyai Fathur! Air bersih adalah kebutuhan dasar, dan langkah ini sangat membantu masyarakat
+Terima kasih kiai Fathur! Air bersih adalah kebutuhan dasar, dan langkah ini sangat membantu masyarakat
 Keren sekali! Semoga semua daerah bisa mengikuti jejak ini untuk memastikan akses air bersih bagi semua
-Dukungan Kyai Fathur dan tim patut diacungi jempol! Semoga semakin banyak program yang bermanfaat bagi masyarakat
-Air bersih adalah hak setiap orang. Terima kasih telah memperjuangkannya, Kyai Fathur!
+Dukungan kiai Fathur dan tim patut diacungi jempol! Semoga semakin banyak program yang bermanfaat bagi masyarakat
+Air bersih adalah hak setiap orang. Terima kasih telah memperjuangkannya, kiai Fathur!
 Semoga layanan air bersih ini menjadi awal dari banyak perubahan positif di Kabupaten Bangkalan
 Kerja keras tim pemenangan ini sangat menginspirasi! Semoga terus memberikan solusi bagi masyarakat
-Terima kasih kepada Kyai Fathur dan tim! Semoga langkah ini membawa berkah bagi semua
-Masyarakat sangat membutuhkan akses air bersih. Terima kasih atas upayanya, Kyai Fathur, semoga semakin sukses!
-Manfaat dan berkah selalu Kyai xemoticonx
+Terima kasih kepada kiai Fathur dan tim! Semoga langkah ini membawa berkah bagi semua
+Masyarakat sangat membutuhkan akses air bersih. Terima kasih atas upayanya, kiai Fathur, semoga semakin sukses!
+Manfaat dan berkah selalu kiai xemoticonx
 Gerakan semacam ini yang terus meyakinkan saya untuk memilih kembali Bu Khofifah xemoticonx xemoticonx
 Lanjutkan sekali lagi Bu Khofifah
 Panjang umur hal-hal baik
@@ -20426,40 +20416,40 @@ Lanjut sekali lagi ya Bu xemoticonx
 Kepedulian yang luar biasa dalam menanggapi masalah xemoticonx xemoticonx xemoticonx xemoticonx
 Mengapa baru sekarang? Eh iya lupa kan ada maunya
 Bu Khofifah ya
-Terima kasih Kyai
-Alhamdulillah, terima kasih atas kepedulian Kyai Fathur Rozi Zubair yang sejalan dengan program Bu Khofifah untuk meningkatkan akses air bersih di daerah-daerah. Semoga masyarakat semakin sejahtera
+Terima kasih kiai
+Alhamdulillah, terima kasih atas kepedulian kiai Fathur Rozi Zubair yang sejalan dengan program Bu Khofifah untuk meningkatkan akses air bersih di daerah-daerah. Semoga masyarakat semakin sejahtera
 Air bersih penting bagi rakyat
-Kyai Fathur Rozi Zubair dan tim pemenangan telah menunjukkan aksi nyata yang sejalan dengan program Bu Khofifah. Bantuan air bersih ini sangat membantu masyarakat Bangkalan yang membutuhkan. Semoga terus berkah
-Terima kasih Kyai
+kiai Fathur Rozi Zubair dan tim pemenangan telah menunjukkan aksi nyata yang sejalan dengan program Bu Khofifah. Bantuan air bersih ini sangat membantu masyarakat Bangkalan yang membutuhkan. Semoga terus berkah
+Terima kasih kiai
 Semoga bisa istikamah
 Kemenangan dan keberkahan untuk tim Khofifah
-Pak Kyai terima kasih ya
+Pak kiai terima kasih ya
 Tim Khofifah Emil bawa keberkahan di Jawa Timur
 Bangkalan insyaallah dukung Khofifah Emil
 Aku Sidoarjo hadir Bu Khofifah
 Air sangat penting Bu Khofifah semoga bisa teratasi
-Terima kasih yang sebesar-besarnya kepada Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan. Usaha dan doa anda adalah kunci keberhasilan kita
-Kami sangat berterima kasih kepada Kyai Fathur Rozi Zubair dan tim yang sudah bekerja keras tanpa henti. Semoga segala perjuangan anda diberkahi
+Terima kasih yang sebesar-besarnya kepada kiai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan. Usaha dan doa anda adalah kunci keberhasilan kita
+Kami sangat berterima kasih kepada kiai Fathur Rozi Zubair dan tim yang sudah bekerja keras tanpa henti. Semoga segala perjuangan anda diberkahi
 Terima kasih atas dedikasinya, Bu Khofifah dan tim pemenangan Bangkalan, semoga air bersih ini bermanfaat bagi masyarakat! xemoticonx xemoticonx
-Pengabdian dan ketulusan Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan sungguh luar biasa. Terima kasih atas dedikasinya
+Pengabdian dan ketulusan kiai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan sungguh luar biasa. Terima kasih atas dedikasinya
 Bukti nyata bukan omong xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Alhamdulillah, berkat bimbingan dan arahan Kyai Fathur Rozi Zubair, kita bisa mencapai kemenangan ini. Terima kasih untuk semuanya
-Terima kasih yang tak terhingga untuk Kyai Fathur Rozi Zubair dan tim pemenangan Bangkalan. Semoga Allah membalas semua usaha baik anda
-Terima kasih Kyai Fathur Rozi Zubair dan seluruh tim pemenangan Kabupaten Bangkalan. Perjuangan dan doa kalian tidak akan terlupakan
-Kami mengucapkan syukur dan terima kasih atas bimbingan Kyai Fathur Rozi Zubair dan kerja keras tim pemenangan Kabupaten Bangkalan. Semoga selalu diberi kesehatan dan kekuatan
-Terima kasih kepada Kyai Fathur Rozi Zubair dan tim yang telah bekerja siang malam demi kemenangan ini. Semoga keberkahan selalu menyertai anda
-Tidak ada kata yang cukup untuk mengungkapkan terima kasih kepada Kyai Fathur Rozi Zubair dan tim. Doa dan dedikasi kalian sangat berharga
-Terima kasih Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan. Berkat bimbingan anda, kita bisa mencapai hasil yang terbaik
-Kyai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan telah memberikan yang terbaik. Terima kasih untuk semua perjuangan tanpa lelah
-Atas usaha dan doa dari Kyai Fathur Rozi Zubair, kami bisa mencapai kemenangan ini. Terima kasih banyak atas pengorbanan anda
-Terima kasih kepada Kyai Fathur Rozi Zubair dan tim pemenangan Bangkalan yang telah menunjukkan kepemimpinan yang tulus dan inspiratif
-Semua ini tidak lepas dari perjuangan Kyai Fathur Rozi Zubair dan tim. Terima kasih atas segala dedikasi dan kerjanya
+Alhamdulillah, berkat bimbingan dan arahan kiai Fathur Rozi Zubair, kita bisa mencapai kemenangan ini. Terima kasih untuk semuanya
+Terima kasih yang tak terhingga untuk kiai Fathur Rozi Zubair dan tim pemenangan Bangkalan. Semoga Allah membalas semua usaha baik anda
+Terima kasih kiai Fathur Rozi Zubair dan seluruh tim pemenangan Kabupaten Bangkalan. Perjuangan dan doa kalian tidak akan terlupakan
+Kami mengucapkan syukur dan terima kasih atas bimbingan kiai Fathur Rozi Zubair dan kerja keras tim pemenangan Kabupaten Bangkalan. Semoga selalu diberi kesehatan dan kekuatan
+Terima kasih kepada kiai Fathur Rozi Zubair dan tim yang telah bekerja siang malam demi kemenangan ini. Semoga keberkahan selalu menyertai anda
+Tidak ada kata yang cukup untuk mengungkapkan terima kasih kepada kiai Fathur Rozi Zubair dan tim. Doa dan dedikasi kalian sangat berharga
+Terima kasih kiai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan. Berkat bimbingan anda, kita bisa mencapai hasil yang terbaik
+kiai Fathur Rozi Zubair dan tim pemenangan Kabupaten Bangkalan telah memberikan yang terbaik. Terima kasih untuk semua perjuangan tanpa lelah
+Atas usaha dan doa dari kiai Fathur Rozi Zubair, kami bisa mencapai kemenangan ini. Terima kasih banyak atas pengorbanan anda
+Terima kasih kepada kiai Fathur Rozi Zubair dan tim pemenangan Bangkalan yang telah menunjukkan kepemimpinan yang tulus dan inspiratif
+Semua ini tidak lepas dari perjuangan kiai Fathur Rozi Zubair dan tim. Terima kasih atas segala dedikasi dan kerjanya
 Air bersih, untuk hidup yang lebih baik. Terima kasih atas perhatian Bu Khofifah bagi masyarakat Bangkalan! xemoticonx xemoticonx
-Terima kasih kepada Kyai Fathur Rozi Zubair yang telah membimbing dengan penuh kesabaran dan keikhlasan. Semoga anda selalu diberi kemudahan
+Terima kasih kepada kiai Fathur Rozi Zubair yang telah membimbing dengan penuh kesabaran dan keikhlasan. Semoga anda selalu diberi kemudahan
 Selalu bawa berkah dan manfaat
-Keberhasilan ini adalah hasil dari perjuangan dan doa Kyai Fathur Rozi Zubair serta tim pemenangan Kabupaten Bangkalan. Terima kasih banyak!
-Kami sangat berterima kasih kepada Kyai Fathur Rozi Zubair yang selalu memimpin dengan hati. Anda adalah teladan bagi kami semua
-Terima kasih untuk Kyai Fathur Rozi Zubair dan seluruh tim yang tidak pernah lelah bekerja demi kemenangan kita bersama
+Keberhasilan ini adalah hasil dari perjuangan dan doa kiai Fathur Rozi Zubair serta tim pemenangan Kabupaten Bangkalan. Terima kasih banyak!
+Kami sangat berterima kasih kepada kiai Fathur Rozi Zubair yang selalu memimpin dengan hati. Anda adalah teladan bagi kami semua
+Terima kasih untuk kiai Fathur Rozi Zubair dan seluruh tim yang tidak pernah lelah bekerja demi kemenangan kita bersama
 Ya ini gubernurku xemoticonx xemoticonx
 Langkah kecil yang berdampak besar! Terima kasih Bu Khofifah dan tim atas layanan air bersih bagi masyarakat Bangkalan! xemoticonx xemoticonx
 Bukti nyata ini bos
@@ -20467,7 +20457,7 @@ Terima kasih Gus bantuan airnya
 Warga Bangkalan siap kawal Bu Khofifah sampai menang
 Air bersih untuk masa depan yang lebih cerah! Terima kasih Bu Khofifah atas inisiatif luar biasa ini! xemoticonx xemoticonx
 Nah ini baru pemimpin cepat, tepat, tidak bertele-tele tidak drama langsung turun ke masyarakat xemoticonx xemoticonx
-Perjuangan untuk kesejahteraan masyarakat terus berlanjut. Terima kasih Bu Khofifah dan Kyai Fathur Rozi atas layanan air bersih di Bangkalan! xemoticonx xemoticonx
+Perjuangan untuk kesejahteraan masyarakat terus berlanjut. Terima kasih Bu Khofifah dan kiai Fathur Rozi atas layanan air bersih di Bangkalan! xemoticonx xemoticonx
 Air bersih untuk rakyat mantap
 Janji nyata bukan omong xemoticonx xemoticonx xemoticonx xemoticonx
 Ini dia pemimpin sejati xemoticonx xemoticonx xemoticonx xemoticonx
@@ -20931,7 +20921,7 @@ Jeep klasik buatan tangan pasti punya karakter dan kualitas tersendiri. Semoga b
 Bangga sekali ada bengkel lokal yang bisa memproduksi mobil klasik buatan tangan! Semoga terus berkarya dan sukses! xemoticonx xemoticonx
 Siap bergabung! Khofifah-Emil sudah terbukti, mari bersama menangkan mereka lagi untuk masa depan yang lebih cerah. Ayo, lanjutkan! xemoticonx
 Terus musik horeg bagaimana
-Buzzer semua yang komentar xemoticonx xemoticonx xemoticonx
+buzer semua yang komentar xemoticonx xemoticonx xemoticonx
 Sukses terus untuk industri Jawa Timur
 Aku juga suka yang klasik
 Semoga Bu Khofifah sehat selalu
@@ -21596,7 +21586,7 @@ mulai sistem cari suara nih di 404tokno404
 mulai sistem cari suara nih di 404tokno404
 404ndang404 404diakeh404 program cari suara nih kan butuh sekali xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx salam Bu Khofifah Indar Parawansa Sehat selalu dan sukses di segala bidangnya agar bahagia dan sejahtera berkeadilan sosial bagi seluruh rakyat Indonesia xemoticonx xemoticonx xemoticonx
-sudah cukup satu periode saja lur
+sudah cukup satu periode saja saudara
 sudah cukup satu periode saja buk
 sudah tidak usah dua periode sudah cukup satu saja
 bismillah satu putaran xemoticonx
@@ -22202,7 +22192,7 @@ Warga Blitar siap mendukung program-program inovatif Bu Khofifah untuk kesejahte
 Keren warga Blitar
 Bu Khofifah telah membuktikan kepeduliannya terhadap kebutuhan masyarakat Blitar
 Kami melihat komitmen Bu Khofifah untuk membangun Blitar lebih baik, dukungan kami selalu
-Gas dua periode lur
+Gas dua periode saudara
 Kami mengapresiasi langkah-langkah nyata Bu Khofifah untuk memajukan Blitar
 Dukungan kami untuk Bu Khofifah adalah bentuk harapan akan masa depan yang lebih baik
 Apa-apaan kampanye hanya pengajian terus kok mau maju bu, kampanye yang menguntungkan rakyat dong xemoticonx
@@ -23814,7 +23804,7 @@ Dua panutannya generasi z tampil xemoticonx xemoticonx xemoticonx xemoticonx
 Mas AHY bersama Ibu Khofifah
 Ingat ya, gelar Mas AHY bukan gelar Dr. HC! xemoticonx
 xmentionx amin
-Banyak komentar buzzer xemoticonx xemoticonx
+Banyak komentar buzer xemoticonx xemoticonx
 Lanjutkan Mas AHY
 Pacitan pasti dukung Khofifah Emil
 Orang-orang yang hebat xemoticonx
@@ -24061,7 +24051,7 @@ Kreatif dong, jangan pengajian terus
 Ini acara pengajian atau cari suara? Ups
 Jadi cari suara atau pengajian Bu?
 Galang suara dimulai dengan acara pengajian, agama dan politik jangan dicampur adukkan!
-Ayolah pengajian kalau untuk kampanye janganlah xemoticonx xemoticonx tujuan dakwah kan untuk menyebarkan agama Islam xemoticonx kalau bersalawat ya karena kita mengenang sosok manusia yang paling istimewa di dunia ini nabi kita Muhammad SAW xemoticonx
+Ayolah pengajian kalau untuk kampanye janganlah xemoticonx xemoticonx tujuan dakwah kan untuk menyebarkan agama Islam xemoticonx kalau berselawat ya karena kita mengenang sosok manusia yang paling istimewa di dunia ini nabi kita Muhammad SAW xemoticonx
 Pengajian dengan maksud kepentingan haha
 Acara pencitraan
 Acara berkedok begini, sangat xemoticonx pencitraan
@@ -24687,7 +24677,7 @@ masyaallah kegiatan penuh berkah, sehat selalu Bu xemoticonx xemoticonx xemotico
 Terima kasih Bu Khofifah sudah menghadiri acara yang penuh berkah ini. Semoga kita semua diberi syafaat oleh Rasulullah SAW. amin xemoticonx xemoticonx
 Sehat selalu Bunda xemoticonx xemoticonx
 Pesan-pesan yang disampaikan Bu Khofifah selalu relevan dan memotivasi masyarakat untuk lebih mencintai ajaran Nabi
-Salawat kepada Muhammad xemoticonx selalu hadir di rangkaian Maulid Nabi bersama dengan masyarakat Jawa Timur. Bangkalan pasti bangga punya Ibu paling hebat. bismillah dimudahkan jalannya Khofifah Emil memimpin untuk Jawa Timur dua periode xemoticonx
+selawat kepada Muhammad xemoticonx selalu hadir di rangkaian Maulid Nabi bersama dengan masyarakat Jawa Timur. Bangkalan pasti bangga punya Ibu paling hebat. bismillah dimudahkan jalannya Khofifah Emil memimpin untuk Jawa Timur dua periode xemoticonx
 Acara yang sangat bermanfaat dan penuh makna. Semoga NU Galis Bangkalan makin kuat dalam mengawal nilai-nilai keagamaan dan sosial di tengah masyarakat
 Semoga Bu Khofifah jadi Gubernur xemoticonx
 02 tidak perlu diragukan xemoticonx
@@ -25379,8 +25369,8 @@ Turut berduka cita atas meninggalnya ibu Marissa Haque xemoticonx xemoticonx xem
 Beliau artis yang baik dari muda, aku dari masih sekolah SD suka menonton dia di TV, artisnya tidak aneh-aneh, baik, semoga husnul khatimah xemoticonx
 Innalillahi wa inna ilaihi rajiun semoga husnul khatimah amin
 Alfatihah untuk almarhumah xemoticonx
-Almarhum kyai boleh nawir meninggal di sampit nama bapaknya tajap, tajap ini paman kandung kyai pondok sembung banyuates jujuk dari bilengan bangkalan kata ibu keng ada di tlaga banyuates sampang. Sumber kenangan
-Kuncen gunung kawi dan ki sabdo palon dan anak kyai mazid. Kalau aku mau menyelamatkan di hadapan tokoh sakti satu dunia aku membalik telapak tangan ruh yang meninggal sudah bebas tapi yang aku mau
+Almarhum kiai boleh nawir meninggal di sampit nama bapaknya tajap, tajap ini paman kandung kiai pondok sembung banyuates jujuk dari bilengan bangkalan kata ibu keng ada di tlaga banyuates sampang. Sumber kenangan
+Kuncen gunung kawi dan ki sabdo palon dan anak kiai mazid. Kalau aku mau menyelamatkan di hadapan tokoh sakti satu dunia aku membalik telapak tangan ruh yang meninggal sudah bebas tapi yang aku mau
 Innalillahi. Insyaallah husnul khatimah. Amin
 Turut berduka cita xemoticonx
 Innalillahi wa inna ilaihi rajiun
@@ -25593,9 +25583,9 @@ Di balik setiap motif batik, ada cerita dan filosofi. Bangga dengan warisan bang
 Batik itu Indonesia sekali! Ayo, lestarikan bersama-sama xemoticonx
 Mari terus dukung para pembatik kita yang dengan telaten menjaga warisan bangsa xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Betul, batik memang indah, cerah, wangi, dan selalu disenangi oleh pria dan wanita xemoticonx xemoticonx xemoticonx xemoticonx hidup batik, sukses terus batik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Masyaallah tambah adem deh Jawa Timur kalau banyak salawat seperti ini
+Masyaallah tambah adem deh Jawa Timur kalau banyak selawat seperti ini
 Menghadiri acara seperti ini menunjukkan kedekatan Bu Khofifah dengan masyarakat dan ulama. Semoga berkah dan kedamaian selalu menyertai kita semua di Jawa Timur xemoticonx xemoticonx xemoticonx
-Rasanya damai sekali, penuh berkah! Doa dan salawat untuk kita semua xemoticonx
+Rasanya damai sekali, penuh berkah! Doa dan selawat untuk kita semua xemoticonx
 xemoticonx masyaallah ibunya Jawa Timur yang selalu jadi contoh baik bagi warganya. Doa warga Jawa Timur teriring selalu untuk Ning Khofifah
 Peringatan Maulid Nabi dan Haul KH Ahmad Zamachsyari adalah wujud cinta kita kepada ulama. Semoga semangat ini menguatkan Jawa Timur menuju masa depan yang lebih baik xemoticonx xemoticonx
 Luar biasa Bu Khofifah masih istikamah
@@ -25612,16 +25602,16 @@ Sosok pemimpin yang rendah hati dan selalu tanpa ragu turun ke bawah, lanjut Bu 
 Sosok seperti ini yang didambakan masyarakat Jawa Timur, bismillahirrahmanirrahim Jawa Timur bersama Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kehadiran Bu Khofifah membuat acara ini semakin meriah
 Bu Khofifah tidak pernah absen dalam acara-acara keagamaan, menunjukkan dedikasi tinggi terhadap akhlak dan moralitas bangsa
-Melalui salawat bersama Bu Khofifah, kami merasa lebih kuat dan optimis untuk masa depan Jawa Timur yang lebih damai
+Melalui selawat bersama Bu Khofifah, kami merasa lebih kuat dan optimis untuk masa depan Jawa Timur yang lebih damai
 Semoga doa dan zikir yang dipanjatkan membawa berkah untuk kita semua, amin. Lanjutkan Bu Khofifah xemoticonx
 Doa dan zikir yang berkumandang, Allahumma sholi ala sayyidina Muhammad wa ala ali sayyidina Muhammad, seiring doa-doa yang terpanjat, menjadikan sejuk damai dan penuh cinta kasih dari umat kepada Nabi dan Rasulnya
 Alhamdulillah semoga Jawa Timur semakin adem dan tenteram, terima kasih Ibu Khofifah xemoticonx xemoticonx
 Bu Khofifah, Anda selalu mendengarkan aspirasi masyarakat
 Ibuknya orang Jawa Timur memang inspiratif sekali xemoticonx xemoticonx
-Pemimpin yang terus menjaga tradisi dan budaya, Bu Khofifah menginspirasi kita untuk selalu bersalawat dan berdoa demi kemakmuran Jawa Timur
+Pemimpin yang terus menjaga tradisi dan budaya, Bu Khofifah menginspirasi kita untuk selalu berselawat dan berdoa demi kemakmuran Jawa Timur
 Suasana yang penuh hikmah, menjadi hati-hati menjadi tenang, pemimpin yang mampu menyejukkan masyarakat itulah yang didambakan
 Alhamdulillah semoga Jawa Timur semakin aman damai dan sejahtera, penuh suasana sejuk dan adem, lanjutkan Bu xemoticonx
-Dengan dukungan Bu Khofifah, doa dan salawat menjadi kekuatan spiritual bagi masyarakat Jawa Timur
+Dengan dukungan Bu Khofifah, doa dan selawat menjadi kekuatan spiritual bagi masyarakat Jawa Timur
 Kehadiran Bu Khofifah di acara Maulid dan Haul menunjukkan kepeduliannya terhadap pesantren dan ulama, menjaga hubungan yang erat dengan masyarakat santri
 Doa terucap dari seluruh warga dan masyarakat Jawa Timur untuk kelancaran Bunda Khofifah menuju pelabuhan kemenangan
 Pemimpin yang selalu membuat Jawa Timur adem, terbaik xemoticonx
@@ -25630,9 +25620,9 @@ Pemimpin yang religius dan jenius xemoticonx
 Sehat selalu untuk ibu dan keluarga
 Sosok seperti ini yang didambakan oleh masyarakat Jawa Timur, salam dua periode xemoticonx
 Terbaik Bu Khofifah, terus maju
-Merinding dengar lantunan salawat dan zikir di Jawa Timur. Semoga berkahnya meluas xemoticonx
+Merinding dengar lantunan selawat dan zikir di Jawa Timur. Semoga berkahnya meluas xemoticonx
 Tabarakallah Bu Khofifah
-Jawa Timur bersalawat xemoticonx xemoticonx
+Jawa Timur berselawat xemoticonx xemoticonx
 Alhamdulillah, momen peringatan yang penuh berkah. Terima kasih Bu Khofifah atas upayanya dalam menjaga tradisi dan nilai-nilai keagamaan di Jawa Timur. Semoga semakin damai dan sejahtera xemoticonx
 Sungguh momen yang penuh makna! Semoga doa dan zikir kita semua membawa keberkahan dan kebaikan bagi Jawa Timur. Lanjutkan usaha untuk membangun masyarakat yang damai xemoticonx xemoticonx
 Bu Khofifah adalah inspirasi bagi generasi muda
@@ -25659,8 +25649,8 @@ Menuju Jawa Timur yang aman dan damai
 Bu Khofifah memang selalu menjadi inspirasi untuk anak-anak muda agar senantiasa aktif dalam kegiatan keagamaan
 Semoga Jawa Timur semakin berkah
 Penuh berkah masyaallah xemoticonx xemoticonx
-Alhamdulillah, peringatan yang sangat bermakna! Semoga doa dan salawat yang dipanjatkan membawa berkah dan kedamaian bagi Jawa Timur. Terima kasih Bu Khofifah atas komitmen untuk menjaga nilai-nilai keagamaan xemoticonx xemoticonx
-Bu Khofifah gemar ya menghadiri kegiatan salawat dan suka sowan
+Alhamdulillah, peringatan yang sangat bermakna! Semoga doa dan selawat yang dipanjatkan membawa berkah dan kedamaian bagi Jawa Timur. Terima kasih Bu Khofifah atas komitmen untuk menjaga nilai-nilai keagamaan xemoticonx xemoticonx
+Bu Khofifah gemar ya menghadiri kegiatan selawat dan suka sowan
 Semoga Jawa Timur banyak acara yang bermanfaat seperti ini
 Semoga Bu Khofifah dalam keberkahan
 Semoga Bu Khofifah terus hadir dalam kegiatan seperti ini
@@ -25672,7 +25662,7 @@ Bu Khofifah memang paling terbaik sekali
 Siap menangkan satu putaran xemoticonx xemoticonx
 Ayem tentrem Bu Khofifah pemimpin terbaik
 Khofifah Emil sampai jadi
-Berkah salawat untuk Jawa Timur dan seluruh warganya
+Berkah selawat untuk Jawa Timur dan seluruh warganya
 Ibu Khofifah memang selalu memberikan contoh baik untuk warganya, pantas saja beliau begitu dicintai oleh masyarakat Jawa Timur
 Bu Khofifah teladan umat dan rakyat
 Terbaik untuk Jawa Timur Khofifah Emil
@@ -25687,7 +25677,7 @@ Buktinya Ibu Khofifah selalu dekat dengan masyarakat, hal inilah yang selalu mem
 Pemimpin yang selalu dengan warga dan masyarakatnya. Lanjut dua periode
 Senang sekali lihatnya xemoticonx terbaik ini mah
 Alhamdulillah punya pemimpin sangat mengerti akan keagamaan, pastinya dalam hal ini kesejukan dalam memimpin pasti selalu terasa
-Kumpul bersama dan salawatan dalam rangka memperingati Maulid Nabi ini adalah momen persatuan, dan semoga dengan ini Jawa Timur semakin maju
+Kumpul bersama dan selawatan dalam rangka memperingati Maulid Nabi ini adalah momen persatuan, dan semoga dengan ini Jawa Timur semakin maju
 Doa dan zikir yang dipanjatkan semoga membawa keberkahan, kesejukan, dan ketentraman bagi kita semua amin ya Allah xemoticonx
 Ibu ini memang layak menjadi teladan kita bersama, dalam kegiatan-kegiatan agama memang beliau selalu paling depan
 Sosok pemimpin yang tidak aneh-aneh, lempeng, ya Bu Khofifah
@@ -25710,23 +25700,23 @@ Allahumma sholi ala sayyidina muhammad, semoga dengan adanya acara seperti ini m
 Bu Khofifah selalu hadir dalam acara-acara religius, meneguhkan komitmennya terhadap nilai-nilai spiritual dan kultural Jawa Timur
 Khofifah selalu peduli umat
 Lanjutkan Khofifah terbaik
-Semangat salawat dan zikir bersama Bu Khofifah memperkuat harapan Jawa Timur yang lebih kondusif dan penuh berkah
+Semangat selawat dan zikir bersama Bu Khofifah memperkuat harapan Jawa Timur yang lebih kondusif dan penuh berkah
 Bu Khofifah sosok pemimpin yang religius dan menghormati ulama, menjadi teladan bagi kita semua
 Kehadiran Bu Khofifah dalam acara Maulid dan Haul adalah bukti nyata cintanya kepada Rasulullah dan para ulama
-Aku non muslim tapi suka melihat postingan Bu Khofifah kalau salawatan xemoticonx xemoticonx
+Aku non muslim tapi suka melihat postingan Bu Khofifah kalau selawatan xemoticonx xemoticonx
 Semoga Jawa Timur maju xemoticonx xemoticonx xemoticonx xemoticonx
 Malang makin menyala jika pilih Bu Khofifah xemoticonx xemoticonx xemoticonx
-Malang bersalawat xemoticonx
+Malang berselawat xemoticonx
 Allahummasholiala sayyidina muhammad
 Barakallah, semoga keberkahan selalu menyelimuti kita semua xemoticonx
-Jawa Timur penuh berkah dan damai dengan salawat yang terus menggema xemoticonx
+Jawa Timur penuh berkah dan damai dengan selawat yang terus menggema xemoticonx
 Subhanallah, Maulid Nabi dan Haul KH Ahmad Zamachsyari membawa kedamaian tersendiri
 Semoga Jawa Timur selalu dalam naungan rahmat Allah, amin xemoticonx xemoticonx
 Makin mendekatkan diri kepada Yang Maha Kuasa, contoh pemimpin yang patut dipilih xemoticonx
 Maulid Nabi kali ini benar-benar suasananya beda, semoga membawa berkah di mana-mana xemoticonx
 Alhamdulillah bisa jadi bagian dari acara penuh berkah ini, Jawa Timur selalu damai
-Zikir dan salawat menggema, semoga berkahnya selalu menyertai kita xemoticonx
-Madura siap bersalawat Bu xemoticonx
+Zikir dan selawat menggema, semoga berkahnya selalu menyertai kita xemoticonx
+Madura siap berselawat Bu xemoticonx
 Masyaallah tabarakallah xemoticonx
 Turut tersanjung saya sebagai warga Malang atas kehadiran Ibu Khofifah di Pondok Pesantren Al-Rifa'ie xemoticonx
 Barakallah ya Bu, semoga menjadi insan yang meneladani rasulnya, amin
@@ -25734,7 +25724,7 @@ Mencintai Maulid Nabi adalah tanda insan yang mencintai rasulnya, keberkahan men
 Dengan jiwa semangat, kami ucapkan selamat memperingati hari Maulid Nabi Muhammad SAW
 Kebahagian sejati kita semua adalah saat masih diberikan kesempatan untuk melaksanakan kegiatan maulid nabi Muhammad SAW, I Love U Nabi Ku
 Nabi Muhammad SAW adalah al-Mustofa al-akhirul anbiya, sungguh tidak ada Nabi setelah beliau, semoga kita mendapat syafaatnya, amin
-Maulid Nabi adalah waktu yang membangkitkan semangat dan memori tentang ajaran yang diberikan oleh Nabi Muhammad, bersama Bu Khofifah mari kita bersalawat xemoticonx Allahuma sholi a xemoticonx la syaidinna Muhammad xemoticonx Sholu a xemoticonx laih
+Maulid Nabi adalah waktu yang membangkitkan semangat dan memori tentang ajaran yang diberikan oleh Nabi Muhammad, bersama Bu Khofifah mari kita berselawat xemoticonx Allahuma sholi a xemoticonx la syaidinna Muhammad xemoticonx Sholu a xemoticonx laih
 Menyala Bunda xemoticonx
 Ikhlas adalah bagian dari akhlak nabi, semoga senantiasa kita selalu bersyukur dan ikhlas dalam menjalankan hidup ini, salam Bu
 Masyaallah terbawa suasana sejuk dan damai, penuh berkah xemoticonx Rakyat Jawa Timur untuk Bu Khofifah selalu
@@ -26322,7 +26312,7 @@ hebat lo Mbak Karen sangat inspiratif untuk gubernurku semoga sukses untuk yang 
 maju terus Mbak Karen yang keren sangat menginspirasi
 Jawa Timur satu Bunda Khofifah, Situbondo satu Bung Karna xemoticonx xemoticonx
 semoga selalu sukses Mbak Karen dan juga semoga sehat selalu Bu Khofifah
-yang komentar banyak buzzer xemoticonx xemoticonx
+yang komentar banyak buzer xemoticonx xemoticonx
 dengan kepemimpinan Bu Khofifah dan Mas Emil Jawa Timur akan makin hebat dan maju, terima kasih atas dedikasi dan visi yang luar biasa
 lanjutkan usahanya Mbak Karen
 keren Mbak xemoticonx
@@ -26551,7 +26541,7 @@ Aku tadi juga di sana
 Lanjutkan dua periode Bu xemoticonx xemoticonx xemoticonx
 Sehat selalu ibunya Jawa Timur xemoticonx xemoticonx xemoticonx
 Masyaallah mencari keberkahan di masa kampanye, semoga dikabulkan ya Bu xemoticonx xemoticonx
-Panutanku masyaallah sekali, di tengah sibuknya kampanye masih menyisihkan waktunya untuk bersalawat bersama xemoticonx xemoticonx xemoticonx xemoticonx
+Panutanku masyaallah sekali, di tengah sibuknya kampanye masih menyisihkan waktunya untuk berselawat bersama xemoticonx xemoticonx xemoticonx xemoticonx
 Dukung penuh
 Barakallah
 Alhamdulillah Bu Khofifah kalau ada acara ya dekat dengan Muslimat xemoticonx xemoticonx
@@ -26743,10 +26733,10 @@ masyaallah Bu sehat xemoticonx semoga dua periode. Salam untuk Mas xmentionx
 Yang komentar akun baru semua yang minim postingan dan pengikut xemoticonx
 Bismillah dua periode Bunda Khofifah bersama Mas Emil
 ISTIMEWA
-Luar biasa! Ibu Khofifah dan Pak Ery Cahyadi bersama dalam merayakan Maulid Nabi Muhammad SAW. Mari kita perbanyak salawat! Terima kasih Pak Ery atas dukungan yang luar biasa! xemoticonx xemoticonx
+Luar biasa! Ibu Khofifah dan Pak Ery Cahyadi bersama dalam merayakan Maulid Nabi Muhammad SAW. Mari kita perbanyak selawat! Terima kasih Pak Ery atas dukungan yang luar biasa! xemoticonx xemoticonx
 Pak Ery menemani Bu Khofifah nih xemoticonx
 Wah mantap Pak Ery, terima kasih sudah bersama Bu Khofifah Pak xemoticonx xemoticonx
-Alhamdulillah, peringatan Maulid Nabi Muhammad SAW selalu menjadi momen yang penuh berkah. Terima kasih Pak Ery Cahyadi telah mendukung Ibu Khofifah dalam kegiatan ini. Mari kita perbanyak salawat! xemoticonx xemoticonx
+Alhamdulillah, peringatan Maulid Nabi Muhammad SAW selalu menjadi momen yang penuh berkah. Terima kasih Pak Ery Cahyadi telah mendukung Ibu Khofifah dalam kegiatan ini. Mari kita perbanyak selawat! xemoticonx xemoticonx
 Dua periode gas ini, terima kasih Pak Ery mendampingi Bu Khofifah xemoticonx xemoticonx
 Bu Khofifah keren sekali xemoticonx xemoticonx
 Bu Khofifah selalu membawa suasana menyejukkan
@@ -26757,7 +26747,7 @@ Kalau Pak Ery sudah bilang begini, rasanya lega sekali
 Bu Khofifah bismillah lanjutkan Bu xemoticonx
 Bu Khofifah semoga selalu diberi kesehatan
 Waduh Pak Ery Cahyadi, saya sangat menyukai anda xemoticonx
-Alhamdulillah, Ibu Khofifah dan Pak Ery Cahyadi bersatu dalam merayakan Maulid Nabi Muhammad SAW. Mari kita perbanyak salawat dan semoga kita semua mendapatkan syafaat! Terima kasih, Pak Ery! xemoticonx xemoticonx xemoticonx
+Alhamdulillah, Ibu Khofifah dan Pak Ery Cahyadi bersatu dalam merayakan Maulid Nabi Muhammad SAW. Mari kita perbanyak selawat dan semoga kita semua mendapatkan syafaat! Terima kasih, Pak Ery! xemoticonx xemoticonx xemoticonx
 Pak Ery jangan malu-malu untuk dukung penuh Bu Khofifah xemoticonx
 Terima kasih Pak Ery sudah selalu berada di sisi Ibu Khofifah dan mendukung setiap programnya. Semoga membawa keberkahan bagi semuanya xemoticonx xemoticonx
 Mantap 02 terima kasih Pak Ery Wali Kota Surabaya sudah mendampingi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -26797,11 +26787,11 @@ Keren, Pak Erik juga dukung Bu Khofifah xemoticonx xemoticonx
 masyaallah Bu Khofifah pemimpin Jawa Timur terbaik xemoticonx
 Bu Khofifah telah membawa banyak perubahan positif di Jawa Timur. Dukungan saya untuk dua periode
 Keberhasilan program-program sosialnya membuktikan bahwa Bu Khofifah layak melanjutkan kepemimpinannya
-Selalu salawat terima kasih Bu Khofifah
+Selalu selawat terima kasih Bu Khofifah
 Rakyat Tuban bersama Khofifah
 Khofifah Emil terbaik
 Surabaya dukung Khofifah Emil
-Senang punya pemimpin suka salawat
+Senang punya pemimpin suka selawat
 Kebanggaan warga Jawa Timur Khofifah Emil
 Mari Ibu xmentionx dilanjutkan dua periode, kami keluarga selalu mendoakan
 Terima kasih Pak Ery Cahyadi atas dukungannya kepada Ibu Khofifah, semoga kolaborasi ini membawa keberkahan bagi kita semua
@@ -26840,9 +26830,9 @@ Dengan Bu Khofifah, kita punya harapan baru untuk pembangunan daerah
 Oke xemoticonx jangan lupa Khofifah Emil xemoticonx
 Luar biasa, Ibu Khofifah dan Pak Ery Cahyadi bersama dalam peringatan Maulid Nabi Muhammad SAW. Semoga kita semua mendapatkan syafaat dari Rasulullah SAW. Terima kasih atas dukungannya! xemoticonx xemoticonx
 Senang sekali melihat Ibu Khofifah bertemu dengan Pak Ery Cahyadi dalam peringatan Maulid Nabi. Semoga kita semua mendapat syafaat dari Nabi Muhammad SAW. Terima kasih Pak Ery! xemoticonx xemoticonx
-Perayaan Maulid Nabi Muhammad SAW makin istimewa dengan kehadiran Ibu Khofifah dan Pak Ery Cahyadi. Mari tingkatkan bacaan salawat kita! Terima kasih Pak Ery atas dukungan untuk Ibu! xemoticonx xemoticonx
-Sungguh momen yang penuh berkah saat Ibu Khofifah dan Pak Ery Cahyadi bertemu dalam peringatan Maulid Nabi. Semoga kita semua selalu bersalawat dan mendapatkan syafaat! Terima kasih Pak Ery! xemoticonx xemoticonx
-Alhamdulillah, peringatan Maulid Nabi Muhammad SAW makin meriah dengan kehadiran Ibu Khofifah dan Pak Ery Cahyadi. Mari kita tingkatkan bacaan salawat! Terima kasih Pak Ery! xemoticonx xemoticonx
+Perayaan Maulid Nabi Muhammad SAW makin istimewa dengan kehadiran Ibu Khofifah dan Pak Ery Cahyadi. Mari tingkatkan bacaan selawat kita! Terima kasih Pak Ery atas dukungan untuk Ibu! xemoticonx xemoticonx
+Sungguh momen yang penuh berkah saat Ibu Khofifah dan Pak Ery Cahyadi bertemu dalam peringatan Maulid Nabi. Semoga kita semua selalu berselawat dan mendapatkan syafaat! Terima kasih Pak Ery! xemoticonx xemoticonx
+Alhamdulillah, peringatan Maulid Nabi Muhammad SAW makin meriah dengan kehadiran Ibu Khofifah dan Pak Ery Cahyadi. Mari kita tingkatkan bacaan selawat! Terima kasih Pak Ery! xemoticonx xemoticonx
 Dapat sinyal dari yang punya Surabaya
 xmentionx sehat selalu Bu, allahumma salli ala muhammad wa ala ali muhammad xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Bismillah, yakin Bu Khofifah pilihan saya
@@ -26856,7 +26846,7 @@ Bu Khofifah memang inspiratif xemoticonx
 Alhamdulillah, Bu Khofifah! Semoga periode selanjutnya membawa lebih banyak prestasi dan kemajuan untuk Jawa Timur. Kami akan terus mendukung dan mendoakan! xemoticonx xemoticonx
 Santun, visioner, cerdas, Bu Khofifah paket lengkap xemoticonx
 Ibu Khofifah pemimpin yang inspiratif untuk Jawa Timur xemoticonx
-Gas pol Bu Khofifah banyak dukungan xemoticonx xemoticonx
+Gas penuh Bu Khofifah banyak dukungan xemoticonx xemoticonx
 Subhanallah ini kata rakyat soal Bu Khofifah xemoticonx
 Memang jadi cintanya Jawa Timur xemoticonx xemoticonx xemoticonx
 Bu Khofifah, semoga dukungan ini menjadi motivasi untuk terus membawa Jawa Timur maju dan berprestasi. Kami akan selalu mendukung setiap langkah anda! xemoticonx xemoticonx
@@ -26871,12 +26861,12 @@ Mengerti sendiri kan barangnya xemoticonx
 Saya sih 02 yang lain mah terserah xemoticonx
 Pemimpin yang membawa Jawa Timur melejit, lanjutkan sekali lagi Bu
 Sudah tidak diragukan lagi, lanjutkan xemoticonx xemoticonx
-Gas pol Khofifah Emil, dukungan makin mengalir
+Gas penuh Khofifah Emil, dukungan makin mengalir
 Luar biasa mantap masyarakat Jawa Timur xemoticonx xemoticonx xemoticonx
 Ayo bisa ayo anak Jawa Timur kompak dukung Bu Khofifah saja tidak ada yang lain xemoticonx xemoticonx xemoticonx
 Saya percaya Bu Khofifah bisa membawa perubahan positif di Jawa Timur
 Ayo masyarakat Jawa Timur jangan ragu untuk memilih Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Gas pol Bu Khofifah
+Gas penuh Bu Khofifah
 Beli jadah di Songgoriti daripada memilih Risma mending Tri Rismaharini xemoticonx xemoticonx xemoticonx xemoticonx menyala Mama waktunya pejabat buat birokrasi ruwet sekali Mak
 Testimoni yang langsung disampaikan dari hati warga Jawa Timur yang sangat tulus, semoga menginspirasi dan makin banyak yang menuju dua periode xemoticonx xemoticonx
 Demi NKRI tercinta saya pilih Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
@@ -27397,7 +27387,7 @@ Sebanyak itu warga yang cinta Ibu xemoticonx xemoticonx
 Siap menangkan dua periode
 Lanjutkan sekali lagi Bu Khofifah xemoticonx xemoticonx xemoticonx xemoticonx
 Ini contoh Pemimpin yang langsung menunjukkan tujuan. Salut
-Gila. Banyak buzzer-nya xemoticonx
+Gila. Banyak buzer-nya xemoticonx
 Berkah masyarakat untuk kemenangan Bu Khofifah
 Weh suasananya pecah sekali nih, Bu Khofifah mantap xemoticonx xemoticonx
 Asli seru sekali ini, bawa musisi jalanan segala xemoticonx
@@ -27498,14 +27488,14 @@ Bangga melihat Bu Khofifah selalu mengutamakan silaturahmi dengan para kiai dan 
 Pemimpin yang selalu hadir untuk rakyat dan ulama adalah pemimpin yang kita butuhkan. Terima kasih Bu Khofifah
 Bu Khofifah terus menanamkan nilai-nilai kebersamaan dan sinergi dengan para kiai. Semoga membawa keberkahan untuk kita semua
 Selalu Sehat dan dimudahkan untuk Ibu xemoticonx
-Masyaallah, padahal hari pertama kampanye tapi Bu Khofifah masih menyempatkan untuk hadir di acara pengukuhan dan memilih untuk bersilaturahmi dengan para kyai
-Wah salut dengan beliau, padahal ini hari pertama kampanye tapi malah menyempatkan untuk silaturahmi dengan kyai-kyai yang datang di acara itu xemoticonx xemoticonx
+Masyaallah, padahal hari pertama kampanye tapi Bu Khofifah masih menyempatkan untuk hadir di acara pengukuhan dan memilih untuk bersilaturahmi dengan para kiai
+Wah salut dengan beliau, padahal ini hari pertama kampanye tapi malah menyempatkan untuk silaturahmi dengan kiai-kiai yang datang di acara itu xemoticonx xemoticonx
 Barakallahu tetap juga silaturahmi, itu yang membuat Bu Khofifah selalu dikenal banyak orang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jawa Timur bersama Bu Khofifah seorang xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lanjutkan Bu xemoticonx xemoticonx xemoticonx
 Mantap ibu-ibu orang Jawa Timur, tetap menjaga kerukunan demi NKRI xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ibu Khofifah pemimpin yang memperhatikan ulama dan akademisi, insyaallah Jawa Timur lebih baik, amin
-Menemani kyai dan cendekiawan sudah tepat dan benar karena mereka yang nantinya menimbang kebijakan di Jawa Timur
+Menemani kiai dan cendekiawan sudah tepat dan benar karena mereka yang nantinya menimbang kebijakan di Jawa Timur
 Semoga Bu Khofifah bisa terus menginspirasi
 Terbaik untuk Jawa Timur ya Khofifah Emil
 Bojonegoro hadir Bu
@@ -28250,7 +28240,7 @@ Selalu setia untuk mendukung Mbak Luluk dan Mas Lukman xemoticonx xemoticonx
 Calon pemimpin yang baik, semangat terus Pak Lukman
 Damai diutamakan, Luluk Lukman dinomorsatukan xhashtagx xhashtagx
 Sehat selalu Mas Lukman xemoticonx
-Terima kasih Kyai Pak Wakil Gubernur sangat hormat dan setuju xemoticonx xemoticonx
+Terima kasih kiai Pak Wakil Gubernur sangat hormat dan setuju xemoticonx xemoticonx
 Setuju meski berbeda pilihan kita tetap harus bersatu
 Bersatu kita dukung LUMAN semangat terus
 LUMAN memang terbaik deh pokoknya
@@ -28419,7 +28409,7 @@ Pemimpin ini benar-benar merakyat, tidak ada jarak antara dia dan rakyatnya xemo
 Selalu dukung Pak Lukman xemoticonx kawal terus sampai berhasil
 Paham agama, paham rakyat, 01 pilihan tepat
 Mantap pasti rakyat Jawa Timur pilih Mbak Luluk dan Pak Lukman
-Didukung santri dan kyai nomor satu xemoticonx
+Didukung santri dan kiai nomor satu xemoticonx
 Dari cara bicaranya, sudah tergambar bahwa beliau orang bijaksana
 Bagus sekali pemahaman agamanya, semoga Pak Lukman bisa menjadi pemimpin amin
 Menang pokoknya pasangan 01 xemoticonx xemoticonx
@@ -28486,47 +28476,47 @@ Cukup 01 yang di xemoticonx xemoticonx xemoticonx
 Maaf Gus, saya mau tebak yang nomor 01 saja itu Candi Penataran Blitar
 01 Candi Penataran Blitar, 01 pilihanku xemoticonx xemoticonx
 Kemenangan PKB di pemilihan gubernur Jawa Timur 2024 akan menjadi prototipe kemenangan PKB secara nasional, PKB harus bangkit, solid, menang xemoticonx xemoticonx xemoticonx
-Bismillah berkah kyai, insyaallah Luluk-Lukman menang amin xemoticonx
-Ikut kyai saja, bismillah Jawa Timur Luman xemoticonx
+Bismillah berkah kiai, insyaallah Luluk-Lukman menang amin xemoticonx
+Ikut kiai saja, bismillah Jawa Timur Luman xemoticonx
 Semoga sehat semuanya di mana pun dan dibimbing Allah dalam rangka memperjuangkan hak-hak rakyat
-Ikut Kyai Maruf saja, 01 xemoticonx
+Ikut kiai Maruf saja, 01 xemoticonx
 Bismillah satu, Mbak Luluk gubernur Jawa Timur xemoticonx
 Politik PKB menghadirkan kemakmuran dan keberkahan
 Kemenangan PKB adalah simbol kebangkitan xemoticonx
-Para kyai bersatu menangkan nomor satu xemoticonx xemoticonx
+Para kiai bersatu menangkan nomor satu xemoticonx xemoticonx
 Amin
-Ber-PKB itu berkah karena kita berada di barisan perjuangan dengan para kyai
-Para kyai bersatu untuk memenangkan nomor satu xemoticonx xemoticonx xemoticonx
-Berpolitik itu ibadah, ber-PKB itu berkah berjuang di barisan para kyai
+Ber-PKB itu berkah karena kita berada di barisan perjuangan dengan para kiai
+Para kiai bersatu untuk memenangkan nomor satu xemoticonx xemoticonx xemoticonx
+Berpolitik itu ibadah, ber-PKB itu berkah berjuang di barisan para kiai
 Jawa Timur sebagai basis PKB Luluk-Lukman wajib menang xemoticonx xemoticonx xemoticonx
-Kyai se-Jawa Timur kompak dukung Luluk-Lukman menang xemoticonx xemoticonx xemoticonx xemoticonx
-Berkah para masyayikh dan kyai, semoga dimudahkan dalam memenangkan pemilihan kepala daerah Jawa Timur, amin
+kiai se-Jawa Timur kompak dukung Luluk-Lukman menang xemoticonx xemoticonx xemoticonx xemoticonx
+Berkah para masyayikh dan kiai, semoga dimudahkan dalam memenangkan pemilihan kepala daerah Jawa Timur, amin
 Yakin menang xemoticonx xemoticonx
-Subhanallah kalau kyai-kyai sepuh sudah turun gunung insyaallah
+Subhanallah kalau kiai-kiai sepuh sudah turun gunung insyaallah
 Dikabulkan xemoticonx
-Gus Salam sama Kyai Marzuki hadir?
+Gus Salam sama kiai Marzuki hadir?
 Kemenangan ada di depan mata xemoticonx xemoticonx
 Kalau dewan syuro sudah turun gunung artinya kemenangan Luluk-Lukman itu sangat penting, bismillahirrahmanirrahim menang
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx menang
 Alhamdulillah, saatnya angin perubahan datang untuk Jawa Timur
 Eks PKNU
 Bismillah menang Luluk Lukman
-Bismillah mengikuti titah para kyai, kami di barisan pendukung 01 xemoticonx
+Bismillah mengikuti titah para kiai, kami di barisan pendukung 01 xemoticonx
 Loyalitas dalam berpartai adalah sebuah keharusan bagi setiap anggotanya, kemenangan Luluk-Lukman adalah marwah bagi setiap anggota PKB, bismillahirrahmanirrahim xemoticonx xemoticonx menang xemoticonx xemoticonx
 Luman maju selalu xemoticonx xemoticonx
 Berkah ya Mas Lukman
 Gas terus pokoknya, maju 01 xemoticonx
 Cahaya suci di Nusantara, gegap gembita bagi Indonesia xemoticonx xemoticonx xemoticonx Mas Lukman kibarkan panji bergelora
-Jelas ini pilihan para ulama dan kyai, kita dukung 01 menang takbir, Allahu akbar xemoticonx xemoticonx
+Jelas ini pilihan para ulama dan kiai, kita dukung 01 menang takbir, Allahu akbar xemoticonx xemoticonx
 xhashtagx Pilihanku xhashtagx xemoticonx
 Gas penuh dukung 01 xemoticonx
-Ikut para kyai dukung pasangan calon satu, ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Pilihannya kyai dan ulama ya 01, bawa perubahan bagi Jawa Timur ya Mbak Luluk dan Mas Lukman, kami percaya pada Anda, bismillah Jawa Timur dukung penuh 01
-Amanah sekali ya Mas Lukman ini, sampai dipercaya para kyai
-Terima kasih Pak Kyai atas kedatangan Anda
+Ikut para kiai dukung pasangan calon satu, ya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Pilihannya kiai dan ulama ya 01, bawa perubahan bagi Jawa Timur ya Mbak Luluk dan Mas Lukman, kami percaya pada Anda, bismillah Jawa Timur dukung penuh 01
+Amanah sekali ya Mas Lukman ini, sampai dipercaya para kiai
+Terima kasih Pak kiai atas kedatangan Anda
 Bismillah menang, jadi, dilantik nomor satu Mbak xmentionx Mas xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Lagunya enak sekali, pemimpinnya adem, ada ulama, gabungan yang pas Luman untuk Jawa Timur 01
-Suntikan energi dari Pak Kyai Ma'ruf, optimis 01 menang xemoticonx
+Suntikan energi dari Pak kiai Ma'ruf, optimis 01 menang xemoticonx
 Jawa Timur
 PKB bersatu untuk satu suara bersama 01 xemoticonx
 Dukung penuh satu dari 01 xemoticonx xemoticonx xemoticonx
@@ -28552,7 +28542,7 @@ Maju 01 pasti menang
 Menyala terus
 Jawa Timur 01
 Bismillah 01 xemoticonx
-01 menyala sekali terlebih didukung para kyai
+01 menyala sekali terlebih didukung para kiai
 Memang harus 01 gas
 Menyala 01 Bu Luluk xemoticonx
 Dukung penuh 01 teman-teman
@@ -28560,7 +28550,7 @@ Ibu Luluk Mas Lukman xemoticonx
 Bu Luluk dan Pak Lukman xemoticonx
 Ini sih kita optimis menang karena dukungan KH Ma'ruf Amin xemoticonx
 Dukung penuh 01 gas penuh
-Mantap mendapatkan dukungan dari Pak Kyai Ma'ruf Amin
+Mantap mendapatkan dukungan dari Pak kiai Ma'ruf Amin
 Luman pilihanku
 Optimis menang 01 saya xemoticonx
 Luman maju terus
@@ -28575,7 +28565,7 @@ Madiun bersatu coblos nomor satu xemoticonx xemoticonx
 Warga Madiun satukan barisan dukung Luluk-Lukman xemoticonx xemoticonx
 Madiun kota pendekar, Luman menang Jawa Timur makin bersinar xemoticonx
 Waktunya ganti gubernur, siap pilih 01 xemoticonx
-Instruksi kyai harus ditaati, bismillahirrahmanirrahim Luluk-Lukman menang xemoticonx xemoticonx
+Instruksi kiai harus ditaati, bismillahirrahmanirrahim Luluk-Lukman menang xemoticonx xemoticonx
 Sudah waktunya PKB Jawa Timur menang xemoticonx xemoticonx xemoticonx
 Bismillah insyaallah Luluk-Lukman menang, amin
 Alhamdulillah gas xemoticonx xemoticonx xemoticonx
@@ -28809,7 +28799,7 @@ Bismillah Luman 01 untuk Jawa Timur menang xemoticonx
 Era perubahan telah datang
 Mas xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Dukungan serta doa kami untuk pasangan calon 01 bismillah menang untuk Jawa Timur lebih baik xemoticonx
-Salawat atas Muhammad
+selawat atas Muhammad
 Bismillah 01 bisa menang xemoticonx
 Cak Imin saja dukung Mas Lukman, keren Cak, menteri terbaik wakil gubernur terbaik Mas Lukman
 Jelas 01 yang terbaik kawan xemoticonx
@@ -29515,7 +29505,7 @@ Bu nyai Khofifah amin ya Allah
 Sepertinya Risma yang jadi xemoticonx Bu Khofifah adem ayem. Tidak ada perubahan. SMA SMK di Surabaya gratis dipegang pemerintah provinsi malah bayar xemoticonx
 Risma Gus Hans
 Kalau kalah pasti bilang curang tidak ya xemoticonx xemoticonx xemoticonx
-Persis seperti surveinya kyai, buka polling di kalangan sendiri xemoticonx
+Persis seperti surveinya kiai, buka polling di kalangan sendiri xemoticonx
 Halunya ketinggian memang kalau kebanyakan makan kecubung xemoticonx xemoticonx xemoticonx
 Biasa, golongan pak ini sukanya survei media sosial bukan survei berdasar ilmu statistik xemoticonx xemoticonx xemoticonx
 Ini siapa yang survei
@@ -29694,7 +29684,7 @@ Pak Lukman memang terbaik sekali xemoticonx
 Jawa Timur butuh pemimpin yang bisa membawa perubahan ke arah yang lebih maju lagi. Semangat Luman! Coblos nomor satu
 Keren sekali memang mas Lukman! Aku dukung 10000 xemoticonx
 Waktunya berbenah Jawa Timur, pilih yang muda-muda saja, idenya lebih segar xemoticonx
-Gas pol, Guskuh
+Gas penuh, Guskuh
 Kami sekeluarga sudah siap nih pak dukung bapak
 Siap menangkan pak Lukman pada pemilihan nantinya xemoticonx
 Keren pak Lukman semangat terus ya pak xemoticonx
@@ -33874,7 +33864,7 @@ Memang calon pemimpin terbaik deh ini
 Semoga setelah terpilih nanti jadi pemimpin yang amanah xemoticonx
 Menyala abangku, semoga dapat memenangkannya xemoticonx xemoticonx
 Mantap dukung pak Lukman saja
-Ibu bapakku selalu minta aku untuk mendukung bapak, awalnya aku tidak terlalu ikut campur tapi waktu melihat bapak aktif sekali mau ke sana ke sini, aku jadi full dukungan untuk Pak Lukman
+Ibu bapakku selalu minta aku untuk mendukung bapak, awalnya aku tidak terlalu ikut campur tapi waktu melihat bapak aktif sekali mau ke sana ke sini, aku jadi penuh dukungan untuk Pak Lukman
 Satunya kebersamaan dan satunya pilihan
 Bersatu demi kebaikan, terus semangat dan bismillah menang xemoticonx
 Semangat pak. Bapak insyaallah menang
@@ -33956,7 +33946,7 @@ Kuliner Jombang memang mantap dan enak xemoticonx
 Juara memang soto dok Jombang, nikmat sekali xemoticonx
 Jawa Timur insyaallah bersama LUMAN xemoticonx xemoticonx
 Nomor satu itu Luluk Lukman nomor dua klasemen Liverpool nomor tiga klasemen MU
-Gas pol! Guskuh
+Gas penuh! Guskuh
 Militan Cak xemoticonx xemoticonx
 Mas Lukman agar menambah suara, saran saja tolong bantu UMKM terus dibuat konten, makan gratis atau spanduk atau bantu iklan lewat media sosial anda xemoticonx
 Memang Mas xmentionx pernah melamar Mbak xmentionx?
@@ -34031,7 +34021,7 @@ Kecintaan rakyat, sudah berwibawa humoris juga
 Semoga Pak Lukman tetap menjadi pemimpin rakyat, kita masih butuh sosok beliau, semoga semakin amanah ya Pak Lukman
 Tetap semangat, Luman! Kami siap mendukung kalian sampai garis akhir
 Pokoknya nomor satu siap meluncur xemoticonx
-Dukung Luman full tim! Semoga semua rencana kalian lancar jaya
+Dukung Luman penuh tim! Semoga semua rencana kalian lancar jaya
 Wio keren semoga selamat ya
 Luar biasa sekali xemoticonx
 Salam damai Pak xemoticonx xemoticonx
@@ -34452,7 +34442,7 @@ Masyaallah tabarakallah Abah Anies xemoticonx xemoticonx say NO to KIM xemoticon
 Pengangguran yang dikunjungi tiga cagub dari tiga daerah dan partai yang berbeda xemoticonx
 Pak Anies lagi baik sekali ini. Menjaga hubungan baik dimintai tolong kanan kiri
 Disaat genk Mulyono mencoba singkirkan sang pengangguran, ternyata para pencari kerja membutuhkannya xemoticonx
-Ini alasan buzzer-buzzer masih pada diternak xemoticonx
+Ini alasan buzer-buzer masih pada diternak xemoticonx
 Agar anak abah di berbagai provinsi pada milih mereka sih yang kemarin mengunjungi
 Bu Ferry bilang xemoticonx xemoticonx ini setiap hari harus masak terus apa ya bah? Perasaan abah kan bukan siapa-siapa, bahkan dikatakan gelandangan politik, kok malah pada mengunjungi abah ya xemoticonx
 Pengaruh Pak Anies menyala itu xemoticonx xemoticonx xemoticonx xemoticonx padahal bukan ketua partai politik xemoticonx xemoticonx
@@ -34468,7 +34458,7 @@ Kekuatan Anies Baswedan xemoticonx xemoticonx
 Saja didatangi para calon gubernur saja bangga
 Tinggal Jawa Tengah pak
 Pak Anies dianggap bukan siapa-siapa, tapi didatangi banyak orang. Menghina anak abah tapi butuh suara anak abah. Fakta!
-Buzzer pusing lihat beginian xemoticonx
+buzer pusing lihat beginian xemoticonx
 Abah xemoticonx xemoticonx xemoticonx
 Jawa Barat selesai, Jakarta selesai, Jawa Timur selesai. Who's Next xemoticonx Jawa Tengah? Banten? Sumbar? Aceh?
 Jawa Barat xemoticonx, Jakarta xemoticonx, Jawa Timur xemoticonx, Jawa Tengah xemoticonx, Banten xemoticonx
@@ -34478,7 +34468,7 @@ Pak Anis terbaik xemoticonx xemoticonx, semoga Allah izinkan suatu saat bapak me
 Luar biasa xemoticonx bukan pejabat tapi selalu ditemui para calon-calon karena intelektual kecerdasan beliau diakui dapat memberi masukan yang positif untuk kemajuan dan kesejahteraan masyarakat yang lebih baik, Pak Anies terbaik xemoticonx xemoticonx xemoticonx
 Baru sekarang ada yang kalah pilpres gagal cagub tapi suaranya dibutuhkan oleh kebanyakan cagub lintas provinsi. Menyala pak Anies xemoticonx xemoticonx xemoticonx
 Gila, pengangguran bisa dikejar tiga calon gubernur di tiga daerah berbeda xemoticonx tanda nyata Anies memang seberpengaruh itu xemoticonx menyala abah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Ayo para buzzer kerja kerja kerja, tidak kepanasan lo lihat Pak Anies Baswedan xemoticonx xemoticonx xmentionx disegani banyak pejabat publik
+Ayo para buzer kerja kerja kerja, tidak kepanasan lo lihat Pak Anies Baswedan xemoticonx xemoticonx xmentionx disegani banyak pejabat publik
 Pada mengunjungi yang katanya pengangguran xemoticonx
 xmentionx andai saja waktu pilkada cukup panjang, forum-forum seperti desak Anies bisa menjadi cara kampanye yang mencerahkan. Bahkan forum seperti itu layak terus digalang untuk merawat demokrasi. Siapa saja boleh meneruskan begitu ya xmentionx
 Astaga serius nih mengemis suara sama yang katanya pengangguran xemoticonx
@@ -34514,14 +34504,14 @@ Karisma abah ini luar biasa, tidak pegang jabatan apa-apa tapi banyak yang mengu
 Padahal cuma rakyat biasa sekarang, tapi banyak yang berbondong-bondong mengunjungi nih ups xemoticonx
 Mengunjungi Mulyono xemoticonx mengunjungi pak Anies xemoticonx
 Jangan terima tamu pencari suara lagi pak. Kasihan sama yang bilang bapak gelandangan politik, nanti kalau ada yang mau datang lagi, bilang saja bapak tidak di rumah, lagi keluar mencari kerja
-Kok tidak ada buzzer yang bilang gelandangan politik? Pada kemana ya xemoticonx xemoticonx
+Kok tidak ada buzer yang bilang gelandangan politik? Pada kemana ya xemoticonx xemoticonx
 Sampai dari Jawa Timur mengunjungi, sepenting apa sih abah itu xemoticonx
 Ramai benar yang mau silaturahmi ke rumah abah ya xemoticonx xemoticonx abah Anies memang terbaik xemoticonx xemoticonx
 Definisi xemoticonx balaslah keburukan dengan kebaikan xemoticonx xemoticonx xemoticonx
 Masyaallah sehat terus beliau tetap teguh di jalur perubahan salam dari Pasuruan Jawa Timur pak xmentionx xmentionx xemoticonx xemoticonx xemoticonx
 Pak Anies tokoh luar biasa, beliau menjadi inspirasi para kandidat kepala daerah xemoticonx xemoticonx
 Satu hari satu dukungan xemoticonx xemoticonx
-Buzzer sedang mengetik xemoticonx xemoticonx
+buzer sedang mengetik xemoticonx xemoticonx
 Dilihat-lihat pak Anies open house terus nih xemoticonx xemoticonx xemoticonx
 Sekarang kita tahu mana yang disebut xemoticonx pengemis xemoticonx
 Jawa Timur pilih ini saja aku
@@ -34537,10 +34527,10 @@ Tokoh asli xemoticonx xemoticonx
 Tidak ada yang ke Solo nih
 Para ternak berkata beliau pengangguran, tapi mengapa banyak yang mengunjungi. Dipanggil ke berbagai acara sebagai narasumber, berarti ilmunya bukan kaleng-kaleng, yang mengatakan belum tentu mampu seperti beliau, dewan pendidikan di Oxford untuk ASEAN, bukan hal yang mudah untuk dilakukan, prestasi nyata
 Cagub cawagub berdatangan untuk mengemis suara loyalis pak Anies, cuma memanfaatkan sifat pak Anies yang baik, yang selalu menerima lawan maupun kawan. Pak Anies punya jiwa yang luar biasa, dia bisa mengontrol hati dan jiwanya dengan amat sangat baik dan rapi. Pak Anies hebat, saya suka dengan gaya dan berpolitik pak Anies
-Ya ampun pak Anies buat buzzer kejang-kejang, mengapa sudah dihina habis-habisan tapi malah derajatnya makin naik, mereka lupa siapa pemilik alam semesta ini xemoticonx xemoticonx
+Ya ampun pak Anies buat buzer kejang-kejang, mengapa sudah dihina habis-habisan tapi malah derajatnya makin naik, mereka lupa siapa pemilik alam semesta ini xemoticonx xemoticonx
 Masih jadi magnet ya sipil biasa ini xemoticonx
 Abah warna favoritnya navy sepertinya ya xemoticonx
-Mana nih buzzer yang bilang abah pengangguran politik? Ini nih abah the real pengacara. Pengangguran banyak acara. Sehat selalu bah
+Mana nih buzer yang bilang abah pengangguran politik? Ini nih abah the real pengacara. Pengangguran banyak acara. Sehat selalu bah
 Mengunjunginya ke pak xmentionx semua ya, sebenarnya mereka tahu value beliau sih, tapi ah sudahlah
 Amin xemoticonx xemoticonx
 Sehat selalu abah dan ibu Ferry masyaallah
@@ -34566,7 +34556,7 @@ Kalau ini saya setuju bu Luluk for gubernur Jawa Timur
 Ingat guys tentukan pilihan menurut hati nurani. Bukan karena pak Anies xemoticonx
 Harusnya mereka mengunjungi wow or wiw xemoticonx
 Abah sibuk sekali ya. Barakallah fiikum
-Yang bilang pak Anies pengangguran apa tidak malu ya, eh syarat jadi buzzer kan memang tidak punya malu xemoticonx menyala selalu pak Anies xemoticonx xemoticonx xemoticonx semoga selalu dalam lindungan Allah SWT amin xemoticonx xemoticonx xemoticonx xemoticonx
+Yang bilang pak Anies pengangguran apa tidak malu ya, eh syarat jadi buzer kan memang tidak punya malu xemoticonx menyala selalu pak Anies xemoticonx xemoticonx xemoticonx semoga selalu dalam lindungan Allah SWT amin xemoticonx xemoticonx xemoticonx xemoticonx
 Sampai pilkada Jawa Timur ke abah ya xemoticonx xemoticonx xemoticonx menyala terus deh abah xemoticonx xemoticonx xemoticonx dirindukan, dibutuhkan walau pernah ditinggalkan
 Ya
 Butuh dukungan anak abah xemoticonx xemoticonx xemoticonx
@@ -34587,7 +34577,7 @@ Catatan xemoticonx teruslah jadi pelita bagi demokrasi dan Indonesia xemoticonx
 Masak sebanyak itu untuk para tamu, keren memang keluarga pak Anies xemoticonx berkah sekali hidupnya
 Yang mengunjungi pak Anies tokoh-tokoh terakademis, bukan lulusan paket C, paket A, apalagi yang paket hemat. Mereka tahunya hanya memamerkan itu manusia. Soal beradab sepertinya mereka tidak hafal. Bahkan mungkin baru dengar xemoticonx
 Ayo siapa lagi ya merapat ke abah
-Buzzer sudah kehabisan bahan xemoticonx
+buzer sudah kehabisan bahan xemoticonx
 Masyaallah, semoga kelak pak Anies jadi pemimpin di negeri ini
 Saya heran mengapa pada mengunjungi abah Anies, mengapa tidak kepada Cak Imin, padahal abah Anies bukan ketua partai, bukan presiden juga, mengapa ya, tidak habis pikir aku
 Pak Anies kalah dalam pilpres tapi mereka tahu sebenarnya pak Anis menang xemoticonx
@@ -34604,7 +34594,7 @@ Pemimpin hebat xemoticonx xemoticonx xemoticonx
 Berbondong-bondong ke pak Anies xemoticonx
 Sosok yang sebenarnya xemoticonx xemoticonx
 Pak Anies menurut saya xemoticonx jujur, pintar, cerdas, ramah, lembut dan ksatria. Makanya banyak yang sowan ke beliau dengan apa pun alasannya. Bisa jadi ingin belajar, cari dukungan, cari sensasi dan motif lainnya. Dan yang lebih takjub lagi, Pak Anies dan Ibu welcome sekali menerima mereka. Barakallahu fikum Pak Anies xmentionx xemoticonx
-Pantas saja walaupun pak Anies tidak mencalonkan dan jadi rakyat biasa para buzzer masih memfitnah dan menghujatnya. Ternyata masih semenyala ini xemoticonx xemoticonx xemoticonx
+Pantas saja walaupun pak Anies tidak mencalonkan dan jadi rakyat biasa para buzer masih memfitnah dan menghujatnya. Ternyata masih semenyala ini xemoticonx xemoticonx xemoticonx
 Ayo menjadi tamu xemoticonx xmentionx
 Waduh banyak tamu penting ini di rumah Abah xemoticonx xemoticonx xemoticonx xemoticonx pada cari apa ya ke rumah Abah
 Masyaallah pak xmentionx xemoticonx xemoticonx xemoticonx
@@ -34646,7 +34636,7 @@ Be, bukan ketua partai tapi hanya pensiunan gubernur Jakarta, kok ya didatangi x
 Kemarin sempat melihat sedikit debatnya ibu Luluk sepertinya bagus semoga amanah ya bu, maju Jawa Timur
 Dan waktu membuktikan segalanya, yang katanya pengangguran, gelandangan politik tapi didatangi oleh berbagai tokoh. Bangga sebagai anak abah, semoga pak Anies dan ibu sehat selalu, amin ya rabb
 Dan ingat ketuamu pernah menangis bersama di jis bareng abah sekarang sudah bisa tertawa di pusat pemerintahan xemoticonx
-Teman-teman sudahlah, kita tahu siapa beliau, dan yang selalu mencoba membunuh karakter itu kan buzzer, jadi kita sama-sama doakan kehangatan keluarga abah selalu terjaga dan doakan semoga yang membencinya diberi kekuatan hati ketika melihat kehangatan ini xemoticonx
+Teman-teman sudahlah, kita tahu siapa beliau, dan yang selalu mencoba membunuh karakter itu kan buzer, jadi kita sama-sama doakan kehangatan keluarga abah selalu terjaga dan doakan semoga yang membencinya diberi kekuatan hati ketika melihat kehangatan ini xemoticonx
 Demi anak-anak abah, banyak calon pemimpin dari beberapa provinsi pada sowan ke abah, oh my God xemoticonx xemoticonx xemoticonx abahku keren kan xemoticonx
 Bukan siapa-siapa tapi diminta dukungannya xemoticonx
 Tidak jadi apa-apa saja banyak yang sowan, menyala Abah xemoticonx xemoticonx
@@ -34663,13 +34653,13 @@ Masyaallah tabarakallah abah xemoticonx xemoticonx xemoticonx
 Biang keladi permusuhan
 xmentionx dan tim KIM, ayo bergerak lagi episode kedua untuk Jakarta dan Jawa Timur Jawa Tengah
 Semoga para calon gubernur yang sowan ke Pak Anies diberkahi perjuangannya xemoticonx
-Kok saya tidak menemukan komentar buzzer binatang ternak Mulyono
+Kok saya tidak menemukan komentar buzer binatang ternak Mulyono
 Padahal cuma mantan gubernur bukan mantan presiden, bukan pula ketua umum partai. Integritasmu luar biasa abah, tidak perlu pencitraan. Energi baik akan terasa dengan sendirinya xemoticonx
 Masyaallah, semoga Allah selalu menjaga abah serta keluarga xemoticonx amin
 Role model serta hasil akan lebih memuaskan dibandingkan kampanye penuh janji namun miskin prestasi. Terbukti bahwa pak Anies ditakuti juga dihormati kawan serta lawan xemoticonx xemoticonx
 Mana ini para pembencinya pak Anies, tu yang termasuk 58 masih nama ke rumah pak Anies
 Wah benar-benar jadi brand sekali si abah diperebutkan sana sini, padahal dia disingkirkan semua partai yang ada, keren abah sampai ada isu Nasdem mau jadikan abah ketua umum xemoticonx xemoticonx
-Buzzer ayo tunjukkan pesonamu, tu Anies yang dibilang gelandang politik xemoticonx
+buzer ayo tunjukkan pesonamu, tu Anies yang dibilang gelandang politik xemoticonx
 Aneh sekali pada sowan ke pak Anies xemoticonx sampai yang di luar Jakarta juga ke sini wkwk mengapa lucu. Padahal suara Anies kecil xemoticonx katanya xemoticonx xemoticonx
 Masyaallah, magnet kebaikan mah selalu dikunjungi bersilaturahmi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ayolah Jawa Tengah dan Jawa Timur jadilah pemilih yang cerdas dan berintegritas. Sudahi kalian memilih pemimpin yang diendorsemen bagi-bagi bantuan sosial dan susu bahkan lempar-lempar kaos
@@ -34693,7 +34683,7 @@ Insyaallah 2029 ya pak presiden amin
 Masyaallah abah orang baik dan sangat baik, sehat selalu abah, Allah akan meletakkan Indonesia ini di tangan bapak tempat pada waktunya, فالصبر أن الموعد الله حق xemoticonx سيدنا حمزة بن عبد المطلب xemoticonx xemoticonx xemoticonx
 Betapa mempesonanya Abah, sampai semua orang datang ke Abah
 xmentionx, mohon bantu doa dari Tanah Suci, saya ingin kembali lagi ke sana, ingin membawa keponakan saya, agar sama-sama mendoakan ibunya xemoticonx adik saya xemoticonx yang sudah tiada di depan Baitullah. Terima kasih Abu
-Buzzer mana ini yang mengatakan Abah gelandangan politik xemoticonx xemoticonx
+buzer mana ini yang mengatakan Abah gelandangan politik xemoticonx xemoticonx
 Selanjutnya Pak xmentionx dan Pak xmentionx
 Pengangguran bukan sembarang pengangguran. Pengangguran yang berpengaruh xemoticonx
 xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx the real leader abahku
@@ -34864,7 +34854,7 @@ Saya Lamongan siap pilih pilihan pak xmentionx, karena masih bimbang antara Lulu
 The real hero sih Abah ini xemoticonx
 Kata-kata abah di ITB akan saya ingat xemoticonx program itu hanya menyelesaikan masalah tapi gerakan mengajak semua untuk ikut menyelesaikan masalah xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga calon gubernur Aceh juga ikutan datang
-Padahal pak Anis ini manusia bebas yang dicap xemoticonx manusia pengangguran, gelandangan politik xemoticonx oleh buzzer. Tapi mengapa pada ramai datang ke pengangguran ya wkwkwk. Itulah pak Anis manusia termahal di politik Indonesia saat ini dengan segala lika-liku terjangan halangan politik menghantamnya dengan sekian triliun dana rezim menghalau tapi beliau tetap ikhlas jujur apa adanya tanpa beban. Orang kalau positive vibes mau dengan siapa mau di mana saja ya positif jadinya. Sehat-sehat terus Pak Anis dan keluarga xemoticonx
+Padahal pak Anis ini manusia bebas yang dicap xemoticonx manusia pengangguran, gelandangan politik xemoticonx oleh buzer. Tapi mengapa pada ramai datang ke pengangguran ya wkwkwk. Itulah pak Anis manusia termahal di politik Indonesia saat ini dengan segala lika-liku terjangan halangan politik menghantamnya dengan sekian triliun dana rezim menghalau tapi beliau tetap ikhlas jujur apa adanya tanpa beban. Orang kalau positive vibes mau dengan siapa mau di mana saja ya positif jadinya. Sehat-sehat terus Pak Anis dan keluarga xemoticonx
 Lagi membayangkan pak xmentionx ke rumah pak xmentionx begitu pun sebaliknya. Lalu posting di mari
 Calon gubernur Sumatra Utara tidak akan datang. Mereka sudah dapat dukungan dari LSM lokal dan para pimpinan kang parkir xhashtagx
 Semoga jadi gubernur Jawa Timur ya bu Luluk xemoticonx
@@ -34993,7 +34983,7 @@ punya pengaruh apa sih pengangguran ini pada suka sekali mampir xemoticonx
 Artinya pak Anis menang di hati masyarakat Indonesia xemoticonx real
 Makin bangga dengan abah
 Pengangguran yang banyak dikunjungi calon gubernur untuk menaikkan elektabilitas xemoticonx
-yang namanya emas walau dibuang di parit pun tetap emas, orang yang berakal pasti lah tahu kapabilitas seorang pak Anis, mau diredupkan seperti apa pun kalau Allah berkehendak derajat pak Anis naik ya tetap naik, biarpun katakanlah jutaan buzzer dikerahkan untuk mengolok-olok pak Anis tetap yang bersinar akan bersinar
+yang namanya emas walau dibuang di parit pun tetap emas, orang yang berakal pasti lah tahu kapabilitas seorang pak Anis, mau diredupkan seperti apa pun kalau Allah berkehendak derajat pak Anis naik ya tetap naik, biarpun katakanlah jutaan buzer dikerahkan untuk mengolok-olok pak Anis tetap yang bersinar akan bersinar
 Setelah ditinggalkan, eh didatangi lagi xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jakarta, Jawa Barat, Jawa Timur xemoticonx xemoticonx xemoticonx
 Anis tidak mengajak siapa pun untuk mendukung pasangan mana pun. Tapi sebagai seorang warga Anis punya hak politik, dan berhak untuk mendukung siapa pun. Jadi bijaksana lah dalam menyikapinya. Anis juga bukan bagian dari tim sukses pasangan mana pun
@@ -35197,7 +35187,7 @@ Sampai akhir hayat saya xmentionx selalu di xemoticonx xemoticonx
 Ceria sekali beliauunya
 Menyala bah xemoticonx xemoticonx xemoticonx
 Anies bintang sebenarnya
-Dari tadi mencari komentar buzzer kok tidak ada ya xemoticonx xemoticonx xemoticonx
+Dari tadi mencari komentar buzer kok tidak ada ya xemoticonx xemoticonx xemoticonx
 Kelas memang ayah xemoticonx
 Gelar guru bangsa lebih pantas untuk pak Anies xemoticonx
 Siap ayah
@@ -35230,7 +35220,7 @@ Lucu xemoticonx
 Ngapain sih mendatangi nih orang, tidak tahu apa kalau dia
 Masyaallah meski dihalangi jalannya oleh manusia tapi Allah bukakan jalan keberkahan yang lain xemoticonx xemoticonx xemoticonx
 Sehat-sehat pak Anies xemoticonx
-Udara di sini terasa segar benar, baru sadar ternyata tidak ada buzzer xemoticonx xemoticonx xemoticonx
+Udara di sini terasa segar benar, baru sadar ternyata tidak ada buzer xemoticonx xemoticonx xemoticonx
 Berlian yang dibuang di selokan
 Terbukti kan kalau pak Anies bukan kaleng-kaleng xemoticonx xemoticonx xemoticonx
 Definisi sebenarnya dari pengacara xemoticonx pengangguran banyak acara xemoticonx
@@ -35299,7 +35289,7 @@ Bu Fery bikin teh jumbo berapa liter ini xemoticonx xemoticonx xemoticonx
 Tinggal yang dari Jawa Tengah-nya belum nih pak xemoticonx
 Pasti next suara ke bu Luluk ah
 Disanjung xemoticonx sama orang xemoticonx penting, eh dicaci maki sama kaum yang otaknya kurang, IQ di bawah rata-rata yang selalu bilang dasar anak ayah tidak move on xemoticonx. Yang waras sih diam xemoticonx saja kalau tidak waras ya begitu kaum 58
-Mana nih buzzer, mana nih 58 xemoticonx? Kalau jelas-jelas pendukung pak Anies lebih banyak, ini tanda-tandanya nih banyak yang sowan agar terkesan pak Anies dukung mereka xemoticonx xemoticonx. Siapapun mereka wahai pendukung pak Anies, pilihlah dengan cerdas ya, bukan karena sudah terlihat berfoto bersama sama pak Anies
+Mana nih buzer, mana nih 58 xemoticonx? Kalau jelas-jelas pendukung pak Anies lebih banyak, ini tanda-tandanya nih banyak yang sowan agar terkesan pak Anies dukung mereka xemoticonx xemoticonx. Siapapun mereka wahai pendukung pak Anies, pilihlah dengan cerdas ya, bukan karena sudah terlihat berfoto bersama sama pak Anies
 Ayah, kok masih ada yang sowan? Bukanya ada yang bilang gelandangan ya yah? Atau mereka yang gelandangan sebenarnya xemoticonx xemoticonx
 Kita menghargai kunjungan mereka ke pak Anies, hanya sekadar kunjungan ya, tidak dengan dukungan
 Memang beda ayah dari yang lain
@@ -35325,7 +35315,7 @@ Dibilang gelandangan politik tapi beliau yang ramai dikunjungi orang-orang dari 
 Silakan sowan pak xmentionx jangan sepelekan suara anak ayah xemoticonx
 High quality pengangguran xemoticonx
 Pak xmentionx cuma punya hak pilih di Jakarta woi. Lah ngapain dari seluruh penjuru Indonesia pada datang? Menyala ayah xemoticonx xemoticonx
-Sekarang seolah jadi jadwal wajib pasti bertamu ke pendopo bapak Anies xemoticonx mana buzzer kemarin-kemarin yang mengatai beliau gelandangan politik
+Sekarang seolah jadi jadwal wajib pasti bertamu ke pendopo bapak Anies xemoticonx mana buzer kemarin-kemarin yang mengatai beliau gelandangan politik
 Pak Ganjar tidak ada yang sowan ya xemoticonx
 Pada sowan ya, untuk narik suara anak ayah sepertinya nih xemoticonx xemoticonx seberpengaruh itu suara loyalis pak Anies
 Menyala selalu idolaku pak Anies xemoticonx xemoticonx
@@ -35387,7 +35377,7 @@ Siapa lagi ini yah?
 Weh, menyala xemoticonx xemoticonx xemoticonx
 Pengangguran yang sangat sibuk, dicari orang dimintai doa restu dan pendapatnya xemoticonx xemoticonx xemoticonx
 Tidak perlu turut campur xemoticonx omong-omong, satu per satu malah berdatangan ke pak Anies. Luar biasa xemoticonx
-Dari sini kita paham mengapa peternakan buzzer harus selalu ditingkatkan
+Dari sini kita paham mengapa peternakan buzer harus selalu ditingkatkan
 Heran dengan ayah, bukan pejabat penting tapi yang sowan orang-orang penting melulu, barakallah pak Anies dan keluarga
 Banten, Sumatera, Jawa Tengah ditunggu ya xemoticonx menyala ayahku xemoticonx xemoticonx
 Ramai sekali ya yang mendatangi bapak. Alhamdulillah
@@ -35479,7 +35469,7 @@ Masyaallah pak, saya bangga di barisan Bapak, Bapak menjadi inspirasi kami, sela
 Wah, banyak para calon-calon main ke rumah Pak Anies, tebak, siapa lagi yang menyusul ke sana xemoticonx xemoticonx
 Maksudnya apa pada menemui Pak Anies
 Mengapa pada ke rumah orang pengangguran sih pada xemoticonx nanti saja sudah jadi lupa dengan yang pengangguran xemoticonx Pak Anies jangan baik sekali mengapa pak xemoticonx dimanfaatkan orang terus
-Hahaha sepi dari buzzer nih yang katanya gelandangan politik xemoticonx menyala Pak Anies xemoticonx xemoticonx
+Hahaha sepi dari buzer nih yang katanya gelandangan politik xemoticonx menyala Pak Anies xemoticonx xemoticonx
 Nah lo, tiba-tiba kok semua partai politik xemoticonx calon gubernur bersilaturahmi ke abah menjelang pemilihan gubernur xemoticonx xemoticonx xemoticonx
 Menyala Abah, tetaplah bersinar seperti berlian xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semangat Bu Luluk, barakallah Pak Anies xemoticonx xemoticonx
@@ -35487,7 +35477,7 @@ Siapa pun yang datang pasti diterima dan disambut dengan baik xemoticonx xemotic
 Bismillah, semoga terpilih
 Mengapa pada datang ke rumah bapak ya? Bapak sebenarnya siapa sih pak, masyaallah tabarakallah, sungguh luas hatimu pak xemoticonx xemoticonx xemoticonx xemoticonx
 Keren abah, sudah jadi mentor ya abah xemoticonx
-Apa yang diharapkan dari warga Jawa Timur sini? Komunitas pecinta musik horeg? Pilih gubernur pun ya asal ikut saja apa kata kyainya, dan para kyai sudah sangat nempel dengan Khofifah karena periode kemarin si Khofifah menggelontorkan dana hibah besar-besar ke pondok pesantren-pondok pesantren di Jawa Timur, lagian Cak Imin juga mengapa sih jadi pembantunya Khofifah akhirnya tidak bisa bantu kadernya yang maju pemilihan gubernur Jawa Timur, padahal Bu Luluk ini sangat bagus kedua Bu Risma terakhir Khofifah xemoticonx xemoticonx
+Apa yang diharapkan dari warga Jawa Timur sini? Komunitas pecinta musik horeg? Pilih gubernur pun ya asal ikut saja apa kata kyainya, dan para kiai sudah sangat nempel dengan Khofifah karena periode kemarin si Khofifah menggelontorkan dana hibah besar-besar ke pondok pesantren-pondok pesantren di Jawa Timur, lagian Cak Imin juga mengapa sih jadi pembantunya Khofifah akhirnya tidak bisa bantu kadernya yang maju pemilihan gubernur Jawa Timur, padahal Bu Luluk ini sangat bagus kedua Bu Risma terakhir Khofifah xemoticonx xemoticonx
 Emas tetap akan bersinar di antara sampah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Dilihat dari caption-nya, kirain entah tokoh masyarakat biasa, waktu lihat profilnya, eh calon gubernur juga xemoticonx
 Tiga provinsi datang ke abah xemoticonx xemoticonx xemoticonx ditunggu provinsi selanjutnya xemoticonx
@@ -35534,11 +35524,11 @@ Super keren Abah panutan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx 
 Pak, sebelum pemilihan kepala daerah selesai bapak jangan ke mana-mana ya, yang mau sowan antri xemoticonx
 Mengumpulkan suara anak abah xemoticonx xemoticonx anak abah xemoticonx bodoh amat xemoticonx
 Pada sowan ke Pak Anies, sudah seperti sowan ke mantan presiden xemoticonx, keren Pak Anies, menyala xemoticonx
-Para calon yang minta dukungan ke Pak Anies, nanti ketika mereka malah kalah, para buzzer langsung keluar, pasti menyalahkan harusnya minta dukungan dengan yang menang
+Para calon yang minta dukungan ke Pak Anies, nanti ketika mereka malah kalah, para buzer langsung keluar, pasti menyalahkan harusnya minta dukungan dengan yang menang
 Semua pada sowan ke Pak xmentionx, menyala abangku xemoticonx xemoticonx xemoticonx xemoticonx
 Mengapa tiba-tiba para politikus ini pada mendatangi Pak Anies ya? Beliau kan cuma pengangguran xemoticonx
 Ini dari kemarin tamu-tamunya pada lepas sekali ekspresinya xemoticonx
-Jadi tidak heran kalau masih banyak buzzer berkeliaran
+Jadi tidak heran kalau masih banyak buzer berkeliaran
 Oh ini yang dibilang ternak Mulyono gelandangan politik? xemoticonx xemoticonx kok banyak yang datangi sih, bukannya kalian sendiri yang bilang tidak akan berpengaruh apa-apa xemoticonx
 Mendadak jadi artis politik, cuma ingin upload foto satu frame dengan Pak Anies xemoticonx
 Heran, tidak ada malunya sekali ya pada pansos tuh
@@ -35554,7 +35544,7 @@ Kita menangkan yang datang sowan ke Abah xemoticonx DKI SIAP! xemoticonx
 xemoticonx xemoticonx Pak Anies ku
 Eh bukannya mendatangi Mulyono Sang Guru Bangsa, mungkin pada tahu kalau mendatangi Mulyono tidak akan ada faedahnya ya?
 Dari diskusi ini mudah-mudahan membuka pemikiran yang rasional, bahwa bangsa ini wajib dipimpin oleh orang-orang yang mempunyai wawasan luas dan dapat berdialog untuk menemukan solusi atas segala permasalahan yang dihadapi bangsa ini, untuk membawa bangsa ini menjadi lebih baik dan bermartabat
-Gelandangan politik kata mereka, tapi makin hari makin banyak yang sowan, minta dukungan, minta wejangan dll, buzzer ternak yang kemarin-kemarin kok pada diam nih xemoticonx
+Gelandangan politik kata mereka, tapi makin hari makin banyak yang sowan, minta dukungan, minta wejangan dll, buzer ternak yang kemarin-kemarin kok pada diam nih xemoticonx
 Pengangguran yang sangat menyala xemoticonx
 Terima kasih Pak Anies telah membuka lebar pintu rumahnya untuk semua tamu dan Bapak sungguh tuan rumah yang baik dan juga para tamu calon pemimpin semoga kelak jika terpilih menjadi pemimpin yang amanah xemoticonx amin
 Presiden yang ASLI
@@ -35579,7 +35569,7 @@ Ya karena diskusi dengan Pak Anies isinya daging semua, daripada ke yang ada cum
 Pada jadi anak abah semua nih? xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Gila ini xmentionx xemoticonx di atas level ketua umum partai, mantan presiden bahkan tokoh agama xemoticonx
 Pencari kerja gubernur Jakarta, Jawa Barat dan Jawa Timur datang ke rumah abah Anies Baswedan yang katanya pengangguran xemoticonx luar biasa Pak Anies, menyala Pak Anies xemoticonx
-Percayalah buzzer tidak akan berkutik melihat semua ini
+Percayalah buzer tidak akan berkutik melihat semua ini
 Waduh bapak ini malah tamunya lebih banyak daripada mantan itu yang kembali ke kotanya xemoticonx
 Siap memenangkan Jawa Timur, saya dari Sumenep xemoticonx xemoticonx
 Abah, saya tidak mengerti lagi deh bah, ini mengapa harus abah? Hati abah seluas samudra sekali xemoticonx xemoticonx
@@ -35608,7 +35598,7 @@ Amin ya rabbal alamin. Sehat selalu Pak Anies
 Calon presiden yang diganjal dan dipaksa kalah lebih berharga dari mantan presiden 10 tahun yang jual negara
 Ada yang menyebut pak Anies pengangguran, gelandangan politik, dan sebagainya. Tiba-tiba ingat film Pendekar Rajawali. Ada Partai Pengemis, ketua partainya gurunya Guo Jing dan Huang Rong. Walaupun pengemis tapi dihormati semua kalangan karena ketegasannya dalam membela keadilan. Racun Barat dan Sesat Timur juga segan. Setelah kakaknya, Bocah Tua Nakal juga patuh sama dia. Eh ini membicarakan apa sih? Maaf maaf xemoticonx
 Para calon gubernur dari kemarin pada silaturahmi ke rumah Abah, mengapa ya xemoticonx
-Ternyata seberpengaruh itu Pak Anies. Makanya para buzzer tidak henti-hentinya mau membungkam bapak. Barakallah Pak Anies, semoga selalu dalam lindungan Allah
+Ternyata seberpengaruh itu Pak Anies. Makanya para buzer tidak henti-hentinya mau membungkam bapak. Barakallah Pak Anies, semoga selalu dalam lindungan Allah
 Kok tidak ada yang berkunjung ke Jokowi atau ke Gibran xemoticonx xemoticonx Percuma ya tidak ada manfaatnya juga
 Ceritanya Abah sedang menerima tamu atau kunjungan teman-sahabat yang kenal dekat ini ya
 Pak saya orang Jawa Timur, dengan postingan bapak xmentionx jadi galau 01 xemoticonx 03 xemoticonx
@@ -35639,7 +35629,7 @@ Yang katanya gelandangan, tapi dicari-cari xemoticonx
 Pengangguran yang dicari orang-orang penting ya Pak. Sehat sehat Abah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx semoga selalu dilindungi Allah SWT
 Jawa Barat xemoticonx xemoticonx, Jakarta xemoticonx xemoticonx, Jawa Timur xemoticonx xemoticonx
 Pak, tidak membuat video template saya titip kota xemoticonx provinsi tidak?
-Kekuatan pak Anies bikin buzzer-buzzer masih ada. Yang bayar masih ketakutan dan panas xemoticonx. Semangat terus pak Anies, cuek buzzers laknat yang selalu nongkrong di media sosial pak Anies
+Kekuatan pak Anies bikin buzer-buzer masih ada. Yang bayar masih ketakutan dan panas xemoticonx. Semangat terus pak Anies, cuek buzzers laknat yang selalu nongkrong di media sosial pak Anies
 Sewa katering-nya sudah diperpanjang hingga akhir bulan ini Bah? Tamu makin banyak xemoticonx
 Jauh sekali bu jalannya
 Pak, ceritakan sedang membicarakan apa
@@ -35653,7 +35643,7 @@ TIDAK PUNYA PARTAI, PENGANGGURAN TAPI KOK SEBERPENGARUH ITU BAH xemoticonx xemot
 Pada minta dukungan Abah Anies xmentionx. Lucu memang xemoticonx Menyala Abahku masih banyak yang membutuhkan Abah Anies xemoticonx berlian tetap berlian di manapun berada xemoticonx xemoticonx
 Mana paham nih kaum 58 xemoticonx yang katanya mereka bilang pak Anies gelandangan politik. Woy sadar woy, lihat nih Abah banyak yang silaturahmi minta dukungan xemoticonx
 Mau mengikuti tips dari Abah ah, menghormati orang-orang yang sudah mengecewakan. Beliau tetap hormat sama semua orang, dan biasanya orang yang mengecewakan itu jadi salah tingkah kalau bertemu ya Pak xemoticonx
-Bukan kyai, bukan gus, bukan pejabat, bukan ketua partai, malah kata kaum 58 xemoticonx gelandangan politik xemoticonx. Terus mengapa calon xemoticonx pada xemoticonx silaturahmi xemoticonx ke pak xmentionx ya xemoticonx xhashtagx xhashtagx
+Bukan kiai, bukan gus, bukan pejabat, bukan ketua partai, malah kata kaum 58 xemoticonx gelandangan politik xemoticonx. Terus mengapa calon xemoticonx pada xemoticonx silaturahmi xemoticonx ke pak xmentionx ya xemoticonx xhashtagx xhashtagx
 Min, tolong share waiting list-nya. Next yang mampir siapa lagi xemoticonx
 Calon gubernur di pulau Jawa tinggal Jawa Tengah xemoticonx Banten saja yang belum silaturahmi ke Pak Anies
 Lagi trend ya silaturahmi ke pak Anies xemoticonx
@@ -35686,7 +35676,7 @@ Deklarasi Jakarta, Jawa Barat dan Jawa Timur xemoticonx
 Abah, resep doanya jadi orang sabar. Masyaallah Abahku, sungguh manusia yang setiap harinya usaha untuk jadi lebih baik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Kapan bikin partai pak? Kita gempurlah pemilihan umum mendatang
 Banyak sekali yang mengunjungi pak Anies
-Pak Anies selalu memberikan semangat positif. Jadi buzzer-buzzer itu sebenarnya bakal habis energi dengan sendirinya xemoticonx xemoticonx
+Pak Anies selalu memberikan semangat positif. Jadi buzer-buzer itu sebenarnya bakal habis energi dengan sendirinya xemoticonx xemoticonx
 Pada minta suara ke Abah
 NEGARAWAN xemoticonx xemoticonx xemoticonx
 Sibuk sekali Abah xemoticonx the real pengacara ini mah xemoticonx pengangguran banyak acara xemoticonx
@@ -35736,7 +35726,7 @@ Mbak yu sukses ya xemoticonx mendoakan yang terbaik
 Semoga diberi kelancaran mbak
 Semoga hajat mbak Luluk dikabulkan oleh Allah SWT. Amin
 Teladan di mananya?
-Ini yang nyalon siapa kok banyak salaman ke kyai Maruf
+Ini yang nyalon siapa kok banyak salaman ke kiai Maruf
 TEBAK SKOR TIMNAS DAY BESOK MBAK xmentionx Fans bola banyak di Jawa Timur xemoticonx
 Di Pandaan ya
 Cie xemoticonx so sweet xemoticonx xemoticonx xemoticonx
@@ -35764,7 +35754,7 @@ Yang harus dilakukan adalah ikhtiar, selebihnya tawakal xemoticonx
 Dia pintar hanya kalah tenar dan berpengalaman
 Ya Allah benar itu xemoticonx xemoticonx xemoticonx datang ke Rabithah Alawiyah juga mbak
 Semangat mbak, semoga Allah menjadikan anda pemenang
-Semoga selalu diberi sehat selalu kyai, MUDAH MENANG xemoticonx xemoticonx
+Semoga selalu diberi sehat selalu kiai, MUDAH MENANG xemoticonx xemoticonx
 MUDAH MENANG xemoticonx xemoticonx xemoticonx
 Mohon dukungan ya Habib Zen xemoticonx xemoticonx xemoticonx
 Very authentic mbak xmentionx nice style of you
@@ -35789,7 +35779,7 @@ Sukses selalu mbak Luluk, insyaallah menang dan doaku terus menyertaimu. Sukses 
 Sebagai sesama muslim apakah ada misi dan visi untuk saudara di Gaza
 dlittlebutterfly incu emih xemoticonx xemoticonx xemoticonx
 Semangat neng Luluk
-Mohon juga bisa diperhatikan ketawaduan ya mbak Luluk! Sebagai seorang santri, sikap ini sangat diperhatikan bagi kita yang merupakan murid dari kyai-kyai NU. Maaf koreksi ini semoga juga bisa jadi renungan! xhashtagx xhashtagx xhashtagx xhashtagx xemoticonx xemoticonx
+Mohon juga bisa diperhatikan ketawaduan ya mbak Luluk! Sebagai seorang santri, sikap ini sangat diperhatikan bagi kita yang merupakan murid dari kiai-kiai NU. Maaf koreksi ini semoga juga bisa jadi renungan! xhashtagx xhashtagx xhashtagx xhashtagx xemoticonx xemoticonx
 Bangkit, siap, menang
 Memang ada ya wajib mughaladah
 Lo lo lo tidak bahaya ya mengusung semangat perubahan xemoticonx
@@ -35906,9 +35896,9 @@ Allahumma jadi
 LUMAN Nomor satu menang
 Alhamdulillah tadi hadir
 Risma terbaik
-Bu Khofifah yang terbaik kyai xemoticonx xemoticonx xemoticonx
+Bu Khofifah yang terbaik kiai xemoticonx xemoticonx xemoticonx
 Maaf ya maaf ya Bu Khofifah masih yang oke. PKB tidak xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
-Pokok 02 oke gas kyai
+Pokok 02 oke gas kiai
 Omong kosong
 Harus hh emangnya apa. Maaf ya
 Tidak harus milih. Tetap xemoticonx
@@ -35918,7 +35908,7 @@ Kalau si ini kamu yang menyuarakan aku mundur karena anda sudah terbukti jalan l
 Away from keyboard
 Tidak bakal milih
 Wakil presiden boneka xemoticonx xemoticonx xemoticonx
-Aku tidak milih pak kyai PKB karena dipimpin oleh Muhaimin Iskandar Jawa Timur tidak akan perubahan tidak seperti Gerindra dan Golkar
+Aku tidak milih pak kiai PKB karena dipimpin oleh Muhaimin Iskandar Jawa Timur tidak akan perubahan tidak seperti Gerindra dan Golkar
 Bicara apa ya kek
 Maaf ya kalau tidak pilih dari PKB. Ada yang lebih bagus
 Sudah Mbah diam saja tidur saja tidak usah bicara tidak berpengaruh
@@ -35941,16 +35931,16 @@ Wah ikutan
 Mohon ya yang ada di sini dibungkuskan, jalan-jalan orang perlu stamina extra xemoticonx
 Alhamdulillah semangat semangat
 Amin ya Allah
-Meski didukung para kyai. Kalau menurutku masih kuat Khofifah di Muslimat NU. Risma vs Khofifah next putaran ke dua
+Meski didukung para kiai. Kalau menurutku masih kuat Khofifah di Muslimat NU. Risma vs Khofifah next putaran ke dua
 Sehat sehat bu gubernur
-Saya ikut mbah kyai saja
+Saya ikut mbah kiai saja
 Luar biasa mb Luluk xemoticonx xemoticonx
 Insyaallah terpilih. Salam dari Jakarta
 Semangat Bu Luluk
 Nanti kalau misal tahun ini bukan rezekinya ibu aku doakan lima tahun pasti ibu yang jadi gubernurnya amin. Biasanya orang baru agak susah bu tapi rekam jejak ibu baik semoga ada keajaiban ya bu semangat
 Menyala mbakku xmentionx sehat selalu
 Semangat xemoticonx mbak yu
-Tolong dibantu calon bupati Kabupaten Blitar, bisa lebih komunikatif dan bisa mengunjungi ke kyai-kyai serta Gus
+Tolong dibantu calon bupati Kabupaten Blitar, bisa lebih komunikatif dan bisa mengunjungi ke kiai-kiai serta Gus
 Warna suara plus public speaking yang enak xemoticonx
 Takbir coblos satu pasangan LUKMAN untuk Jawa Timur sejahtera amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Dari Bondowoso dukung penuh ibu Khofifah
@@ -35976,7 +35966,7 @@ Bisa saja kalau cari xemoticonx
 Tidak sama dengan di fotonya
 Ibu Khofifah saja
 Sehat selalu mbak yu
-Itu tidak termasuk hijab, tapi surban. Harusnya kyai atau Gus yang ada di situ berani menasihati
+Itu tidak termasuk hijab, tapi surban. Harusnya kiai atau Gus yang ada di situ berani menasihati
 Kerudung yang rapi lah ya tambah cantik ya xemoticonx
 Saya dukung mbak Luluk xemoticonx debatnya kamu mantap xemoticonx xemoticonx
 Bu LULUK KAPAN KE MADURA IBU
@@ -36028,7 +36018,7 @@ Banyak bicara
 xmentionx kita yatim
 Ibunya Torik
 Mengapa janda dapat santunan kalau duda tidak
-Hah, bicara apa, kenapa lewat beranda saya xemoticonx
+Hah, bicara apa, mengapa lewat beranda saya xemoticonx
 Nanti kalau jadi lupa Bu jangan banyak kalau bicara Bu takutnya tidak amanah Bu
 Tidak ada buktinya tuh
 Sama sekali tidak menganggap
@@ -36266,7 +36256,7 @@ Bu
 Lulu lebih segar
 Pilih yang tidak pernah digeledah KPK
 xemoticonx xemoticonx xemoticonx jos xmentionx xemoticonx
-Masyaallah. Banyak-banyak konten salawatan juga mbak cakep sekali xemoticonx xemoticonx
+Masyaallah. Banyak-banyak konten selawatan juga mbak cakep sekali xemoticonx xemoticonx
 Kapan ke Gasek mbak xmentionx
 Tanggal sepuluh kampanye akbar
 Siap
@@ -36345,7 +36335,7 @@ Bu Luluk ini cuma kalah di popularitas kalau dari segi kualitas bisa diadu sih d
 Ikut kerja bu
 Bu Luluk mantap
 Mbak Luluk ini wonder woman ya multitalenta luar biasa xemoticonx
-Isinya buzzer saja xemoticonx ini Instagram apa bungkus tempe xemoticonx
+Isinya buzer saja xemoticonx ini Instagram apa bungkus tempe xemoticonx
 Terus semangat berjuang untuk rakyat mbak xemoticonx xemoticonx
 Jos bu, tetap lestarikan budaya xemoticonx
 Reog Ponorogo go internasional xemoticonx xemoticonx xemoticonx
@@ -36353,7 +36343,7 @@ Gas terus bu Luluk, menyala 01 xemoticonx
 Mbak Luluk cantik sekali xemoticonx
 Keren ibu Luluk memperkenalkan budaya-budaya khas daerah
 Jawa Timur Luman menang
-Buzzer-nya Luluk banyak ya xemoticonx
+buzer-nya Luluk banyak ya xemoticonx
 Terima kasih banyak sudah datang di Ponorogo bersama seniman mbak xmentionx xemoticonx
 Insyaallah mbak Luluk menang di Ponorogo xemoticonx
 Sudah waktunya seniman, petani, nelayan rakyat Jawa Timur naik kelas bersama mbak Luluk xemoticonx
@@ -36470,7 +36460,7 @@ Baik baik baik, xemoticonx xemoticonx xemoticonx
 Terima kasih Mas Ibin. Bismillah, maju bersama menang bersama. Rakyatnya makmur bersama
 Bu TF 150 untuk ongkos cari kerja
 Warga Jawa Timur rapatkan barisan dan pilihan kita untuk xmentionx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx menyala Mbak saya
-Subhanallah, senang rasanya pemimpin silaturahmi kepada para masayikh dan kyai xemoticonx xemoticonx
+Subhanallah, senang rasanya pemimpin silaturahmi kepada para masayikh dan kiai xemoticonx xemoticonx
 Keren Mbak Luluk. Gubernur Jawa Timur yang sesungguhnya
 Bismillah menang Mbak
 Pasuruan menangkan Luman xemoticonx
@@ -36487,7 +36477,7 @@ Blitar tidak sepele xemoticonx xemoticonx xemoticonx
 Ngawi satu semua
 Kami dari Depok mendoakan sukses dan yang terbaik untuk Bu Luluk
 Dikabulkan hajat kami Mbak Luluk
-Keren sekali Mbak Luluk. Gas pol ngepot-ngepot
+Keren sekali Mbak Luluk. Gas penuh ngepot-ngepot
 Baik Mbak Luluk. Lanjutkan
 Blitar keren
 Mbak yu senang sekali
@@ -36527,7 +36517,7 @@ Perempuan hebat
 Hanya Mbak Luluk yang lurus, pokoknya Jawa Timur pilih Gubernur Luluk. Rakyat jangan mau lagi terjebak janji dua calon yang lain cuma omong-omong
 Subhanallah. Orang Madura
 Ayo mari kita menangkan coblos nomor satu takbir
-Gas pol Mbak xemoticonx xemoticonx xemoticonx
+Gas penuh Mbak xemoticonx xemoticonx xemoticonx
 Dikabulkan hajat semuanya Mbak yu xmentionx
 Wih Bunda sudah sampai di kampus saya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ke UIN Malang kapan Bunda
@@ -36552,7 +36542,7 @@ Menyala sekali xemoticonx xemoticonx
 Menyala Mbak Luluk xemoticonx xemoticonx
 Keren, apresiasi untuk Bu Luluk xemoticonx
 Terbaik sekali Mbak Luluk ini
-Gas pol Bu Luluk xemoticonx xemoticonx
+Gas penuh Bu Luluk xemoticonx xemoticonx
 Lancar selalu Mbak Luluk xemoticonx xemoticonx
 Terbaik xemoticonx Mbak Luluk
 Sukses terus Bu Luluk xemoticonx
@@ -37471,7 +37461,7 @@ Adem lihatnya Bun xemoticonx
 Barakallah
 Bismillah LULUK-LUKMAN Gubernur Jawa Timur 2024
 Alfatihah untuk almarhum Gus Dur
-Mbak Luluk selain cantik cerdas juga selalu ingat dengan kyai besar Nusantara, alfatihah
+Mbak Luluk selain cantik cerdas juga selalu ingat dengan kiai besar Nusantara, alfatihah
 Keren rek Mbak Luluk
 Allah Karim xemoticonx
 Sukses selalu Ibu xemoticonx xemoticonx
@@ -37507,7 +37497,7 @@ Jawa Timur mana suaranya
 Aku Muhammadiyah juga mendukung Mbak Luluk
 Wujudkan Jawa Timur lebih baik xemoticonx
 Amankan sampai hari H
-Makan wafer memang renyah, mengambil berkah Kyai Ahmad Dahlan, Luluk Lukman bersama Muhammadiyah, warga Muhammadiyah memang Lukman Lukman
+Makan wafer memang renyah, mengambil berkah kiai Ahmad Dahlan, Luluk Lukman bersama Muhammadiyah, warga Muhammadiyah memang Lukman Lukman
 CANTIQ luar dalam ini
 Yang pilih nomor satu tekan suka
 Sebuah langkah cantik dari Mbak CANTIQ xemoticonx
@@ -38135,7 +38125,7 @@ Bu Risma xemoticonx Gus Hans Jawa Timur gas xemoticonx
 Madura akan menjadi mirip Surabaya
 Risma-Gus Hans, pemimpin visioner yang mengutamakan kesejahteraan rakyat Jawa Timur xemoticonx daerah anak Surabaya, Matraman, Pandalungan, Madura xemoticonx jangan lupa rek coblos nomor tiga xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xhashtagx xhashtagx xhashtagx xhashtagx xhashtagx xemoticonx
 Seandainya Bu Risma terpilih jadi gubernur Jawa Timur, Jawa Timur pasti hidup dan tidak jalan di tempat lagi. Semangat ya Bu Risma. Mudah-mudahan Allah selalu meridai Bu Risma. Amin
-Alhamdulillah setuju pak kyai, terus gelorakan agar masyarakat Jawa Timur memilih pemimpin yang tegas dan bersih dan mempunyai niat yang besar untuk membuat terobosan yang bagus agar masyarakat dan warga yang dipimpinnya menjadi lebih sejahtera. Pilih Bu Risma dan Gus Hans pemimpin bersih dan tidak tersandera xemoticonx xemoticonx xemoticonx xemoticonx Bu Risma Gus Hans
+Alhamdulillah setuju pak kiai, terus gelorakan agar masyarakat Jawa Timur memilih pemimpin yang tegas dan bersih dan mempunyai niat yang besar untuk membuat terobosan yang bagus agar masyarakat dan warga yang dipimpinnya menjadi lebih sejahtera. Pilih Bu Risma dan Gus Hans pemimpin bersih dan tidak tersandera xemoticonx xemoticonx xemoticonx xemoticonx Bu Risma Gus Hans
 Bu Risma pemimpin yang welas asih xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ibu Risma for Jawa Timur xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Jembatan Kalilo mohon dukungannya untuk seni musik Banyuwangi setiap bulan dapat ditampilkan masih dalam pekerjaan melebarkan jembatan untuk pentas seni musik mohon gebyarkan
@@ -38556,7 +38546,7 @@ Semangat ananda
 Bu Risma orangnya tegas cepat dalam menyikapi segala masalah xemoticonx xemoticonx
 Keren Cak Islah terima kasih atas edukasinya Risma uber alles xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Risma - Gus Hans yang tidak pernah tersandung dengan hukum. Ayo sampaikan ke masyarakat terkait track record beliau
-Wakilnya Bu Risma pak kyai saya waktu di pondok hehe, bismillah semoga menang ya Bu dan Gus
+Wakilnya Bu Risma pak kiai saya waktu di pondok hehe, bismillah semoga menang ya Bu dan Gus
 Aku bukan warga Jawa Timur tapi berdoa semoga warga Jawa Timur cerdas dalam memilih pemimpin tidak hanya beli pepesan kosong
 Bu Risma xemoticonx xemoticonx
 Kami sekeluarga tetangga semuanya pilih Bu Risma
@@ -38879,7 +38869,7 @@ Jawa Timur harus Risma
 Cinta
 Bu Risma dan Gus Hans layak memimpin Jawa Timur menang mantap sekali xemoticonx xemoticonx xemoticonx xemoticonx
 Tidak ada cita-cita pemutihan BPJS mandiri warga Surabaya kan
-Bismillah untuk Bu Risma dan kyai saya Gus Hans xemoticonx
+Bismillah untuk Bu Risma dan kiai saya Gus Hans xemoticonx
 Semangat ayo gas penuh
 Sahabat xemoticonx ayo dukung dan coblos Ibu Tri Risma xemoticonx Gus Hans sebagai gubernur Jawa Timur. Jangan terpengaruh uang yang diberikan calon pemimpin pasti satu hari habis, tapi lihat kinerja Bu Risma yang terbukti kerja nyata untuk kebaikan Jawa Timur lima tahun ke depan agar Jawa Timur lebih baik
 Ayo memilih Bu Risma Gus Hans
@@ -38895,7 +38885,7 @@ Bumi Arema wajib pilih Risma Gus Hans
 Orang Jombang wajib pilih Gus Han xemoticonx xemoticonx xemoticonx
 Maiyah itu ruang. Semua ditampung semua diterima dengan jiwa kebijaksanaan. Maiyah adalah orang yang ikhlas memperbaiki Indonesia xemoticonx xemoticonx
 Rasa kebersamaan itu memang indah xemoticonx xemoticonx xemoticonx xemoticonx
-xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Mbak Lulu dan Kyai Gus Hans
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx Mbak Lulu dan kiai Gus Hans
 Lah kolaborasi 01 03
 Padahal saya tidak mau pilih PDIP karena Maiyah lo terima kasih Bahnun atas ilmunya jadi tahu aku tidak pilih PDIP
 Gus Hans xemoticonx xemoticonx
@@ -38941,7 +38931,7 @@ Semoga PDIP tetap memerahkan Jawa Timur
 Hidup Bu Risma, Jawa Timur maju di tangan ibu
 Alhamdulillah sudah banyak yang mendukung Bu Risma dan Gus Hans. Pilih beliau xemoticonx xemoticonx xemoticonx
 Info ketua, istri saya KTP Madura kerja di Jakarta bisa ikut coblos di Jakarta untuk Surabaya xemoticonx xemoticonx
-Saya pendukung penuh Ibu Risma xemoticonx xemoticonx salawat
+Saya pendukung penuh Ibu Risma xemoticonx xemoticonx selawat
 Bismillah menang Ibu Risma dan Gus Hans xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Ya betul sekali teman-teman Ibu Risma adalah sosok pemimpin yang bisa membawa perubahan dan kemajuan bagi masyarakat Jawa Timur saya kira juga begitu teman-teman amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga Bu Risma terpilih menjadi gubernur Jawa Timur bersama Gus Hans sebagai wakil gubernurnya, dan semoga Allah SWT meridai xemoticonx xemoticonx xemoticonx
@@ -39141,7 +39131,7 @@ Mumpung belum terlambat satukan kompak guyup bersatu memenangkan Risma jangan ad
 Risma yang sukanya mengamuk xemoticonx itu ya
 Mantap. Semoga apa yang diharapkan untuk Jawa Timur, semoga Ibu Risma pilihan yang tepat untuk gubernur Jawa Timurnya
 Bu Risma, nyalakan terus api PDI-P di Jawa Timur, semoga Tuhan Maha Bijaksana, mengabulkannya dan mengizinkannya
-Bismillahirrahmanirrahim Bu Risma Gus Hans menang xemoticonx xemoticonx xemoticonx buzzer sebelah mulai bermunculan xemoticonx xemoticonx xemoticonx
+Bismillahirrahmanirrahim Bu Risma Gus Hans menang xemoticonx xemoticonx xemoticonx buzer sebelah mulai bermunculan xemoticonx xemoticonx xemoticonx
 Ya pasti lah, kapan rakyat yang bisa menilainya prediksi aku unggul ini di tahun 2024
 Harusnya suara rakyat yang menentukan OK Bu Megawati Soekarno Putri suara rakyat di seluruh Indonesia mendoakan, selalu untuk unggul dan terpilih doa rakyat menyertaimu lo amin ya rabbal alamin amin ya Allah amin ya rab
 Pasti menang Ibu Risma orang baik dan jujur
@@ -39157,8 +39147,8 @@ Banyak yang menganggur mulai umur 18 tahun-58 tahun tidak kerja. Mondar-mandir m
 Sebelum ada BOS, Bu Risma sudah menggratiskan sekolah di Surabaya xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Semoga Bu Risma Gus Hans dan Ibu KD terpilih xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
 Maju Gus mantap sekali xemoticonx xemoticonx xemoticonx
-Bismillah kyai saya memimpin Jawa Timur xemoticonx xemoticonx
-Ini kyai Jawa Timur kawan, pas dengan Bu Risma xemoticonx
+Bismillah kiai saya memimpin Jawa Timur xemoticonx xemoticonx
+Ini kiai Jawa Timur kawan, pas dengan Bu Risma xemoticonx
 Alam semesta pun bersama Bu Risma. Bismillah Jawa Timur lebih baik bersama Bu Risma xemoticonx xemoticonx xemoticonx
 Tetap pakai Risma tanpa insiden
 Dan sekarang Mensos sekarang menstop bantuan sosial untuk menghindari kepentingan politik xemoticonx berarti memang pernah ada kejadian wkwkwk
@@ -40801,7 +40791,7 @@ Love it xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoti
 Keren Mbak KD semangat Mbak KD pasti bisa xemoticonx xemoticonx
 Cantiknya mimi saya xemoticonx xemoticonx xemoticonx
 Uh mimi KD xemoticonx xemoticonx
-Salawat ala Muhammad
+selawat ala Muhammad
 Wow mantap
 Semoga Mimi KD terpilih menjadi wali kota Batu
 Karena sudah banyak uang pasti tinggal pengabdian di daerah sendiri
@@ -41060,7 +41050,7 @@ Mama saya cantik sekali dengan Gus Hans xemoticonx xemoticonx xemoticonx xemotic
 Tetap tenang kawal sampai tujuan, tidak ada pilihan selain Bu Risma Gus Hans xemoticonx xemoticonx xemoticonx
 Bismillah menang Jawa Timur satu Bu Risma dan Gus Hans xemoticonx xemoticonx xemoticonx kebanyakan bicara xemoticonx kerja nyata xemoticonx
 Bu Risma Banyuwangi xemoticonx xemoticonx
-Salawat atas Nabi Muhammad xemoticonx serasi saling mengingatkan
+selawat atas Nabi Muhammad xemoticonx serasi saling mengingatkan
 Pasti Bu Risma menang untuk Jawa Timur
 Semoga terpilih jadi gubernur Jawa Timur kawan xemoticonx
 Tetap Bu Risma is the best Jawa Timur satu xemoticonx xemoticonx
@@ -41798,3 +41788,135 @@ Semangat dan menyala
 Terbaik untuk kota Malang, perempuan memimpin xemoticonx xemoticonx
 xmentionx xemoticonx xemoticonx xemoticonx merdeka
 Ayo Mbak Ganis gas penuh untuk kota Malang semoga jadi dan amanah
+Mbak Ganis fokuskan juga pengangguran kota, dengan diadakannya Pelatihan Dunia Kerja hingga Job placement
+Merdeka xmentionx xemoticonx
+Ibunya meninggalkan sampah berserakan di jalan utama kota Batu
+Mantap
+Bangun trek lari dong xemoticonx
+Waktu itu Pak Mul lagi di mana ya?
+Oke baik teman-teman geng banteng PDIP bersama ketua umum PDIP Ibu Megawati selalu bekerja keras bersama rakyat demi Ibu Pertiwi Nusantara. PDIP adalah partai yang mandiri dan menyatukan Indonesia dengan demokrasi menurut saya begitu teman-teman amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Ya betul sekali. Saya juga saksi yang mengalami zaman Orde Baru dan ikut turun ke jalan tahun 1998 serta ikut bersuka cita dalam Pemilihan Umum 1999. Merdeka
+Coba kasih paham agar tidak kebalik faktanya siapa yang membesarkan dan mengantarkan sampai besar dan dikenal seperti sekarang ini? xemoticonx xemoticonx xemoticonx
+Tidak bisa bikin tunduk PDIP jadinya acak xemoticonx saja xemoticonx
+Tanpa PDIP yang mengusung Mulyono di Solo, Jokowi alias Mulyono tetap lah jadi tukang kayu
+Saya jadi ketua KPPS saat 48 partai ini ampun deh 26 jam kerja xemoticonx xemoticonx xemoticonx
+Mereka yang bilang PDIP besar karena Jokowi dipastikan mereka kaum IQ 78 xemoticonx xemoticonx xemoticonx xemoticonx
+Solidaritasnya tinggi
+Terima kasih atas semuanya, tetap setia pada jalan yang lurus dan benar, untuk Indonesia tercinta ini lebih baik xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Soeharto saja tumbang sama banteng xemoticonx
+Mulyono, seorang aktivis 98, hanya beda dengan Adian tetap bukan kekuasaan xemoticonx xemoticonx xemoticonx
+Banteng vs Jokowi xemoticonx xemoticonx xemoticonx 16 xemoticonx vs 58 xemoticonx
+PDIP menang karena berkoalisis dengan rakyat bukan dengan Mulyono enak saja. Mulyono dibesarkan oleh PDI Perjuangan malah mau menguasai partai asam
+Saya tidak bakal coblos Mulyono dua kali kalau bukan dapat rekomendasi dari PDI Perjuangan, camkan itu Mulyono
+Menyesal milih Mukidi
+Iya saat rakyat tidak tahu kalau ternyata setelah jadi satelit hilang Gus Dur digeser setelah itu sudah tidak pernah menang lagi
+Amazing memang Banteng saya xemoticonx xemoticonx xemoticonx xemoticonx
+PDIP Partai Kader
+xemoticonx xemoticonx setuju xemoticonx xemoticonx
+Mulyono bukan hanya Partai yang ditikung, Masyarakat juga ditikung xemoticonx xemoticonx xemoticonx
+Vibenya Kak gemas sekali xemoticonx
+Sekarang banyak yang elektabilitas tinggi tidak bisa ikut kontestasi
+Ini benar xemoticonx xemoticonx
+Numpang banteng
+Dengan Mulyono 10 tahun partai ini berkuasa ya, masih ingat waktu pertama dan awal-awal setelah lima tahun Mulyono jadi presiden hampir seluruh kader partai ini bangga memajang foto mereka dengan Mulyono baik itu kader untuk anggota DPR dan kepala daerah gubernur serta bupati di seluruh Indonesia slogannya beragam. Ada yang bilang bersama Jokowi kita menang ayo coblos nomor sekian begitu juga kepala daerah ini pasangan pilihan Jokowi poster besar Ibu Ketum serta Mulyono menjadi latar belakang poster-poster dan spanduk-spanduk itu hampir di seluruh Indonesia. Oh iya hampir lupa dalam sejarah kan capres partai ini sebelum Mulyono tidak ada yang jadi presiden melalui proses pemilihan umum kan, jadi ada terjadi proses saling menguntungkan oke
+Banteng kok dilawan
+PDI partai terkuat karena dulu juga PDI tahan banting
+Mulyono besar karena PDIP
+xemoticonx xemoticonx xemoticonx luruskan luruskan
+Merdeka
+Kalau saja
+Dari dulu sampai sekarang setia sama banteng xemoticonx xemoticonx
+Jokower mana paham xemoticonx
+Tanpa Mulyono pun PDI-P sudah besar dan PDI-P lah yang menjatuhkan Orde Baru zaman Soeharto dan tahun 99 PDI-P lah yang memenangkan pemilihan umum dan menguasai kursi parlemen di DPR dan satu-satunya partai wong cilik jadi zaman tahun 99 Mulyono masih jadi embrio calon bayi di dalam perut ibunya
+MERDEKA xemoticonx xemoticonx xemoticonx
+MERDEKA! PDI PERJUANGAN xemoticonx Berjuang Untuk Kesejahteraan Rakyat xemoticonx
+Mulyono xemoticonx
+Ibu Megawati Soekarno Putri, masih berani menemui Soeharto, ada apa dengan Mulyono, merdeka tiga kali xemoticonx xemoticonx xemoticonx xemoticonx
+Merdeka! xemoticonx
+Setuju. Saya ikutan di situ. Sejarah yang harus diulang kembali xemoticonx
+Beautiful and Good
+Banteng merah tetap yang utama
+Mantap mbak, ini yang betul bukan apa yang dibuat buzzernya Mulyono yang diajak ke IKN tapi tidak berhasil mengerdilkan PDIP
+Keren. Tambah senang kepada PDI Perjuangan sudah banyak yang alim yang gabung ke PDI Perjuangan. SELAMAT BERJUANG DEMI NKRI, DEMI DEMOKRASI
+xemoticonx xemoticonx xemoticonx Banteng
+Kadang mereka memutar balikkan fakta, katanya PDIP besar karena Mulyono, padahal dulu saat pilwalkot Solo, cuma PDIP satu-satunya partai yang mau mengusung Mulyono jadi wali kota Solo
+Titip pesan dari kami simpati PDIP agar jangan sampai bergabung sama Kim xemoticonx karena hanya harapan kami PDIP bisa menjadi oposisi dan bertarung seperti banteng. Malu kalau bergabung sama Kim xemoticonx dan kami akan tinggalkan partai PDIP seterusnya
+Tidak ada orang yang bisa lebih besar dari partainya di PDI Perjuangan emang Mulyono siapa sih? xemoticonx xemoticonx
+Biar saja belum terbuka kali pikirannya
+Akar rumput PDI Perjuangan nih bos
+Mulyono aib negara xemoticonx
+Saya Bangkalan siap memenangkan Bu Risma xemoticonx xemoticonx
+BU RISMA GUS HANS, JATIM - MAS ERI CAK JI, SURABAYA
+Masyaallah tabarakallah semoga sehat selalu Pak Said dan sekeluarga amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Sehat selalu Buya
+Buya Said 11 12 dengan komandan pacul Olly Dondokambey mentalitas Korea
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx tetap terpilih!
+Satu nomor saja xemoticonx xemoticonx
+Sudah waktunya bismillah xemoticonx xemoticonx xemoticonx
+Masa kah pak terus yang bersih-bersih kantornya gubernur Jawa Timur, ayo Mak Risma bersih ada Jawa Timur xemoticonx xemoticonx xemoticonx
+Dukung penuh xemoticonx xemoticonx
+Siap coblos nomor tiga Bu Risma Gus Hans dari pemilih Nganjuk
+Ayo gas tanpa banyak baliho tapi menang untuk Bu Risma
+Surabaya 100 xemoticonx Bu Risma xemoticonx
+Insyaallah sukses lancar Jawa Timur untuk INDONESIA
+Orang Jawa Timur pasti Bu Risma
+Bu Risma Gus Hans, bersih dari noda korupsi, tidak tersandra oleh KPK, beliau terbaik untuk rakyat Jawa Timur
+Saya siap untuk memilih Bu Risma untuk Jawa Timur satu
+xemoticonx xemoticonx xemoticonx xemoticonx terus berkobar semangat berjuang menuju kemenangan
+xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx semoga menang di setiap daerah
+Siap kawal Mak Risma xemoticonx
+Semoga menang Bu amin xemoticonx xemoticonx
+Siap bergerak xemoticonx xemoticonx xemoticonx
+Saatnya resik-resik Jawa Timur xemoticonx xemoticonx xemoticonx
+RISMA-GUS HANS! MENANG! RESIK-RESIK JAWA TIMUR! xemoticonx
+Khofifah Emil untuk Jawa Timur satu
+PDI Perjuangan xemoticonx Jawa Timur satu pastilah Bu Risma dan Surabaya Cak Erick xemoticonx xemoticonx xemoticonx xemoticonx
+Dukung penuh Bu Risma xemoticonx
+Salam metal xemoticonx Ibu menang total amin
+Siap menangkan Gus Hans xemoticonx
+Perempuan memimpin, Risma xemoticonx
+Bu Risma menuju Jawa Timur satu
+Bismillah dukung dan menangkan
+MERDEKA MENANG MENANG PASTI MENANG xemoticonx
+Siap menyala dari Depok
+SOLID xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Korea Timur xemoticonx xemoticonx xemoticonx
+Risma Gus Hans menang jadi gubernur dan wakil gubernur amin xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+Banteng bukan celeng
+Semoga Risma bisa menang di Jawa Timur
+RISMA xemoticonx xemoticonx
+Pilih nomor tiga salam tiga jari
+Mau rapat kerja daerah kek rapat kerja daerah kek, rapat kerja daerah sudah tidak berpengaruh pelan tapi pasti PDIP menuju kehancuran
+Merdeka! Hidup Marhaenisme! xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx saya tidak kelihatan
+Merdeka!
+Resik-resik apa lagi ini?
+xemoticonx xemoticonx tujuan mantap
+Tuhan memberkati xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx JOMBANG xhashtagx
+Mantap menang menang menang
+Mantap senior, berkebijakan untuk rakyat Jombang sejahtera xemoticonx xemoticonx
+Mantap betul mas lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx
+Mas wakil bupati mantap
+Bagus
+Gas Munjidah rambah xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx Mas wakil bupati Sumrambah bagus
+Menang menang menang lanjutkan xemoticonx xemoticonx
+Jombang terus terbang
+Mantap masnya lanjutkan xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx xemoticonx
+xemoticonx xemoticonx xemoticonx xemoticonx gas salam Raja 135cc satu mahkota kita saudara xemoticonx
+Amin amin amin
+Setuju Pak
+Lanjutkan xemoticonx xemoticonx
+Lanjutkan pak xemoticonx xemoticonx
+xemoticonx lanjutkan
+Jokowi 2024. 2029
+Bersatu untuk Jombang satu xemoticonx xemoticonx
+Lanjutkan dua kali periode, merdeka
+Yang bikin tulisan tolong yang serius bos xemoticonx Gus Hans jadi bosan, Sumrambah jadi Sumurambah parah
+Ayo bersatu untuk Jombang
+Bagus pak xmentionx
+Sekaligus ketua bandar pemilihan kepala daerah Jawa Timur xemoticonx xemoticonx semoga sukses meraih Jawa Timur satu Jawa Tengah satu DKI satu Jawa Barat satu
+Selalu membanggakan
+Tapi, mengapa Madura masih belum mendapat efek apa-apa ya garis kemiskinan makin tinggi bahkan Sumenep masih juara tiga peringkat daerah termiskin
+Alhamdulillah, selamat dan sukses Buya
